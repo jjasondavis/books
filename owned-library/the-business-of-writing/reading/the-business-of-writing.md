@@ -1,0 +1,771 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB/PDF). -->
+Source file: The Business of Writing.pdf
+Title/Edition: The Business of Writing; Kieran Drew; owned copyright — personal use, do not distribute.
+
+THE BUSINESS OF WRITING
+Prepared By : KIERAN DREW
+
+
+INTRO
+Thank you for downloading The Business of Writing. You're here because you want to build something beautiful. You want to make an impact with your ideas and do meaningful work. Writing online is the vehicle that will get you there.
+Which is why I wrote this book.
+When I was a dentist, I dreamed of a creative career where I could earn with my mind and not my time. I wanted freedom and fulfilment. I've learned that the best way to achieve these things is in the service of others. And as an online writer, you can serve the world. There are thousands of people out there who would love your help. People who share similar worldviews, beliefs and goals. The purpose of this book is to help you attract them. You'll see 14 lessons I wish I had heard when I started. These ideas have helped me go from struggling to get anyone to read my work except my mum, to attracting over 250,000 readers and building a 7-figure business. But more importantly, they have helped me create a life on my terms. One that is aligned with my skills. One that is an infinite game where work feels like play. And that's what I'd love to help you do, too.
+The Business of Writing Page 3
+
+
+But note, building a writing business takes work. The Internet has never been noisier. I won't lie to you and promise easy riches (there's enough of that shit online). But if there is one tip that will help you win, it is this: the journey is the destination. The external benefits of writing online are fantastic. But success begins long before the results roll in. Why? Because of who you become in the process. No skill will challenge you more to grow, to think deeper about the world, to push yourself toward mastery. There will be many times you want to quit. Where you wonder if this will be worth it, or if your efforts will pay off. The fact that you are here right now is worth celebrating. Every word will add up. So grab a cup of tea. Read through the book. Look for the lessons you need most and execute with a smile on your face. The only way you lose is if you stop having fun. I look forward to spending some time with you, Kieran
+The Business of Writing Page 4
+
+
+TBOW 01: 10 MONETIZATION MODELS
+FOR MAGNETIC WRITING
+I'm in bed, staring at the ceiling. My body is exhausted, but my mind is doing cartwheels. I glance at the alarm clock. 2.34 am. I can't sleep. I throw the duvet off with a sigh of resignation and stumble into the living room. Time to get to work. It's February 2023. I just crossed my first 6 figures as a writer. I couldn't be more proud... or exhausted. My problem? There were so many ways to make money online as a writer. And I had said yes to all of them. I had products, 1-1 coaching and a high-ticket group coaching program. I was affiliating, selling ads, consulting and more. I was on a one-way train to burnout. Two weeks later, I would make a decision that led to $1,000,000 in under 3 years. I'll tell you what that was at the end of this chapter. But first, let's dive into 10 monetization models writing online unlocks enjoy.
+The Business of Writing Page 5
+
+
+10 Monetization Models for Entrepreneurial Writers
+Done For You Services
+Done-For-You services are great for several reasons: Low costs Less dependent on clients doing the work High earning potential
+Many people want to skip DFY work. But it's a fast way to get good, paid, and noticed. You're in the arena, and the attention you earn as a result is fantastic. The simplest DFY service is to write for other people--ghostwriting or freelancing. The benefit is that you get paid to learn the craft. But the downside is you end up building other people's brands instead of your own. Many writers get pulled down the ghostwriting path, but you can use writing to sell DFY services in any niche. For example, I'm working with my best friend to build his property business. We're writing about his journey to attract investors through Instagram. Or I recently hired a service provider to set up a business outside of the UK. They write about the perks of nomading in South America. But their service is DFY.
+Consulting
+I never understood the difference between consulting and coaching until a friend, a successful consultant, explained it to me simply. A coach guides their student to do better. A consultant diagnoses problems and presents solutions.
+The Business of Writing Page 6
+
+
+Consulting is a great way to increase revenue, especially as a DFY service provider. For example, say you build email marketing systems for fitness coaches and charge $20,000. A fitness coach may not want, or cannot afford, the full package. So you add a $3,000 day package. In this, you peel apart their funnel. You tell them where to improve, providing templates and assets you'd use yourself, and they do work..
+1:1 Coaching
+Many writers are natural teachers, so 1-1 coaching is a great path. I used to resist it because I didn't like to sell my time. But it was a mistake. Why? Because the writer who understands their audience most, wins. Empathy is the key to connection. Your content will hit deeper when it is born through client interaction. For example, I recently started on YouTube. Instead of guessing what to create, I asked my high-ticket clients what they'd love to see. This means my channel will become a magnet for future clients. Usually, coaching is delivered through a combination of live calls and asynchronous support. For example, my program is a monthly call with unlimited messages/critiques. I have a friend who coaches only via email. But I recommend you have more person-to-person contact--monthly at a minimum. The drawback of 1-1 coaching is time. It is difficult to scale. As such, we charge accordingly. The long-term goal is to make your 1-1 offer extremely exclusive--with more scalable options for those who can't afford it. Which leads us to our next model.
+The Business of Writing Page 7
+
+
+Group Coaching
+Group coaching moves up the ladder of leverage. It's a combination of group calls and support. It's more time-efficient, but also good for the community. Because those who build together win together. Many of my clients from group programs have ended up close friends. The drawback of group coaching, and scale in general, is less intimacy and poorer results. The more people you serve, the less effective you are. But we can minimize this through smart systems and delivery.
+Community
+Community is like group coaching at scale. It's powerful for tribe-building because you create a space for your fans to hang out, but a word of warning. Many of my friends have failed to build a community. Myself included. The monthly revenue is appealing, but recurring revenue brings recurring problems. The issue? It takes serious time and effort to grow. And that takes away from lower-leverage but higher-income sources. I learned this lesson painfully. In 2022, I built a community called Freedom Writers. It was around $10/month, and I promised the world. Calls, webinars, and unlimited forum support. Within 2 months, I was more burned out than bread in a dodgy toaster. I shut it down at 100 members. Two days later, 2 clients reached out for coaching.
+The Business of Writing Page 8
+
+
+I ended up making 100x more with much less headache. Unless you are a natural community-builder and love working with people, leave this for now. It is much easier to build a community AFTER you have established your high-ticket offers and created products. Then you can put everything together and add more calls, live events, masterminds, etc.
+Products
+Products include courses, assets like swipe files and templates, and books. 92% of my revenue comes from digital products, so I feel qualified to give you some deeper insights here. I love them for one reason: Leverage. A digital product is a robot that works day and night to generate revenue, reputation, and relationships. You build them once and can sell them many times. This is particularly important as a writer. You are in the business of ideas. You need space to perform at your best. Product sales aren't tied to your time, giving you more time for creativity. But despite what people say, the product business ain't all sunshine and roses. First, completion rates are low. I've spent 3 years creating a high-performing product system to fight this. But at the end of the day, it's on the customer to complete. I can count on my hands the courses I have finished. Second, upkeep. Products are not passive income. They are digital representations of you. The more you evolve, the more you need to update your material. The key is to only productize what you've nailed. Keep the material as timeless as possible, then build `live' offers to supplement. Which leads me to our next series of models.
+The Business of Writing Page 9
+
+
+Paid Newsletters
+A paid newsletter can be a great way to make money writing whilst solving a problem at scale. For example, I had a paid newsletter called the Magnetic Content Masterclass. Hundreds of entrepreneurs subscribed, earning thousands of dollars each month with just a few hours of work per week. But I shut it down. Why? Because a paid newsletter paywalls your best ideas. And you are forced to pour more energy into an asset that most of your audience won't have access to. My advice is, don't build a paid newsletter unless you're ready for it. You should focus on attracting a quality audience and setting up other offers first.
+Cohort-based Programs
+If a course and community had a baby, it would be a cohort. You get the benefits of both. But unlike a community, you don't have to run it all the time. And unlike products, there's real person contact. And because the material is live, it improves at each iteration. This creates a powerful flywheel. Cohorts are great if you plan on running multiple times. Each round gets better, you get more proof, and so attract more customers at a higher price point. They are also powerful for testing product ideas. The best digital products are refined with people first. You can run a small cohort for close contact. A client of mine just launched one for 4 people. Or a large cohort that gives your audience more access. I ran a content challenge cohort with over 1,000 people signed up!
+The Business of Writing Page 10
+
+
+The media business
+Here, you rent out the attention you earn--advertising and affiliating. The benefit is that you don't need to create offers, but you still need to deliver results for advertisers. That can be tricky. Many early writers think the media business sounds like a dream, but I know people who have them. It's a tough industry. You need either:
+Scale (a big readership) Volume (lots of content) Specificity (to a high-value audience) Ideally, a combination of all 3. For example, you won't get rich writing a once-a-week newsletter to 500 dental students. And damn, that would be boring. But if you write a 3x week newsletter to 5,000 dental practice owners, you could attract the attention of companies selling high-ticket offers like $20,000+ equipment or marketing services. They are willing to pay good money to get in front of your audience.
+Software as a Service
+Robots don't get tired. If you can build a problem-solving software, you have serious scale potential. And with the revolution of no-code building, this is becoming more realistic for writers. I recently bought Nat Eliason's fantastic No-Code App Building course. It was eyeopening what a `normal' person can achieve. Alternatively, a powerful combination is a writer/developer co-founder relationship. One handles attention, the other the product.
+The Business of Writing Page 11
+
+
+One decision to rule them all
+Hopefully, you can see why my mind was running at a million miles per hour. But if you take one lesson from our next two weeks, make it this:
+Focus is the key to success.
+Because `average' is a digital death sentence. Reputation is the aim of the game. Spread too thin and you end up stuck in the crowd. Which is precisely where I was when I started. But in February 2023, I doubled down on products. I `fired' my group coaching clients. I stopped running ads and affiliating. I cancelled my consulting and 1-1 coaching. My income plummeted--I made a loss for several months. But I used that time to create a product I was proud of. 4 months later, I had my first 6-figure launch. The more I focused, the faster my brand and business grew.
+The Business of Writing Page 12
+
+
+And so these 10 business models are what you can achieve. But the purpose of this ebook is to get you building momentum. And so we'll step back now. In the next chapter, I'll give you one framework that will instantly set you apart from the crowd. Then we'll build on this to create a simple writing business you can scale to 6+ figures a year.
+The Business of Writing Page 13
+
+
+TBOW 02: THE MOST IMPORTANT DECISION YOU CAN MAKE TO CATAPULT YOUR BRAND
+AND BUSINESS
+"Most people never choose. And that's why most people fail." My client's eyebrows raise. He pauses, a question on the tip of his tongue. But then he sits back, looking reflective. "You're right. I need to pick a lane." I give an empathetic nod. He had booked for a Clarity Call because he was struggling with growth. He thought he needed his writing critiqued. I began the call explaining I was happy to do so, but I would be doing him a disservice. Why? Because he was making a critical mistake that went much deeper than content. Let me explain. He was a smart guy with plenty to say. But he was trying to build two brands. One on LinkedIn, writing about AI for B2B. The other on X, about applied spirituality. I understood why. We writers have many things we'd like to discuss. And we've been told `we are the niche', so it's tempting to spread your wings and try to fly. But a lesson I've learned repeatedly: Split focus is a heavy price to pay. You will work 10x harder for 100x worse of a result. So I gave him the advice I wish I had heard 3 years ago:
+Do one thing well.
+The Business of Writing Page 14
+
+
+Most writers fail because they get stuck in the messy middle. Think of it like this: The internet is a sea of noise. The purpose of writing is to slice through the noise to attract the people you can serve best. Your mission is to pull them into your Writing World, where they can consume your assets and invest in your offers. But 99% of people are too broad in their approach. They try to grow everywhere, so they grow nowhere. They want to serve everyone, so serve no one. They try to sell everything, but sell nothing. It's the difference between a shotgun spray and a sniper.
+The Business of Writing Page 15
+
+
+The Business of Writing Page 16
+
+
+To build momentum as an early writer, you need an Audience of True Fans. These are people who love what you write and will pay well to work with you. They become your advocates too, spreading your name for you and supporting your future moves. And focus is the key to creating fans. You want to follow the Rule of One:
+One person One problem One solution At least initially. You earn a reputation first, then use that as a springboard for future success. Take a look at almost every popular writer, and you see the same approach. James Clear with habits. Shane Parrish with mental models. Mark Manson with dating. Tim Ferris with productivity. Specificity is the secret. Which is why your first task is to nail one framework:
+Your Transformation Promise
+This is the reason people follow you. The reason you write. It goes like this:
+I help [MY ONE TRUE FAN] [ACHIEVE THEIR BIG DESIRE] through [MY UNIQUE VEHICLE] so they can
+[BIG BENEFIT]
+The Business of Writing Page 17
+
+
+Here's mine:
+I help entrepreneurial writers build their business through my Magnetic Writing strategies so they can unlock more freedom and fulfillment by sharing ideas
+they believe in.
+And a few examples from previous clients:
+My course shows ambitious, talented sales professionals how to turn their salary into lasting wealth so they can
+feel in control of their financial destiny and build wealth without stress.
+My course shows the active person how to get rid of foot pain so they can get back to exercise.
+My course shows ghostwriters how to build a reliable, data-backed system that reveals what works and why, so
+they can stop guessing, scale their client work with confidence, and step into the role of creative director,
+not just content producer.
+The Business of Writing Page 18
+
+
+When everything you create and do falls within this promise, it is only a matter of time before you attract followers and convert them into fans. The more reps you put in, the more resonance you create. The by-products are relationships, reputation, and, of course, revenue.
+You're not the writer for everyone. You are THE writer for someone.
+So grab a pen and paper and answer these questions: Who is the one person you would love to serve? What are they struggling with? What do they want? What is the skill you want to be known for? What is the deeper reason behind why you write?
+A note: You won't nail this the first time. In fact, you never will. Because your promise is not a one-time decision. It is an evolution. But evolution begins somewhere. So get clear on the promise you provide. And in the next chapter, we'll begin building your business around it.
+The Business of Writing Page 19
+
+
+P.S. My client was struggling because he thought he wasn't `allowed' to write about both topics. But this is short-sighted. People follow people, so you should never cut away what makes you unique. Instead, the key is to bring things together. Think of your Transformation Promise as an umbrella under which your brand falls. It gives you creative flexibility... So long as you tie everything back to your One True Fan's journey. For example, he decided to go down the AI route. But I told him to write one post per week about his spiritual journey as an entrepreneur. Because I guarantee his best clients will be spiritual too. And we like to work with people who remind us of ourselves. A good rule of thumb: 90% of your content should be hyper-specific to your Transformation Promise. But give yourself 10% to explore. Because that exploration often creates the edge that sets you apart. Send over your promise to kieran@kierandrew.com. I'd love to help you out (and I reply to every email).
+The Business of Writing Page 20
+
+
+TBOW 03: HOW TO SUCCEED ON SOCIAL MEDIA (3 TIPS I WISH I HEARD 3 YEARS AGO)
+"You need to post more about your life." I sigh, sipping my tea. My friend continues: "I know you're a writer and you like to keep yourself to yourself. But your audience needs inspiration more than information. And the way you live is pretty cool. For other writers that is." I chuckle at the final line. All I do is write, read, walk and think. To most people, that's hell. To me, heaven. But my friend is right. He has a great brand. I asked for his advice--I knew this lecture was coming. I've always resisted social media. I think it's shallow, toxic, and the source of most modern misery. I took a 3-year break from social before I started writing, and it was bliss. But attention is the new currency. And social media is the first point of contact with your future customers. Now that we have a Transformation Promise, we want to start creating content to pull them into our world. So let me give you three tips to do this well. First things first--decide your archetype.
+The Business of Writing Page 21
+
+
+Tip 1: Own your position
+It took me 13 months to hit my first 1,000 followers. One of my key mistakes was pretending to be something I wasn't. I thought you had to be an expert to be taken seriously. So I hid my story. I didn't understand that a lack of experience can be an advantage. Here's what I know now: You can become an authority in any niche within 2 years--but only if you take the right approach. There are three evolutions of a Magnetic Writer:
+EvolGutrioounp1:CTohaechEixnpglorer
+Explorers are new to their niche. What they lack in results, they make up for in curiosity. In this phase, your job is simple: Learn and share. You don't pretend to know everything. Instead, you say: I'm interested in this skill and here's what I've found so far. You'll enjoy two benefits here. First, you tap into Authority By Association. People might not know you, but they know the people you are learning from. This `gets your foot in the door' of their attention. You'll grow faster and lay the foundation of a reputation.
+The Business of Writing Page 22
+
+
+The second benefit is my favourite: Knowledge acceleration. The teacher learns the most. So an Explorer improves their writing and thinking, whilst laying the foundation for your brand and business. Which sets you up for the second evolution.
+Evolution 2: The Experimenter
+An experimenter is in the arena--implementing ideas and sharing results. You might know this approach as 'building in public.' I prefer `real time storytelling'. It is incredible for building your brand. You will earn much more (quality) attention this way because action attracts authority. And everyone loves a story. The best part? No one can compete with you at being you. So now you are unique, useful, and undeniable--which is the definition of A-Grade Writing.
+The Business of Writing Page 23
+
+
+I stumbled into the power of being an Experimenter in 2022. I set a public goal to build my first product in a month. It forced me to execute fast. And people began paying real attention.
+Why? Risk. Sharing other people's ideas is easy. Owning your story is scary. You're taking on accountability, which is incredibly rare these days. At first, few people will pay attention. But get good, and they will pay you money. Because you've proven yourself in public. And proof is everything. We will discuss proof more in a couple of chapters' time, but for now, let's discuss the final phase.
+The Business of Writing Page 24
+
+
+Evolution 3: The Expert
+As an expert, you have credibility. You've got results for yourself and your clients. This catapults you to the top of your niche, leading to outsized returns. You can charge premium prices, have an abundance of people to work with, and attract great opportunities. But here's what most `experts' get wrong. They look down at their audience. They lecture instead of lead. People want guides, not gurus. So, as an expert, see yourself as a pioneer. Show your audience the way. How can you tell if you're an expert? Well, usually your readers will tell you. A good rule of thumb is that the more specific knowledge you acquire, the more trusted an advisor you become. The journey to authority begins with the first two evolutions. But you will find that you never fully evolve. I consider myself an explorer in niches like spirituality, an experimenter as an entrepreneur, and an expert in certain styles of writing advice.
+The 5 Pillars of Magnetic Writing Regardless of your position, your job is to write persuasively. Generic content gets generic results. I created an e-book that explains the 5 Pillars of
+Magnetic Writing. You can grab it here.
+The Business of Writing Page 25
+
+
+Tip 2: Commit to one platform
+You will be bored with me saying this: Focus. Focus. Focus. There is a graveyard of entrepreneurial writers who spread themselves too thin. Reputation does not happen by mistake. The crowd can't commit. Which is why they end up stuck in commodity creator hell. You want to dominate one social media channel. Which?
+1. The place you enjoy 2. Where your One True Fan hangs out
+The Business of Writing Page 26
+
+
+I didn't post anywhere else until I hit 100,000 followers on X. I wouldn't recommend this today because growth is slower. But you do not need two channels to earn six figures as a writer. You need one channel, one avatar, one offer. To get what you want from life, you must resist FOMO. And social media is the cesspit of distraction. Trust me on this: It's 100x easier to grow on other platforms when you are known on one. For example, I have 32,000 followers on LinkedIn. But all I've done is redistribute the stuff I post on X. There's a time and place for diversification. But it is never as early as you think. Next, sort out your profile.
+Tip 3: Nail the 4 P's of a persuasive profile
+When I work with clients, the first thing I do is audit their profile. Social media is the lighthouse that guides people to your world. Your job is to build an island of ideas so that when your One True Fan finds you, they never want to leave. If you look like shit, you attract shit.
+The Business of Writing Page 27
+
+
+There are 4 criteria of a persuasive profile: 1. Profile. Look professional. Put your Transformation Promise in your bio. Get a decent picture and banner. 2. Posts. You want to post daily, following the platform's `vibe'. Keep these posts concise and focused on the Transformation Promise. If I read your timeline for 2 minutes and get no value, I will never follow you. 3. People. It's called social media for a reason. Engage with everyone who engages with you. Reach out to every follower and initiate conversations. Build a strong network of like-minded individuals with a similar mission. 4. Persistence. This is the `secret' ingredient. Ninety-seven per cent of the people I started with have quit. This is great news. You're not competing with the crowd. You're competing with the survivors.
+And remember:
+Your audience is more important than the algorithm.
+We're here to build a business. Not dance like a performing monkey. If your content is not high signal, it is a waste of time. This is critical for conversations in the DMs, which is where the initial magic happens. Once you set up your email list (which we'll discuss later in this series), you can take them away from the timeline and into the inbox. But if you fall into the `generic virality' trap, you will never get the momentum you need to succeed.
+The Business of Writing Page 28
+
+
+Sort out your social
+First, decide which brand archetype fits you best. Are you a complete beginner in your niche? Are you in the arena? Are you already ahead of 98% of people?
+Second, commit to a platform. If you're unsure, experiment. Test a few places, see what you enjoy, and cut what you don't. Finally, audit your presence.
+Is your profile holding you back or catapulting you forward? Are your posts high-quality and useful for your One True Fan? Are you spending enough time with people? Are you posting daily about your Transformation Promise? There is only one measure of successful writing: Do people want to work with you? And so in the next chapter, we'll begin creating an offer with a step that 95% of people overlook. It is the foundation for every great offer. Catch you then, Kieran
+The Business of Writing Page 29
+
+
+TBOW 04: THE SECRET INGREDIENT BEHIND
+GREAT WRITING (AND A GREAT BUSINESS)
+"I feel much clearer. I didn't realise how easy this makes things." I'm chatting with a client on Zoom. We've just finished our first month of my one-year coaching program. He'd been building online for a year, but was struggling to get clients. Today was a follow-up on his first task--the most important of any offer. What did I ask him to do? Simple. Speak. To. People. Because here's the truth:
+The secret to great writing and a great business is empathy.
+The Business of Writing Page 30
+
+
+We all have a unique view of the world. Empathy is your ability to look through someone's lens without getting your fingerprints all over it. When you make people feel seen, heard, and understood... They will love you for it. My mistake as an early writer was avoiding conversations and guessing what my audience wanted. But this is madness. Because everything is downstream from who you serve. The content you create, the offers you build, the opportunities you attract. It all begins with people. I expected my content to miraculously turn into clients. As a result, I was generic and had no clue what to offer. This is why it took 18 months to make one dollar. I was disconnected from those I wanted to attract. I could've avoided this pain if I had taken the right approach. The answers are out there. You just need to listen.
+The Business of Writing Page 31
+
+
+Contact creates clarity
+In the last chapter, we discussed creating content on social media to build momentum. But content without conversation is playing the game on hard mode. Aside from clarity, conversations encourage engagement. Everyone you DM will check out your profile. More people will follow you. And when you release offers, more people will want to work with you. Here's what I asked my client to do: 1. Send 250 messages 2. Hop on 10 discovery calls 3. Pay close attention to common problems (this is where we focus our writing and offers) He did this in a 21-day sprint. A quick breakdown on the approach:
+Step 1: Send messages
+The key is to let people know you're building something. We want simple responses first. So don't ask for calls yet. For example:
+The Business of Writing Page 32
+
+
+Hey NAME, how are things? I am building a program to help introverts with dating. I really want to create something useful, so I'm doing research. I'm not sure if this is a topic you care about. But if it is, can I ask: what's one thing you'd love to learn about dating? Even one sentence will help massively. P.S. If this doesn't apply to you but you know someone who it might, I'd love an intro!
+Who do you send this too? Everyone. Start with your network. Then friends, family, colleagues. This might feel uncomfortable. But you will never get what you want if you don't put yourself out there. If you have fans, send them a direct message. This personal touch goes far. If you have a newsletter, send emails. Then speak to your wider audience. Go through all of your followers. DM anyone who engages with your content.
+An important note: You should be speaking to everyone who follows and engages anyway. Most brands don't do this. It is a great way to gain an advantage. Like Paul Graham says, Do the things that don't scale. (it's the fastest way to achieve scale)
+The Business of Writing Page 33
+
+
+If you have no audience, go where your One True Fan gathers.
+This could be Facebook forums or Reddit. Or even just your competitor's content. I built my first product idea by reading replies to big writing brands.
+My point: you must put yourself out there. You will not get what you want by hiding on the sidelines.
+Now, the response rate won't be great, so expect this to be a little gruelling. Although I did hire a sales expert to share how she gets 73% response rates and 100% call rates. You can check out Social Selling Simplified here XF.
+Those who reply sign interest. Continue the conversation to establish a connection. Show you can relate and ask open-ended questions. For example, say someone replies with:
+
+"I know all the dating tips. But no matter how much I read, I still freeze up at the first hurdle: how do you get the confidence to approach someone?"
+I might say:
+
+"Haha, yeah man I get that. I devoured book after book looking for the secret line that makes the first approach easy. None of it worked, I just ended up overthinking and beating myself up for being a pussy. I've got a few things that worked for me, but it depends on your style. What have you tried before?"
+
+Next...
+
+The Business of Writing Page 34
+
+
+Step 2: Hold 10 calls
+Messages are great, but nothing will teach you more about your audience than real conversations. Now, a lot of us writers value an empty calendar. But I can tell you who will succeed based on how busy they are (at least initially).
+You want to become a sponge of information.
+So offer calls to repliers who match your One True Fan profile.
+The key to getting a good response is threefold:
+Frame the call as a benefit to them. This is not about you and your business. Apply urgency and scarcity. Give them a reason to act now. Make it exclusive. People value valuable things. This is a great opportunity, not a time-sink.
+For example, I might say:
+
+Hey man, thanks for replying a few days ago. It helped a tonne. Quick question:
+Would you be down for a free consulting call?
+It'll be a casual 30 minutes where we can dive into your problems and chat about [the main thing they are struggling with].
+There's no pitch. It isn't a sales call in disguise (I hate those). I'd love to learn more about you and see if my advice resonates. Sound like something you might be interested in?
+Btw, because this is time-intensive I'm only holding 10 calls over the next 2 weeks.
+ I'm reaching out to you first, so please let me know as soon as you can. Cheers
+
+If they say yes, send them a Calendly link. The key to a great call?
+
+The Business of Writing Page 35
+
+
+Shut up and listen.
+There's a great story about Benjamin Disraeli, one of the British Prime Ministers. A lady had dinner with a statesman and said afterwards she thought she had met the cleverest man in England. But after dining with Disraeli, she felt like she was the cleverest woman in England. When I started my consulting calls, I thought my job was to give as much advice as possible. So I spent most of the time talking. However, when I began asking more questions, I had so many happy customers (and repeat buyers). For example, here's feedback on a Clarity Call I held last week:
+Listen for 80% of the time. Offer insights only after understanding. This makes you someone they'd love to work with.
+The Business of Writing Page 36
+
+
+Here are a few prompts to help: What's your current goal when it comes to [insert topic]? What's been the hardest/frustrating part lately? How's that been affecting you day to day? What have you already tried? What are you tired of hearing or seeing on this topic? What would `solved' actually look like for you? How would your life change if you solved it right now?
+Two tips: 1. Record the call using Fathom. Explain that you are recording, so they don't need to take notes. You can put transcripts into AI to mine for information (I have a collection of useful prompts inside my AI-Vault 2. Book the call for 30 mins, but go for 45-60. This is a great way to increase the perceived value. At the 30-minute mark, say: "I know we're reaching our time limit. But do you have an extra 15 minutes? I'd love to keep chatting."
+After 250 messages and 10 calls, you should have a wealth of data. And the start of a few great relationships. This will help you create more compelling content... And give you the foundation for creating an offer. Which is what we'll discuss in the next chapter. Remember: The writer who understands their audience the most, wins. Kieran
+The Business of Writing Page 37
+
+
+TBOW 05: THE SMART WAY TO BUILD AN OFFER
+PEOPLE LOVE TO BUY
+"Where the hell is it?" It's July 2025--my fifth-year anniversary since I started writing online. I wanted to find my first blog post to share my progress. But the only post I could find was from October. I scratch my head. What did I do all summer? Then it all came flooding back. My first foray into online business was a failure. I tried to build a business for aspiring dentists. I bought a domain name, built a website, and wrote a 76-page guide called GetinDentistry: How to Write Your Personal Statement.
+The Business of Writing Page 38
+
+
+I remember how energised I felt when I wrote it... and how terrified I was when I finished. Because I had no customers, no audience, and no clue if my advice was good. That project died a disappointing death (probably for the best--would've been a boring business!). What I did right: Solve a problem I had experience in. What I did wrong: everything else. I've since built a range of successful offers. And I follow the same blueprint each time. It guarantees no failure. And I'm going to walk you through it now. Starting with the most important tip:
+START WITH A SERVICE
+The mistake I made was rushing into a digital product. You might be tempted too. I get it. There is no sweeter feeling than selling something not tied to your time. But a great product is a by-product of working WITH people. The advantage of starting with a service is that you validate before you create--avoiding the risk of ruin. Don't be dumb like me and disappear for 3 months. Instead, you can get going within a couple of days. A service is when someone pays for your time, skills, and/or brain. It is:
+Custom (tailored to the person, not mass-produced) Dependent on you (your energy, your brain, your experience) You might teach or do, depending on your offer. But here's the key: You do not build anything until you have someone ready to serve.
+The Business of Writing Page 39
+
+
+You might teach or do, depending on your offer. But here's the key: You do not build anything until you have someone ready to serve. I like to think of this at the Rule of Two's. Take: 1. 2 hours to create a plan 2. 2 weeks to try sell it 3. 2 months to deliver it During delivery you build the offer live. You refine through feedback, discovering what works and what doesn't. This process works if you're building your first offer or your tenth. And the first step?
+Pick the right problem
+The Business of Writing Page 40
+
+
+Yesterday we spoke to people. Today I want you to pay attention to the answers. We're looking for problems to solve. We can diagnose a good problem with the 4E framework:
+Early. Is this early in their journey? (solving an early problem means more scope, plus you can upsell happy clients to solve their next one) Emergency. Is this a `bleeding neck' problem? Expertise. Are you qualified to solve it? Enjoyment. Do you want to? Let's say I want to build a dating offer (although I'd fail the expertise side immediately, but let's pretend I'm a smooth-talker). Through my research, I realise the big issue is confidence in approaching women. That's a bleeding neck--If you can't start a conversation with a woman, how can you expect to date them? So now I create a plan.
+Create a product pathway
+If you want to sell more stuff, you must embrace this fact: People don't pay for topics. They pay for a transformation. I'm not selling dating advice. I am selling a path to go from low confidence and self hatred to approaching women without fear. I like to visualise this journey. Your One True Fan is at point A (Hell) and wants to go to point B (Heaven). All you need to do is ask: What's stopping them from getting what they want?
+The Business of Writing Page 41
+
+
+Create solutions for each obstacle and you have stepping stones toward success. Wrap this up in a clear transformational promise, and you have something to pitch. For example:
+`I'll help you go from terrified to approaching women with confidence so you get your first 5 dates within 8
+weeks'
+Now, to create a compelling offer I advice Hormozi's $100m Offers (I can't teach it better than him). But let me give you a framework I use when framing any offer (this works well for your writing too).
+The Business of Writing Page 42
+
+
+Use the 5-part seductive promise framework
+Seduction is the art of getting people to take an action you want. The key is answering the all-important question: What's in it for me? And with busines, people want 5 things:
+Status: the benefit of a result (leave hell, enter heaven) Speed: they want it fast Simplicity: they want it to be easy Surety: they want guaranteed success Steal: they want it at a bargain (relative to the value provided) So if you can clearly state the benefit of working with you, within a timeframe, without sounding hard or complicated, and back it up with proof and a promise it's worth much more than the price... It's just a matter of reps until you have people queuing to work with you. It's all about framing.
+Problem, promise, pathway.
+As you speak with people, begin searching for problems. Then create a seductive Transformation Promise with a series of steps to take them from Hell to Heaven. Don't overthink this. No product ever began perfect. The aim is to have something to take to market.
+The Business of Writing Page 43
+
+
+TBOW 06: HOW I LANDED MY FIRST HIGH-TICKET CLIENT
+(AND SCALED FROM $500 TO $10,000+ PACKAGES)
+"Ding!" It's May 2022. I'm strolling along a sunny river canal in Leeds, UK. I shouldn't check my phone, but I whip it out anyway. It's my first high ticket client. I open Gmail to see the moolah in all its glory: $500. ... For 10 hours of calls plus writing critiques and asynchronous support. I could have made more flipping burgers, but I didn't care. The aim was momentum, not money. I knew I had to overdeliver if I wanted to escape commodity creator hell. So I sped home to get started. My plan?
+Make this the best $500 my client ever spent.
+To this day, he agrees. He went from being stuck in corporate sales to travelling the world whilst building a multi-six-figure coaching business. And over the next 3 years, I turned his win into a million dollars.
+The Business of Writing Page 44
+
+
+Because it gave me two things you need to scale your business: 1. Proof 2. Self-belief Because common advice is to charge what you are worth, but that's hard when you think you're worth nothing. Confidence is built one win at a time. And so my best advice to you is to start small and scale fast. Start for free if you need to. I did. There's nothing wrong with free work--just be sure to collect proof and feedback. Let's chat about getting clients.
+The Business of Writing Page 45
+
+
+The Pyramid of Potential Clients
+We have a plan. Now it's time to pitch.
+When you work down each level of a potential client, it creates exclusivity and urgency. Pitch everyone you had calls with first. Then conversations. Then your network, customers, and audience.
+An important note: I recorded a video overview of this process on my YouTube.
+The Business of Writing Page 46
+
+
+For example, I'd send this to everyone we spoke to on our discovery calls:
+Hey mate, how are you getting on with [specific thing about them]? Just a quick heads up. I finished my research and I'm going to run a live program where I'll walk people through how to get their first 5 dates within 8 weeks. I'm looking for serious people who have struggled with sealing the deal in the past. It's going to be 4 calls where I share my frameworks for how to approach with confidence (and get girls to say yes). You get review calls and 24/7 WhatsApp support too.
+Because this is the first time I'm offering this live, I'm only taking on 3 motivated people who really want to improve their pick-up game. It's not free because it's a lot of my time, but it's at a heavy discount so long as you are willing to provide feedback and a testimonial after we get you your first 5 dates (we can keep your name secret). Would you be interested in something like this? I think you'd be a great match. We can hop on a quick call to discuss the details. I'm going to start it in 2 weeks' time, so I'll be reaching out to more people in a few days. Wanted to give you first dibs if you fancied it.
+The Business of Writing Page 47
+
+
+A few things to note here:
+I hammer home the fact that they get close support to achieve their goal I am NOT framing it as `it's the first time so it might be shit hence it's cheap'. It's cheap in exchange for feedback and a testimonial. Note how I say the testimonial comes after they get the result. This is future pacing. I apply gentle pressure by triggering FOMO
+Now, regarding `sales calls'.
+People don't like to be sold, but they like to buy. So many entrepreneurs have lost my business because they talk to me like an idiot, armed with scripts like a HormoziWannabee.
+My advice:
+Hop on a call. Connect. Talk about their problems (remember: open-ended questions). Present your solution as an invitation.
+Then shut up and see what they say. You either get a yes, maybe, or a no.
+If they say yes, secure a payment. I use Thrivecart to run my business.
+If they say maybe, explore why. You'll hear their objections, often which resolve through discussion. They're also great for shaping your marketing material.
+If they say no, no harm done (we can pitch them again in the future).
+Let's change pace for a second.
+How to guarantee you never get clients
+Charlie Munger had a framework called Inversion. It's a useful way to think differently.
+So here's how we can guarantee we fail:
+Don't:
+1. Believe in what you sell 2. Adapt based on feedback 3. Put in the reps
+The Business of Writing Page 48
+
+
+The third is the most important. Almost every early business problem is a volume problem. If you pitch 5 people and I pitch 500, who do you think wins? It takes serious effort to get anything worthwhile off the ground. That might be offputting, but it's actually good news. Because most people just won't try hard enough. You're not competing with the crowd. You're competing with the survivors.
+If you can get 3 people to say yes, you are now in the top 10% of your niche. And like a snowball rolling down a hill, it only gets faster and bigger with the correct approach, which is our next chapter. This means you must make finding your first 3 clients your top priority. I always advise clients of the `Rule of Twice' for business. Expect everything to be twice as long, twice as hard, and twice as expensive. So put yourself out there. When one person says yes, reach out to everyone again to let them know one slot has been taken. People are lazy and need reminded to act now. And if you don't get 3 clients immediately? That's fine too. We can start delivering our service for one person and turn that into a magnet for clients. I'll show you how in the next chapter.
+The Business of Writing Page 49
+
+
+P.S. One question you might have on your mind: What if I build something that no one wants? Great. You've just saved yourself months of headache. Nobody gets this right the first time. In fact, you will create many offers that flop. The key is to treat everything like an experiment. You can't fail an experiment. You just learn what works and what doesn't. For example, my client Dave's first offer flopped. We sat together to diagnose why, and decided it was a lack of proof. So he started for free with 5 clients. He collected proof, then secured his first paid client for the new offer a few weeks later. Business is about how often you can get punched in the face and get back to fight tomorrow. So take pride in the struggle. This is the price we pay for the life we want.
+The Business of Writing Page 50
+
+
+TBOW 07: 7 TIPS TO NAIL YOUR FIRST OFFER
+(THE SHORTCUT TO AUTHORITY)
+"You continue to perform at and above the expectations, especially on turning things around, even if it's last minute." I smile awkwardly. I've never been good with compliments. But at the end of every client call, I ask the same question: How was this for you? I started this when I decided to take coaching seriously last year. I wanted to make sure I was nailing it. If you don't ask for feedback, you don't get it. And in such a competitive world, feedback is king. Negative feedback is a signal to improve. Positive feedback is a signal to double down. And both are great opportunities for promotion. We'll discuss marketing with the client-content flywheel in the next chapter. But first, we need something to market. The journey begins with one one critical point:
+If you don't overdeliver, you underdeliver.
+The Business of Writing Page 51
+
+
+Proof is the aim of the game. Proof you can get results. Proof your ideas are effective. Proof you are good to work with. The key is to make your client's success the top priority. Even if it means working 10x harder. Because remember, the aim is momentum, not money. One case study can change the trajectory of your business. And testimonials are ammunition to blast through the noise. The better you deliver your service, the better business goes. I can't get super tactical with unless I know your offer. But I can give you 7 tips that will give you a great reputation.
+Tip 1: Approach with honest confidence
+Quick story: I've been invited to speak at a new convention in 2026. I hopped on a call with the organiser. Nice guy, but he started by sharing how uncertain the start has been, explaining the challenges of organising his first event. That put me on the backfoot. I knew it was new, so I didn't expect him to hide that. But you must approach your clients with confidence. Explain because this is a new offer, you will tailor it precisely to their needs and have the capacity to give them your full attention. Make them feel special. On that note...
+The Business of Writing Page 52
+
+
+Tip 2: Go the extra mile
+You will be surprised how far you go when you work hard for your customers. Even small touches make a massive difference. One of my favourite exercises is to list every part of your offer and ask: How can I make this simpler, faster, or more enjoyable? This helped massively when I was a dentist. I was in cosmetics and looked about 12 years old. I needed to reassure patients fast. So I improved every step of the process. We offered them a drink at the start. I followed up within 12 hours with a report of our consultation. I called every patient after treatment. The result? I became one of the top providers in our city. Without a single social media post. Word of mouth marketing is king.
+The Business of Writing Page 53
+
+
+Tip 3: Take it week by week
+Now that you have clients, you might be tempted to write the full program. But your clients will help you build a great offer from the ground up. Deliver your service each week. Then ask for feedback:
+What went well? What went to hell? What would they like more of? Double down on what they loved. Fix what they didn't.
+Tip 4: Look for your blind spots
+You must remember, you are NOT your customer. For example, when I took on two clients for my 1-1 coaching earlier this year, I didn't realise how much people struggled with consistency. I grew up in a military school, and so discipline is my middle name. So I didn't consider it a feature of my program. But now, every month we set a clear goal. We break it down into daily actions. I check in weekly to see how it's going. And the feedback? Fantastic.
+Tip 5: Document and systemise
+Since you are delivering a new offer, shit's gonna get chaotic. But for everything you do more than once, you want to make simple to do again. You do this by creating `standard operating procedures' (SOPs). SOPs are checklists that remove friction and reduce error rates. For example, my monthly client calls were initially high friction.
+The Business of Writing Page 54
+
+
+But then I moved it to the same day at the same time.
+Now we don't need to discuss dates. Before the call, I review the notes from the month prior, which my assistant has uploaded into the client database.
+So I'm not digging through notes.
+During the call, we follow the same structure: What went well? What went to hell? What is the goal for next time?
+My client will present first, then I give my feedback. After the call, my assistant emails the notes, tasks, and runs the transcript through a series of AI prompts that extract every:
+Problem Desire Proof point Interesting content ideas
+The data guides my content for the month ahead.
+So now a 60 minute conversation runs smoothly and creates a tonne of leverage.
+Tip 6: Turn your solutions into scalable assets
+Every problem your client experiences is a fantastic opportunity to create in-demand solutions at scale.
+For example, one of my clients asked for an overview of my business.
+So I recorded a 35-minute video.
+I then sent this to my other clients, improving relationships. Then I released the video on X and LI as a giveaway, attracting hundreds of new email subscribers.
+And it was a bonus for downloading this e-book. You can watch it here.
+See how 1-1 work can be powerful? By serving your clients, you create a magnet for future business. But this final tip is the most important.
+The Business of Writing Page 55
+
+
+Tip 7: Collect proof
+You must collect feedback like a squirrel collects nuts. At the end of every call, ask how things went. At the end of every task, ask what they enjoyed and what they struggled with. At the midpoint of the program, ask for a testimonial. At the end, hop on a case study call. Case studies are THE most powerful form of marketing. For example, here's one I sent during my recent launch of Productize Your Knowledge. >>> CASE STUDY EXAMPLE The more proof you share, the more seriously you're taken. Especially when you combine it with great writing. Which is the next chapter's topic.
+The Business of Writing Page 56
+
+
+TBOW 08: THIS CONTENT STRATEGY WILL
+BLOW UP YOUR BUSINESS
+I put my hand up. My client stops speaking. I hate interrupting people, especially when they are delivering good news. I lean toward the screen. "Say that last line again." I said. "Which one?" "The 5-year thing." "My client was so happy that he asked me how he could sign on for 5 years." I sit back and smile. "That is the hook for your next email." His eyes light up. "Why didn't I think of that?" he said. I laugh. He's being too self-critical. When we started working together, his writing didn't represent his value. He hired me because he wanted to attract more leads in a systemised approach. Without sounding arrogant, his content is now more compelling than 99% of creators. And there's one tip that is seriously overlooked online:
+The best way to attract clients is to write about clients.
+The Business of Writing Page 57
+
+
+You might think: no shit sherlock. But lend me your ear and I'll explain why this is so important. Marketing is a game of perception. The more you write about clients, the more people see you as a serious service provider. And importantly, your writing gains an edge, too. Because `A-Grade Content' is unique, useful, and undeniable. Commodity content is the opposite. Yet so many creators waste time posting stuff that isn't new, result-generating, or supported by proof. Let's do a simple example. I want to share why you should write daily to get good at writing. You've heard it all before. But what if I wrote a post explaining how my client came to me because he was struggling to attract customers? And that he had tried the tricks and templates that the gurus give. And when I looked, his problem was that he wasn't writing like he spoke. So we set a 30-day challenge to write every morning for 60 minutes, and I used my 3 Pass Editing Checklist to write conversationally. The result was that he began getting much more inbound (and stopped sounding like the crowd). How much more appealing is this to read? How much more memorable is it, too? It's unique because it's a client interaction. It's useful because I give my frameworks. It's undeniable because it's a story (stories are vehicles for the truth). Same advice, completely different impact.
+I share my writing and editing process for emails on my YouTube channel.
+The Business of Writing Page 58
+
+
+I wish someone told me this when I started online:
+Nothing is more persuasive than seeing someone deliver results for people just like us.
+Your audience has a problem they want to solve. But in an age of AI and infinite noise, trust is at an all-time low. To turn someone from follower to customer, they need to believe you can help. How are they meant to know you are in the arena with your clients if you don't scream about it to the rafters? People read hundreds of posts per day. They are bombarded by thousands of ads. You must become your own cheerleader.
+So that when you do pitch your offer again, which you will--at a higher price for the next round (discussed soon)... They want to be your next client.
+The Business of Writing Page 59
+
+
+No more chasing. Just inviting people to invest.
+That's Magnetic Writing. I can give you one example that's close to home: This e-book. We've now spent 30-40 minutes together. If I've done my job right, you:
+Like me more for the value I've provided Trust me more from the results that I've shared Feel a desire to work closer with me, in some shape or form And how much pushing and persuading have I done? Have I used any gimmicks or tricks? Hell no. In fact, I'm writing this from my mum's garden, basking in the sun. I'm 5 cups of tea down and munching on nicotine gum like it's laced with crack cocaine. All I've done is share stories about my clients. I'm having a blast, and if you decide to invest in my ideas and offers? Fantastic. If not, no worries. And that's the attitude you need when selling yourself. Take it or leave it. It's worth reading back through the previous week's emails. Guess what you'll find? So here's my challenge to you:
+For the next 30 days, mention client work in every social media post.
+The Business of Writing Page 60
+
+
+It doesn't need to be a testimonial. It can be something as simple as:
+My client was struggling with what to say to girls at the gym. A cute girl smiled at him three times, but he was still too scared to introduce himself. On the outside, he has everything he needs. A good body, a profitable business, a charming British accent. But he still freezes like a deer in the headlights. Here's what I told him:
+If you have no clients, help people for free. The impact is the same. As you do this, keep up with conversations and outreach. Speak to everyone who engages, every new follower. The first thing they'll do is read your timeline. And suddenly, they see you in a light of authority. Which means they pay attention (and eventually, money). That, my friend, is how you turn clients into more clients. Give it a whirl. I promise you'll enjoy the result.
+The Business of Writing Page 61
+
+
+TBOW 09: THIS FRAMEWORK IS THE KEY TO STANDING OUT FROM THE CROWD
+I grew up in a military school. At 12 years old, I was given a uniform. I lived in a dormitory crammed with 20 boys in wooden cubicles. Every week we would march together, sing together, and salute the same flag. I didn't know it at the time, but this was an attempt to strip away individuality. Because being different is dangerous. And this is true in every system. So throughout society, we're told "safety in numbers"... But as writers, the opposite is true.
+The worst thing you can be is a commodity in a crowded market.
+If you aren't different from the crowd, you are the crowd. You have to work 10x harder for 10x worse of a result. And so here's a strategy to set yourself apart:
+Embrace the edge.
+The crowd exists in the messy middle. To catch the attention of your One True Fan, you want to be on the periphery. This makes you easy to see, easy to remember.
+The Business of Writing Page 62
+
+
+To Embrace the Edge, zoom in on 4 key aspects of your brand and business: Who you serve How you serve them Why you serve What makes you different
+Remember how we began this series talking about the power of focus? Most people refuse to focus their message, which is why most people fail. They want to serve everyone, solve everything, and say everything. But when you zoom in on these 4 areas, you hit a specificity sweet spot that turns you into THE writer for a small group of people. The result is premium positioning. Which means more clients, authority, and opportunities. A good rule of thumb:
+If your specificity doesn't scare you, you're still too broad.
+The Business of Writing Page 63
+
+
+Consider my business. I have been advised many times to broaden my brand and speak about generic business advice. I'll grow faster, I'm told. But one fan is worth 1,000 followers. And you don't create fans by catering to the crowd. Instead, I focus on impact-oriented entrepreneurial writers, sharing my Magnetic Writing strategies. I speak about freedom, fulfilment, and impact. And I do so by building in public, sharing stories, and not taking myself too seriously (a great advantage considering many online entrepreneurs believe they are god's gift). These decisions push me to the edge. As a result, you've found me in the sea of `writerpreneurs'. Hopefully, I'm tickling your fancy more than my competitors. If not, we probably have different values and interests--which is fine. But one thing is for sure: if I were generic, you would never remember me at all. So here's what I want you to do today:
+Audit your brand and business.
+Naval Ravikant once said, "Become the best in the world at what you do--keep redefining it until it is true." It's the redefinition that makes you remarkable. Focus on the who, how, what, and why.
+The Business of Writing Page 64
+
+
+Answer these questions: Who is the ONE person you want to attract most? Think about your favourite client. What do you love about them? How do you serve? What's different about your approach? Can you create Unique Concepts around your best ideas? What makes you weird? Hobbies, habits, quirks, worldviews, and beliefs are great for connection and differentiation. You're a *personal* brand, so share what you enjoy. Why should people care? This is your deeper purpose, and is the key to an Audience of True Fans. What do you believe strongly about? What are you fighting? Most people create content; you want to create a movement.
+Write to the 1% and you'll join the 1%. See you tomorrow, Kieran P.S. An important note: Your brand and business are not a one-time decision. It is an evolution. Writing is an infinite game. You will constantly reinvest yourself as you progress. And that's a good thing. Most people are too scared to change and so get stuck talking about shit they don't enjoy, building a business that feels like work instead of play. But nobody can compete with you if you are having fun. So when you reflect on these questions, let joy be your north star. Your heart will take you somewhere beautiful if you have the courage to follow it.
+The Business of Writing Page 65
+
+
+TBOW 10: ARE YOU MISSING THIS `SHORTCUT'
+TO SUCCESS?
+Each year, I have a Christmas reunion with university friends. In our previous, I had too many drinks and spilt my rum and coke on my friend's lush cream carpet. In the morning, we began a hungover quest for a cleaner. There was an abundance of choice. But the person we picked was a no-brainer. His name? The Rug Doctor. He came. He saw. He conquered (and cleaned). We trusted his every word. We paid an extortionate price. And if we spill something again, which is likely with how clumsy I am, we know who to speak to. This is the power of a premium offer. And if you want to succeed as an entrepreneurial writer, you must have one too.
+A mistake that slowed me down.
+A premium offer is the catalyst for a quality brand. For three reasons: 1. You get better results, which means more proof 2. You charge higher prices, which gives the *perception of quality* 3. Competence creates confidence--the better you get, the better you write When I look back at my journey, the mistake I've made is not taking one offer to the highest level. I often get distracted, moving to the next shiny thing.
+The Business of Writing Page 66
+
+
+But have you heard the saying `a rising tide brings up all ships'? That's how a quality offer works. It carries you from commodity to authority. For example, in January 2023 I was trying to build 7 sources of income. It helped me hit my first 6 figures, but I was doing everything poorly. I had no time and felt spread thin. So I doubled down on digital products because the idea of leverage fascinated me. My audience wanted my writing system, so I created High Impact Writing. May 2023, I had my first 6 figure launch. September 2023, I had my second. As a result, I began to get noticed. I was invited on my favourite podcasts. I connected with incredible creators. This unlocked a leap in progress that has steadily climbed since.
+Premium is a bet.
+It takes time, but it's time well invested. I had an element of luck with High Impact Writing. A lot of people were interested in growing on social media. But at the end of the day, if I didn't take the product seriously, it would never have happened. The same is true for your offer. I can't make promises. But I can tell you that if you FOCUS on making your offer one of the best, something will happen. It might be something small like getting referrals from your clients (I have friends who grow their business entirely through referrals--no social media required). Or it unlocks a reputation to build communities, cohorts, and products. But the most important part? What you will learn in the process.
+The Business of Writing Page 67
+
+
+Because pushing for premium isn't a walk in the park. It will test your creative and entrepreneurial spirit. The skills you earn from aiming higher will set you up for decades to come. So how does this look in execution?
+Refine and relaunch
+In 2003, British Cycling hired Dave Brailsford. He applied "marginal gains"--tiny 1% improvements everywhere, from bike seats to pillow quality. This relentless iteration took them from the worst to the best within 5 years. You want to apply the same approach to your journey.
+You have two areas where relentless iteration leads to exponential results: Sales Fulfilment
+The Business of Writing Page 68
+
+
+When you break every step down into their components, you can begin improving them.
+For example, the sales process will include your:
+Outreach (how much time do you set aside for conversations? Are you speaking to the right people? Saying the right things? If you want help here, check out my training Social Selling Simplified--this is with an expert at social sales. Discovery calls (excellence begins in the first call. Are you chasing clients? Or do you ooze authority?) Follow up process (most people think `follow up' means more DMs. But what about adding value? Sending useful links? Giving without expectation?)
+And that's not to mention inbound, like creating a salespage and VSL (but don't do this yet--great copy comes from understanding your reader and an excellent offer).
+For fulfilment, you can improve every single interaction with customers.
+From onboarding to the final case study call. Remember our seduction promise? Status, speed, simplicity, surety, at a steal.
+If you can...
+Improve their status (deliver a bigger and better result) Make it fast (remove friction) Make it simple (remove complexity) Guarantee the result (remove risk of failure) And make them believe it was a no-brainer
+An offer goes from `yeah yeah' to `I am so glad I bought this'.
+Let me give you a basic example from my business.
+I sell a one-off `Clarity Call'.
+I charge $1,000. That's a lot of money, but I've sold over 70 of these calls, and I'm yet to have a single disappointed customer.
+Here's what I did:
+1. I wrote out the Clarity Call process 2. I asked myself: What can I do to make this easier, faster, and more effective
+(for me and my customer)?
+The Business of Writing Page 69
+
+
+It went from `book a call' to:
+After purchasing, you get an automated email with a questionnaire and a Calendly link to book at a time convenient to you I review this questionnaire pre-call & take notes (because I hate when I buy someone's time and they spend 30 minutes of it trying to find out what I need) I follow the exact same call process (based on what has worked for me in the past) My VA sends them the recording, plus action points, plus bonus resources I mentioned on the call--within 12 hours. This email also has a testimonial request, and a `book back in' option My VA runs the call transcript through a series of AI prompts to extract all content ideas (remember the content-client flywheel email?) We follow up 3 weeks later to see how they are getting on.
+So the call is low-friction, high-output, and 10x more professional than my competitors.
+Begin with bottlenecks
+One mistake I make often:
+Fixing what is easy.
+Sometimes I'll spend 3 hours on an AI prompt that saves 10 minutes a month, when I could've built something that adds thousands of dollars of revenue.
+Business is about solving big problems--for you and your customers. For example, I avoided hiring a full-time VA for months because I didn't know how. But my lovely assistant Vim has become a cornerstone of the business. She saves me at least 20-30 hours per week, and is in charge of every non-creative aspect of our mission.
+So I get to write more, and have more time and energy for the highest-leverage work.
+Set aside one afternoon per week for improving your processes.
+At first, nothing will happen.
+But 6 months of improvements will catapult you from linear to exponential results. And that's where things become fun.
+And on that note...
+The Business of Writing Page 70
+
+
+Become the best in public
+As you improve your business, document the journey. Many people want to wait until they have succeeded to begin sharing. But this is madness. Building in public is like pouring gasoline on the spark of your reputation. It makes you unique, useful, and undeniable. And it attracts people who want to work with you, too. The key is to create a consistent cadence and tie your Building in Public posts to your One True Fan's desired transformation. For example, I share a monthly business report that many entrepreneurs reach out to tell me is excellent. That's just because it's different, and I'm being open and honest. How will you share your journey?
+With proof, comes power.
+The natural by-product of iteration is happier clients. This gives you more proof. And because you are tapping into the Client-Content Flywheel, you create more demand. As demand exceeds your ability to supply, you can charge premium prices. And premium prices gives you premium positioning. Like Dan Kennedy once said:
+There is no advantage to being second cheapest. But there is for being the most expensive.
+The Business of Writing Page 71
+
+
+And so here's what I want you to do: 1. Nail your service for your first 3 clients 2. Collect their feedback and testimonials 3. Turn this into content 4. Iterate on your offer 5. Relaunch at a higher price A note on the final point. Price raises drive action. When you reach out to prospects, say you are taking on the next 3 clients after nailing it for the first 3. Increase the price, and explain it will increase again after this round because it is becoming more popular. The proof makes the pitch more persuasive. You may even find that people who said no previously say yes now. This is how your business gets off the ground. The first 3-6 months were about building the runway. Now it's time for takeoff. And this sets us up for the most important part of your business: email. Catch you for the next lesson.
+The Business of Writing Page 72
+
+
+TBOW 11: WHY EMAIL IS YOUR MOST IMPORTANT ASSET
+(AND HOW TO GET STARTED)
+My dad's big head fills the screen. He always holds the phone at a funny angle. "I'm going to do it." He said. "I'm going to retire." He had been considering this for months. I wanted him to, but we're proud Yorkshire men. I knew he could only make this decision himself. But then he said something that shocked me: "And I have you to thank." I tilt my head, frowning. "That last email you sent really got me thinking..." As a writer, this is the ultimate version of daddy's approval. I basked in the glory. And that's what we're here to talk about. Not my deep need to be loved by my father. I'll save that for therapy. But your deep need to start your email list.
+You can read the email I sent here.
+The Business of Writing Page 73
+
+
+The power of email
+On social media, you are a slave to an algorithm. Your content dies after a day, a brief flash pan of existence in the sea of noise. You have no control over who sees what. And your creative freedom is limited, too. Because `what works' is often braindead templates that make you as interesting as a plank of wood. Email is the opposite. You get to build your own world. Write in your own style. Curate a quality audience. You can share stories without worrying about what hook is working on social media. And you can automate your best emails so that your business grows without you being stuck on a treadmill. It's also incredibly profitable--so a good win-win. For example, I have over 280,000 followers, and my list is 33,000 readers. When I launch, I promote relentlessly on social media. Yet 90% of my revenue comes through email. The fact that you can build a business by sending emails is a writer's wet dream. And despite it being the most stable part of online business (it's referred to as the cockroach of the internet), it is entirely overlooked. And overlooked means opportunity.
+Build your list.
+If there's one lesson I want you to take as you build your list, it's this: Your newsletter is an exclusive membership area. Not an `everyone welcome' club. As someone who began as a `social media guru', this was difficult for me to grasp. But you can build an incredible business with 1,000 quality subscribers. Especially with premium offers.
+The Business of Writing Page 74
+
+
+But people treat their newsletter like they do social media: Low thought, low effort. This is madness. The inbox is the most personal place for communication. Especially today. People are realising that social media is a highlight reel of crap that rarely makes us feel good. But entertaining, quality emails are unexpected. You want to earn your place at the top of someone's inbox. And you do this by making them feel special. We'll discuss writing emails in the next chapter. But the first step?
+Give your audience something they want.
+So far, we have focused on content and conversations to grow your business. But now you have a validated offer, you can swap your social media call to actions from requests for clients, to offering something in exchange for email.
+The Business of Writing Page 75
+
+
+Because email is just having conversations at scale. But if you simply ask for people to join your list, they won't. So you create an `Authority Asset' in exchange for their email. An Authority Asset is a quality resource that kickstarts a deep relationship with your reader. This doesn't mean you write a book (yet). Because quality isn't about size (I tell that to the girls all the time).
+Quality is about solving a bleeding neck problem.
+Which problem is simple: What is an early, bleeding neck pain point for your clients? For example, my clients usually suck at writing when they start with me. So I created the SUCKS Framework which helps improve their copy.. They also struggle with what to write about. So I built the 5 pillars of magnetic writing content plan.
+Create your club
+If your newsletter is an exclusive club, your Authority Asset + CTA is like the bouncer at the door. It will filter for your fans and repel your haters. When your assets solve an early problem of your Transformation Promise, everyone who signs up is `problem aware'. So when every email is story-driven about their journey, you have an incredible magnetic pull. And that, is when the party begins.
+The Business of Writing Page 76
+
+
+Start your list (I use Convertkit). Create an authority asset. Whip up a landing page. Here are a few of mine. Post CTA's underneath social media content And then here's a crucial final tip: message everyone in your audience. Tell them you've built something cool and will be sending out weekly emails regarding your Transformation Promise. This will give you much needed momentum on the start of your list.
+As a reminder, I gave you a newsletter growth strategy training as a free bonus for downloading TBOW. You can watch it here
+The Business of Writing Page 77
+
+
+TBOW 12: HOW TO WRITE PROFITABLE, ENGAGING
+STORY-DRIVEN EMAILS
+London. May 2025. I'm at my first business mastermind. One guy just finished presenting. His business was 2 months away from ruin, his revenue as dry as the sahara desert. I've kept quiet throughout the day. I still consider myself a rookie entrepreneur. But now my hand creeps into the air. He looks at me. "I think I know your problem. You're sending a weekly newsletter, right?" He nods. "And you said that's like a round up, some tips, useful links etc?" He nods again. "Yeah, that's a load of shit." Everyone's listening now. "This `value-based' newsletter is a trap. It works for brands with big lists who monetize through ad slots. But they are terrible for your business. They don't build a bond. They don't set you apart. And they don't build any buying desire." I sit back, playing with my pen. "I bet your business would take off if you just sent story-driven emails about their problems." I can say this confidently because I have been there. When I started my newsletter, I'd take 4 hours to write emails that made less noise than a mouse
+The Business of Writing Page 78
+
+
+But I've sent close to a thousand now. And some emails have made over $20,000 dollars in just 45 minutes of writing time. Here's what I wish I knew 3 years ago:
+The best emails are magnetic.
+They don't bombard people with links. Nor do they just relentlessly pitch offers until you've pissed off every reader. They are simple, seductive, and conversational. Let me run you through the 6-step Magnetic Email process.
+I also recorded a YouTube video where I write an email live using this process. You
+can watch it on my channel.
+Step 1: Prewrite a Plan
+The best emails focus on the Rule of One (remember--focus!). They:
+Share one story Solve one problem With one solution And pitch one offer Plan before you write and you will hit the mark.
+The Business of Writing Page 79
+
+
+Step 2: Set the scene
+Every email should begin with a story. For three reasons. Stories:
+1. Destroy skepticism 2. Create emotion 3. Are fun to read People don't act if they don't believe you. People don't act if they don't care. And they don't keep reading your emails if you don't delight them. So to set the scene, we start with a story that ties to the problem and desire your One True Fan cares about. Consider this chapter (I write these like I write my emails). I began with a specific moment in time (specificity is the secret to seductive storytelling), then explain the risk of crap emails vs benefit of good ones. I've earned your attention. Now I need to deliver.
+The Business of Writing Page 80
+
+
+Step 3: Prove your point
+Your point is the `value' of an email. My rule is that someone should find an email useful regardless of it they buy. This way, you don't `burn and churn' your readers. Value is an idea that changes how someone thinks, feels, and acts. To keep it simple, I follow a 3 tap process. State your point, explain your point, then support it with proof. Proof is not necessarily a testimonial. It could be clear examples, metaphors, analogies or anecdotes. A point without proof is powerless. But an email that starts with a story, then proves a point? Unique, useful, and undeniable. Which sets us up for the pitch.
+Step 4: Ask for action
+Every email should ask for action--for your offer, or to reach out, check out a link etc. Why? Because we want to build a habit of engagement. Plus, you want to get good at selling at the click. The key to getting people to take action is to provide a REASON WHY. Which has 2 components:
+The benefit of the action Why it is important now For example, if I just say `sending emails is important' it ain't compelling. But if I say that quality emails will set you apart from your competitors, which means more clients without cold outreach. And that the internet is only getting noisier, so the earlier you learn, the more advantage you earn? You're probably going to click the link. But if you don't...
+The Business of Writing Page 81
+
+
+Step 5: The polite P.S.
+The P.S. is a second shot at winning the click. A simple way to nail it is to ask: what objection does my email create? For example, let's go back to the dating world. Say I write an email about why you need to approach more girls and it's all about reps. An objection would be, `I am too scared'. The P.S. would highlight that you're only scared because you're overthinking the start. You need a playbook. And by the way, my offer has 17 proven conversation starters for you. You want to have the conversation going on in your reader's mind (which is why empathy is key!). And finally...
+Step 6: The subject line
+I like to write subject lines last to make sure they fulfil the email promise. The best are a combination of curiosity and desire. "This is the secret to becoming an A-player at picking up hot girls." Hard not to open that if you're dating, right? Now, note:
+The point of a magnetic email is NOT to teach.
+It is to motivate your reader to learn. You explain the what and why but not the how. When I work with clients, they often struggle with this. They think teaching = value.
+The Business of Writing Page 82
+
+
+But you ARE providing value. A story is valuable because it is entertaining. Your point is valuable because it is a reframing. Your pitch is valuable because it encourages action--the precursor to change. Overteaching serves no one. Because most people will flick through the email, think, "Hey that was useful." ....Then never read it again. Your offer is where the true teaching happens. Because when people pay, they pay attention. Think of it this way:
+Social media is the lighthouse that guides people to your shores Your authority assets are the beaches - a taster of what life is like in your world Your emails are the seaside towns, which readers can explore to see if they like your vibe Your offers are the inner island. Your most expensive program is the fortress for your diehard fans. Today's task?
+Start sending a weekly Magnetic Email
+You'll suck at first. But repetition gets results. And few people write like this, which means once you start nailing it--you will skyrocket to the top your niche as someone useful, unique, and undeniable. As a reminder, check out the YouTube channel for a live writing demonstration.
+The Business of Writing Page 83
+
+
+TBOW 13: HOW TO SCALE YOUR BUSINESS TO 6
+FIGURES AND BEYOND USING THE LADDER OF LEVERAGE
+My finger hovers the mouse. I give it one last thought. Click. And so the next chapter of my life begins. It's July 2025. I landed in the UK yesterday after a month exploring Barcelona and Norway. The email I sent? My 2-month notice on my flat. The purpose of the trip was to decide if I wanted to travel the world or keep working from home. Maybe it seems like a no-brainer choice, but I've loved the intensity of monk-moding in the UK. I know if I keep up this pace, my business will skyrocket. But sitting in the fjords of Norway, I got some much needed perspective. I don't know about you my friend...
+But I'm building a business to live a great life. I don't live my life to build a great business.
+Yes, I want to make money. But I want to make it meaningfully. I want to make a real impact and master a creative skill. And I want to explore the world as I do it, too. So I've prioritised one thing over the past 3 years so I can `have my proverbial freedom cake and eat it.'
+The Business of Writing Page 84
+
+
+Climbing the Ladder of Leverage.
+Leverage is your ability to get more done with less. I hated being a dentist because my output was tied to my time. I only had two hands and drill. But as a writer, you have two incredible levers: Your mind and the internet. Combine both and you can achieve staggering things (without needing to work 24/7).
+The Business of Writing Page 85
+
+
+The 5 pillars of leverage
+
+Leverage is the key to freedom. It's how two people can work the same hours yet one struggles to get any momentum whilst the other shakes off the shackles of society.
+Online, you have 5 sources of leverage:
+1. Profession 2. Presence 3. Product 4. People 5. Process
+Let's unpack each.
+
+Profession
+
+The better you get at what you do, the more people pay attention and the more you can charge. To quote Cal Newport, the aim is to be so good they can't ignore you.
+In today's sea of ever-increasing noise, mastering your profession isn't just important. It's essential.
+Because the reward for going from the top 10% to the top 1% isn't 10x. It's more like 1000x.
+So find what you love and let it consume you.
+Commit to your craft.
+
+Presence
+
+Presence is fame. But there are different types: not all good.
+
+The Business of Writing Page 86
+
+
+For example, I recently saw TikTokers drinking desert out of a toilet, which quite literally stinks of desperation. I'm sure we humans have been doing stupid stuff for attention throughout the ages, but the internet has intensified the clown show.
+Presence is being well-known for the right reasons. Think of it as reach multiplied by reputation. To build presence:
+Dominate your primary social media channel Add more channels Create Authority Assets Feature on podcasts (or start your own) Overdeliver at every opportunity Presence is why the internet is so powerful. The scale is staggering. For example, when I wrote an email 3 years ago, only 300 people would read. Now, 33,000 do--the size of a small town. And yet the time to write an email has remained the same.
+Products
+Product is your offer(s). We spoke about improving your primary offer previously. That process is leverage: a strong offer creates outsized returns. But the issue with a premium 1-1 offer is that only 0.1% of your audience get access to you. The aim is to add more product at different price points/access levels.
+The Business of Writing Page 87
+
+
+This can include: Cohorts Communities Group coaching programs Digital products Software
+Solving problems at scale is the key to freedom.
+So, once your primary offer is excellent and you have more demand than you can handle, start creating leveraged offers. Because there's something special about selling something not tied to your time.
+Process
+Process is combining systems, software, and automations to achieve staggering output without you needing to work harder.
+My rule of thumb:
+For everything you do more than once, make it easy to do again.
+Let me give you an example.
+I run my entire business on Notion (as a reminder, you have the Dashboard as a free bonus for this asset. When I write a social media post, my VA uploads it to X, IG, LI, and threads.
+(combining profession, people, and presence).
+Hypefury plugs my Authority Assets. When people join my emial list, they get a welcome series sharing my story and products. If they buy, they get more emails. These `Happy Buyer Sequences' add more value and pitch my other products.
+This means a 30-second tweet potentially creates 30+ hours of value per subscriber and thousands of dollars.
+...Without me lifting a finger, except for building the processes.
+Powerful, huh? I mentioned my VA, which leads me to the final point.
+The Business of Writing Page 88
+
+
+People
+I've put people last, but that doesn't mean they're least important. The exciting part about people is that you tap into *their* leverage. And trust me, if you're building a great business, people will want to get involved. Remember, a rising tide brings up all ships. You have three `groups' of people for leverage:
+Those `behind'--team and audience Those at your level--peers Those ahead--mentors For example, my business would fall apart without my VA. She handles every noncreative task so I can focus on profession, product, process, and presence. Without an audience, I would be nothing. And my peers help promote my newsletter and products, which I reciprocate. Every mentor has helped me make leaps of progress. You pay for their wisdom, the result is speed. The key to people leverage is to master the art of the `win win'. Be generous, selfless, and hardworking. The world will reciprocate.
+Leverage rewards the patient.
+You might be wondering where to start. My advice is to follow your curiosity. For example, I have a friend who is fantastic at networking. As a result he has many opportunities on his doorstep. I suck at networking but I love writing. So I followed the presence path first. Curiosity is key because leverage takes time to build. If you love what you do before the results roll in, you become unstoppable when they do. The next step is to fix your bottlenecks, the areas holding you back.
+The Business of Writing Page 89
+
+
+For example, if you're making 6 figures with a 1-1 coaching service, perhaps it's time to add a product so you can disconnect your time from income. Or if you are excellent at your craft but have no audience, sprint on social media for 3-6 months. Because profession and presence combined is a huge unlock. Think of leverage like a ladder. The higher you climb, the more beautiful the view. In the next chapter, we'll wrap up with 3 of my favourite ideas on becoming an entrepreneurial writer. But for now... I gave a live training called the 5 pillars of leverage last year. It was for customers of High Impact Writing. But you can get it here for free. It's deeper dive into what we've just discussed. Leverage is the key to freedom.
+The Business of Writing Page 90
+
+
+TBOW 14: 3 TIPS TO HELP YOU BUILD YOUR
+DREAM WRITING BUSINESS
+I hope you've had as much fun reading this e-book as I've had writing it. Please reach out to let me know, your feedback is my validation :) Today, I want to wrap up with an overview of the Magnetic Writing business model-- then 3 tips to help you nail it.
+The Writing Business in a Nutshell
+We've discussed building the Magnetic Writing Flywheel.
+A flywheel is a mechanism that spins faster and faster with more input. The key behind the flywheel is focus. If you want this writing gig to work, you must commit to the Rule of One:
+Write to one person Solve one problem Create one solution
+The Business of Writing Page 91
+
+
+This is why we began this series with your Transformation Promise--the umbrella under which everything you write and build falls. As a reminder:
+I help <One True Fan> <achieve transformation> so they can <big benefit>.
+When everything you write focuses on this transformation, you will escape commodity creator hell and begin attracting people you can serve. Which leads us to the first component of the flywheel.
+Reach: Your Social Presence
+You have two jobs on social media: Content and conversations. Content builds your reputation, and conversations attract clients. For content, follow the 5 Pillars of Magnetic Writing:
+Practical advice Polarising ideas Personal perspective Predictions Proof You can read a free e-book on the topic here.
+Proof is the most important for starting and scaling your business. So create an offer plan, find people to help. Begin for free if need be. Then lean heavily into client interactions to show you're the real deal. This Client-Content approach is also a flywheel: The more clients you work with, the better your content, the more clients you attract. Remember, the aim is momentum, not money.
+The Business of Writing Page 92
+
+
+Relationships: Build Your Island
+
+Get 5-6 paying clients from social media.
+
+This phase requires hustle, but it is the foundation for freedom. Once you have momentum, begin building your email list. Take an early problem/solution from the program and create an Authority Asset. Collect emails in exchange.
+
+Now everyone on your list is `problem aware', so write about their problems!
+
+Send story-driven emails to show you are worth investing in.
+
+Lean into: Personal stories (show who you are) Client stories (show how you can help)
+
+Write a weekly newsletter following the Magnetic Email format (check out the video on my YouTube channel). Once you've written 4, turn it into a welcome sequence. Keep adding to this sequence each week.
+
+Make sure every email pitches your service.
+
+The result?
+
+You have a machine that creates reputation, relationships, and revenue on autopilot. Then the key is to keep sending quality emails as you build your presence. Overdeliver by creating more Authority Assets. Feature on podcasts. Film long-form video.
+
+Trust is the aim of the game.
+
+The Business of Writing Page 93
+
+
+Revenue: Your Service
+Business is about solving problems.
+The more problems you solve for your One True Fan (and the better you do it), the more they will see you as THE writer for them.
+Your premium offer is an exclusive 1-1, which is where we began. Once this is running smoothly, you will have a fantastic understanding of your One True Fan--plus a bucket of proof to show you can serve.
+So now we can think about adding higher-leverage solutions: Cohorts Communities Digital products Group coaching programs Masterminds Software
+The key is not to spread too thin, too fast.
+Most people want to rush into products.
+But the more scalable the solution, the less you can charge. And the less you learn about your audience. If you have a small audience, focus on people first. Run group offers that unlock more revenue but also make you a master of service.
+Because the writer who understands their audience most, wins.
+Then you can build a digital product from the live material, and have complete confidence it works.
+Whatever you build, document the steps and lean heavily into systems.
+Hire a VA to handle the non-creative work. Create a customer journey that pulls your One True Fan deeper into your world. And now, the more you write, the more you earn.
+This flywheel will take you somewhere beautiful if you execute it well.
+So let's wrap up with 3 tips from 5 years of writing and building a 7-figure business.
+The Business of Writing Page 94
+
+
+3 tips to succeed as a Magnetic Writer
+1. This is a marathon, not a sprint.
+There are no guarantees of success, but refusing to stop sure hells. The truth is this gig is hard. As is anything worthwhile. You'll have knockback after knockback. You'll wrestle with constant fear, doubt, and uncertainty. Most writers burn out before the game gets good.
+Treat everything as an experiment. You can't fail an experiment. You just gather data on what didn't work. Eventually you look back and realise every effort adds up. So expect results in 2 years, not 2 months. Leading us to point 2.
+The Business of Writing Page 95
+
+
+2. Don't follow the crowd, follow your curiosity
+Curiosity is a writer's north star. Most people get stuck writing about shit they don't enjoy, building offers they aren't passionate about, creating funnels that aren't fun. And that's why most people fail. Curiosity is the most underrated tool for success. If you give it the reigns, you will work from a position of abundance. You will have a deep-seated joy because you are not attached to the outcome. Ironically, online, that leads to the best results. The Internet rewards the obsessed. And nobody can compete with you if you're having fun. So find what lights you up and let it consume you. And share the journey as you go. Action attracts authority.
+3. Commit to the craft
+If reach, relationships, and revenue create a powerful engine--writing is the fuel that powers the machine. The more you write, the clearer you think. The sharper you communicate. The better you build. And so commit to the craft. Don't hire a ghostwriter or rely on AI. Because writing is not about putting words on a page. It's about the person you become in the process.
+The Business of Writing Page 96
+
+
+You will become a great guide, leader, and pioneer. And I promise, you follow the strategies we've just discussed, execute with a smile on your face, and keep serving your audience... You will be a Magnetic Writer. Can't wait to see you kill it, Kieran
+The Business of Writing Page 97
+
+
+THANK YOU!
+Thank you so much for reading The Business of Writing. I've given you plenty to chew on. And I hope the meal tastes fantastic. But ideas are cheap. It's the execution that matters. So I'd love to hear how things go for you. Please reach out to kieran@kierandrew.com and let me know what you are up to online. I reply to every email--so if you have questions, fire away.
+Where to next?
+I've tried to cover as much as possible. And I have several assets for you that will help you go further, faster. It will depend on what you are struggling with, so here's an overview.
+High Impact Writing
+If you want to attract a quality audience for your business, check out High Impact Writing. Over 2,000 students have picked up this course. It is a 101 for creating magnetic content. You'll get the fundamentals of good writing, and see how to attract your Audience of True Fans through social media.
+
+
+Magnetic Emails
+If you want to grow your newsletter, you will love Magnetic Emails. This is a blueprint for writing story-driven sales emails. But I also include everything you need to start and scale your list.
+Productize Your Knowledge
+If you want to dive deeper into monetization, check out Productize Your Knowledge. I show you how to go from `I'm not sure what to build' to creating an offer, delivering it live, and building a digital product.
+My Personal Swipe Files
+I save every good piece of content I see. I've collected over 3,000 social media posts and 300 emails, and I add to these files each week. If you struggle with writer's block, this will help massively.
+AI Vault
+I do not write with AI, but I am obsessed with integrating it into my business for more speed, productivity, and output. I save every prompt I use in one easy-to-use database, with walkthroughs. This has helped me make over $500k/year with one VA. You get lifetime access, and I continue to update material as I make progress myself. Otherwise, don't hesitate to reach out. To your freedom, Kieran

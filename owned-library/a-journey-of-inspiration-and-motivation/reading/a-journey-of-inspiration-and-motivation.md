@@ -1,0 +1,362 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB/PDF). -->
+Source file: motivation-journey07.pdf
+Title/Edition: A Journey of Inspiration and Motivation; Josh Hinds; owned copyright — personal use, do not distribute.
+
+A Journey of Inspiration and Motivation By Josh Hinds
+www.GetMotivation.com
+A Collection of motivational and Inspirational Essays
+About The Author
+Josh Hinds - Speaker, writer and teacher on topics relating to personal and professional development.
+He founded GetMotivation.com and publishes a free newsletter called Let's Talk Motivation! Since the site began well over 1 million visitors have taken advantage of the articles, advice and resources that are available. He also runs several other sites including: BusinessNetworkingAdvice.com, SalesTrainingAdvice.com, GoalsSuccess.com and a member's site he cofounded at AudioMotivation.com.
+Josh is a firm believer that if one has the desire or dream strong enough, no matter what obstacles may be in the way, there's almost always a work around to achieve success in that given area. The idea that there's always a work around even if the solution doesn't always appear obvious is something that Josh put into practice in his own life to get to where he is now.
+Josh practices the simple belief that opportunities open themselves up when you lead with a sincere willingness to help others.
+Table of Contents
+� A Quick Tip for Strengthening Your Personal Network � Seek the Council of Qualified Mentors � Making the Choice to Identify What Brings You Happiness
+
+
+� Simple Steps Make a Big Difference � How to Use the Power of Positive Self Talk � Reasons for Keeping a Journal � Using Visualization as a Tool for Achieving Your Dreams � Advice on Building Up Your Motivational Muscles � Make the Commitment to Take Action � Success is a Journey � There is Strength in Numbers � Build Your Dream � Living Beneath Your Means Isn't All Bad � Following Through On Your Goals � Beware of the Effect Negative People can Have on You � Model the Success of Others � Don't Be Afraid To Chase Your Dreams � Two Key Success Ingredients � Remind Yourself That You Are Special, Talented and Gifted � Surround Yourself with Supportive People � Dealing with Procrastination � The Power of a good success story -- Fuel to move you forward in
+the pursuit of your own goals and dreams � Saying Thank You Works ... What a Concept � How Do You Measure Success? � The Myth of Perfect Timing � Your Action Will Fuel Your Achievement � Don't Cling So Tightly To The Past � Do You See the Positive Side of Things? � A Proud Uncle, Entrepreneurship, and Nickel Bookmarks � You've Got to Be Willing to be Uncomfortable Sometimes � Count Your Daily Wins � Keeping the Kinks Out Of Your Goal-Setting Plan � It Doesn't Always Take Money Honey! � Quotes to Ponder...
+2
+
+
+A Quick Tip for Strengthening Your Personal Network
+Whether or not we realize it each of us has a network that surrounds us. Simply put these are the folks that we come into contact with both in business relationships and our personal lives. The key then is to continuously develop and strengthen them...
+I truly believe it is wise to understand that the strongest networks are generally built because both people benefit from the relationship (it's about win, win). The rule is simple. Give more than you expect to receive.
+Luckily, an interesting thing happens when we apply this simple principle. Our network naturally grows stronger. Why is that you ask? The best reason I can come up with is that people, as a rule like to help those that help them. With that said I'd like to share a simple Idea that works wonders in building solid networking relationships.
+Look for ways to solve people's problems. Say for example someone asks about a particular product or service. Later in the day you run across something directly or indirectly that might be of value to that person. What you could do is copy the info and send it on to that particular person with a little note that says something to the effect of I hope this was helpful.
+The important thing to remember here is that we're not choosing to do this because we necessarily expect something in return. However, through offering the help we are strengthening our influence in the mind of that person. Again I can't stress enough here that the best way to put this into practice is to allow the natural law of "you help me, I'll help you" to come into play. I'd love to hear your ideas on what works for developing your personal networks.
+Seek the Council of Qualified Mentors
+Chances are you're already sold on the value of having a good mentor on your side. In an effort to make such relationships even more rewarding I'd
+3
+
+
+like to suggest focusing a bit when it comes to choosing your mentor relationships...
+What I am suggesting is in addition to the mentors you already have in place be sure to include people from the same career field, classes, college major, business owners and entrepreneurs, etc. that can offer ideas that apply directly to your situation.
+First hand experience has taught me the value of having such peer groups in place. I'll use the particular example of when I was first starting my motivational newsletter. When I started out I had little more than an idea. Had I not been able to build relationships with other newsletter publishers things might never have gotten as far as they have :-) I can't even begin to list the many ideas I have received as a result of having these folks to tap for advice and support.
+While I used the example of the newsletter the same principal applies whether it be starting a new business, finding a study group, dealing with the loss of a loved one, or just about anything else we're faced with.
+My friend, people are out there that have at least to some degree been in our shoes. They've walked before us. I encourage you to seek them out. Not only will we gain strength from their experiences, but we get the advantage of sharing our strengths with them as well.
+Making the Choice to Identify What Brings You Happiness
+When was the last time you really looked for the things that bring happiness to your life? More importantly when was the last time you did a comparison as to whether or not you were practicing doing the very things that bring you a feeling of happiness? If you can't recall the last time you're not alone...
+Most of us have at least some basic idea on what brings us happiness. Even if you we have never specifically pondered the topic we still recognize (at least to some degree) that which gives us a sense of achievement. If it has
+4
+
+
+been a while, or you never have given thought to this subject before I'd like to encourage you to do so now.
+Perhaps you derive the most happiness from being with family or friends. Maybe it borders more along the lines of learning new skills or diving head first into a project until you've completed it.
+Whatever it may be I do hope you'll take the time to list the things that give you a sense of achievement and happiness. After you've listed them it's time to take action. The problem so many of us have is getting our "lists" past the point of simple lip service. Simply put, if we're not careful we wind up with little more than plan after plan that never had any real action placed behind them in the first place.
+Now the question is how do we work our plan? The exact steps of the plan must be left up to each individual. I have said many times before that selfimprovement works best when we take active steps in the process. Meaning we can take the ideas of others, but we must in some way make the ideas our own.
+Looking at your list carefully ask yourself how often you let yourself indulge in what truly makes you happy. Be truthful here. This is a private exercise and no one except you has to know the answer. There is a good chance that you've determined that you don't give yourself ample time on some of the things you've identified. I think we're all a bit guilty of this at times. The key here is that we need to give plenty of time for such things.
+Not only to increase our own happiness, but because it is during these times that we build enough energy to take us through the more mundane tasks that life requires of us. I hope that after this exercise you've identified a few things that you can make a more regular part of your day.
+Simple Steps Make a Big Difference
+Make yourself a plan detailing the things you'd like to see manifest in your life. Once you've got your list together take it a step further by writing the steps you think are necessary to reaching your intended goals.
+5
+
+
+Be sure you keep in mind that the journey might take you in different directions at times. Your list should help to keep you in check and moving towards the things you've identified as important for yourself...
+Each day take at least one active step towards making these things happen. Don't fall into the trap that so many do. Make sure your planning is met with action.
+I have a strong feeling you will be amazed by the results. Above all else be sure to take the time to enjoy your life along the way.
+How to Use the Power of Positive Self Talk
+How do you talk to yourself? Before you think I have gone off the deep end here let me explain what I'm referring to. What I am asking is what type of inner dialogue do you use when you're pondering your goals....
+Do you use terms like "I will" or "One day very soon I will". The problem with this is that while our intent is there, it's not normally enough to get our intended desires embedded in our subconscious minds as deeply as it needs to be. When the things we want reach our subconscious mind very powerful things begin to happen.
+Suddenly we begin to take notice of opportunities that might not have revealed themselves before. Essentially we've programmed our subconscious mind to bring forward the very things we want to achieve in our lives.
+Back to our dialogue... Rather than saying "I will work on my goal of being the top in the class", say "I am doing what it takes now to be the top in my class" (and be sure that you are in fact putting forth the effort). I am certain you'll be amazed in the difference that taking on this inner dialogue will bring you. It is true that this technique alone may not allow you to reach the top of the class, but it's certainly going to get you a lot closer than if you don't.
+6
+
+
+In the end self-improvement is all about trying new things... taking ideas that work for you, and discarding those that don't resonate with you. It is my sincere hope that this is one such idea that you find helpful.
+Reasons for Keeping a Journal
+Chances are you at least keep track of your daily tasks in some form already. If not, what are you waiting for? There's an old saying that says "How can you know where you're going if you don't know where you've been?" In the unlikely event that you're not into such sayings let me offer up a few more reasons to keep a journal. Reasons for a journal 1. Better able to track our progress. 2. A place to keep record of our goals and dreams. 3. Gives an excellent pick me up when we feel we're not making ample progress. 4. Makes an excellent sounding board. 5. Super place to record that idea for later recall. 6. Allows us to review over a long period of time and see where we can make changes. 7. Offers us a written record of events. The list of reasons is never ending, but I think you get the picture :-) Don't underestimate the power of keeping the progress your making in the pursuit of your goals. It's an absolutely vital step in reaching that which we desire.
+7
+
+
+Using Visualization as a Tool for Achieving Your Dreams
+Visualization can be applied to just about anyone's intended goals. Why is it that it works so well. My friend that is the $64,000.00 question! The best I can figure is it allows us to more clearly see that which we want to transpire in our lives...
+For example, you tell me you'd like a new car. By itself it's just a car you want, certainly not exciting enough to drive you towards your goal is it (excuse the pun :-)? Guess what, it's likely not exciting enough to make your subconscious do the things it needs to do to move you towards that goal either.
+Instead, try adding a little visualization to the statement. See yourself shopping for that new car... It's red, or perhaps black (or whatever color most appeals to you). It's the perfect size to take your children to little league or maybe spend a night out with friends.
+See yourself driving around town in your new vehicle and having a great time! You see my friend, with the right amount of visualization applied to our goals; we allow our minds to see objects as real things that are indeed reachable.
+Visualization can be applied to many areas of your life, and be just as effective. You say you have a meeting with the CEO of the company? Try running through the meeting in your mind. Imagine it going extremely well! Make it as real as possible in your mind. Applying visualization techniques helps to subconsciously program ourselves for success.
+Advice on Building Up Your Motivational Muscles
+Trust me when I tell you I haven't gone off the deep end here :-) Just as we run, work-out, or exercise to build and condition our muscles and to get in good physical health, so can we condition our mental muscles...
+8
+
+
+I am a firm believer that each of us can condition our days by introducing positive actions. Unlike its sister physical conditioning... Positive conditioning won't even leave you feeling all sweaty!
+So now the question is how do we do this... here are a few tips that I use and may work for you as well...
+1) Make your vehicle a success classroom! Keep a healthy supply of positive books on tape handy. Anything you've wanted to learn can be done in the same time you'd normally be listening to the latest top 40 hits.
+2) Keep a good book handy... again approach this from a standpoint that each time you dedicate to reading something positive you're actually building up anti-negatives if you will.
+3) Be *sure* and keep a personal success journal! This will offer you the needed fuel to be able to look back and realize that you're making great gains... particularly during times in our life where we might feel otherwise.
+Make the Commitment to Take Action
+Make a commitment to yourself that today you'll give just a little bit more on whatever you set out to do. This is something that I find myself repeating over and over. Sometimes it is easy for us to look back and think, "I am not achieving quite what I'd like at the pace I would like to achieve it"...
+This is exactly where having a paper trail in place to prove ourselves wrong is so very important. You do keep a daily journal don't you? If not then I urge you to get started now!
+The old adage is very true, if we don't know where we've been how can we know where we're going? Don't leave your success to chance. Track your progress and give ample action towards the pursuit of your dreams.
+9
+
+
+Success is a Journey
+Often times I find that I have to continuously remind myself of my past achievements in order to keep myself from becoming discouraged (yes even I get discouraged at times :-). Sometimes it feels as though life is moving at 100 miles per hour...
+Since many of my personal goals are attached to strict time frames occasionally I don't reach the intended goal exactly on time. It's during these occasions that I find that keeping a record of my previous accomplishments is quite valuable in my pursuit of my goals.
+When I get to a point where I am beginning to doubt myself I quickly grab my journal (you do keep a journal don't you?).
+As I read through page after page I am able to remind myself that just as before I was faced with various difficulties that stood in the way of the intended goals. However, by plugging on I was able to get past them. Journaling in my opinion is a fabulous way to remind ourselves that success in reaching our dreams is very much a process. One that doesn't always come easy, yet is very much worth the effort it takes to make it manifest in your life.
+There is Strength in Numbers
+Actively looking to include others in our own success is one way that will increase our own success. This does not only apply if we're in business for ourselves. It reaches deep into many other areas of life as well...
+Perhaps you're a student. You know that a class is going to be particularly hard. Given this scenario we have two options don't we? One we could go it alone and study as hard as we can or two we could form a study group! In the group we have the advantage of learning from each other. Suddenly our knowledge is multiplied by the number of people that are in our group! Now that my friend is strength in numbers.
+10
+
+
+Let's take the example of business. Suddenly I have this excellent idea, I assure myself that it will be a success, but am afraid that if I share it with others it might be stolen from me (or no one will like the idea). So I decide to go it alone. I end up spending valuable hours making the same progress that might have come faster had I looked for help! Notice I don't necessarily suggest taking on a partner or giving the idea away.
+Rather I say look for others to help you in your efforts. People will help if we simply ask. It is worth noting though that we need to be careful of those that we ask for help.
+When I first set out on the adventure of starting the motivational community site and newsletter I founded. I would ask just about anyone what they thought of my idea. Was it doable I would ask. In my heart I knew that it was. However, some of the folks that I asked doubted the idea (note: it wasn't me they doubted just the idea). Upon looking back on it now I see that what they were basing their decision on was whether or not they believed they could do it, not whether or not it could be done.
+Get advice from people who have done similar things. Make it a point to get a second opinion. Second opinions lead us to new insights that we may not have originally noticed.
+Build Your Dream
+You can call it whatever you wish, a dream, goal, life plan steps. The list goes on and on, but the important thing to remember is that whatever we decide to call it, for some reason or another we have been called to see it to manifestation. Does that mean that we're going to be able to make it happen easily? Probably not. In many cases it's going to take a lot of hard work.
+Perhaps at times your goals will appear as though they're out of your grasp. Trust me on this when I assure you that you're not alone in this feeling. It's a perfectly normal phase of the achievement process.
+The key is that you continually move towards achievement. Even when you feel you're not making progress, keep moving forward. Take the time along
+11
+
+
+the way to track your progress in a journal, or by making notes. You'll find this is a wonderful way to remind yourself that you are in fact making progress towards reaching your intended destination.
+Living Beneath Your Means Isn't All Bad
+Recently while reading a book called the Millionaire Mind I came across an interesting statistic I wanted to share here. Basically the book is based on a collection of surveys of people who have attained monetary wealth (note: I personally believe that wealth comes in many forms, certainly not just monetary ones)...
+I hope that you'll take to heart the meaning of this little statistic and find it to be as important as I do. "Out of those millionaires who strive to operate productive households, more then half (53 percent) rate living below there means as either very important or important". To me this teaches the importance of saving. Plain and simple. I hope you will do as I do and attempt to emulate this advice (and teach those closest to you to do the same). In the long run I think we'll all be better for it.
+Following Through On Your Goals
+Most of us have goals, the question is how many of us actually follow-up and work those goals through to completion. What I mean is going a step further then just writing down your goals (that's just the start). With that said the question is how do we effectively work our goals list...
+Here are a few techniques that work for me; hopefully you will adapt these to work for you as well. Add daily, weekly and monthly tasks to your overall goals. Make these tasks achievable yet enough to stretch you at the same time. The great thing about achieving our goals is as much as what it makes of us to reach them as it is what we accomplish in reaching them. The main idea is that with each accomplished task, it's taking you that much closer to your overall goal.
+12
+
+
+An equally important step is to review your goals at least once a week! It's the old out of mind, out of sight saying. Don't fall victim to it. Keep your goals fresh in your mind. If you can review your goals each day you're all the better.
+Beware of the Effect Negative People can Have on You
+Whether or not we care to admit it, associating with negative thinkers can literally tear us down over time. Association is a very powerful thing and something not to be taken lightly.
+I would venture to say that 9 times out of 10 you're more likely to move forward on ideas if you associate with people that are also achievers. By the same token, if we surround ourselves with people who constantly doubt our abilities then we begin to take on the belief that we can't accomplish what we set out to.
+I am certainly not saying that we remove all friendships with people who don't see everything as totally positive. I don't think that kind of thinking is very realistic. Rather I am simply suggesting that we remain aware of the fact that negative thinking leads towards the immediate decline in our reaching our goals.
+Whenever given the choice, spend time with those that see the glass as half full, rather then half empty.
+Model the Success of Others
+One of the easiest ways to succeed is to watch what other successful people are doing, or have done (often referred to as modeling the success of others) and then take it a step further!
+13
+
+
+I enjoy reading the biographies of these folks, not so much for the literary value as what I may learn about the person, and gain strength in seeing all they had to overcome.
+History, if studied can reveal many secrets and may ensure that we don't make the same mistakes that those before us did!
+Make studying the success of others a part of your ongoing personal development and you'll reap the rewards associated with doing so.
+Don't Be Afraid To Chase Your Dreams
+Why are we afraid to chase our dreams... why does one person find it difficult to set out and achieve that which they desire, while others can some how set out, without so much as a care in the world. What makes some people achievers, while others remain simply dreamers?
+Is it the difference in their internal makeup? Is it in the way they were raised? The environment they grew up in? When one studies the lives of "achievers" one thing becomes evident. What is it that tends to shine through in case after case?
+In my opinion the most evident factor is that there simply isn't a set pattern. These "super achievers", if you will, come from all walks of life. These folks emerge from all social classes. Varying degrees of socio-economic backgrounds. Some from affluent families, while others emerge from economically depressed areas, and all corners of the earth.
+Some of these people are college educated, others are schooled through lessons that life has taught them; the school of hard knocks. Many of these folks come from a combination of both. However; all understand that knowledge in any form is a constant thing to be acquired. Skills are constantly upgraded.
+While each of these people has come face to face with giving up, they opted to befriend perseverance, and used it to their advantage. Somehow they
+14
+
+
+found a way to overcome the point at which one wants to give up, trudged ahead and reached a point of achievement.
+Yet at the point where they were faced with challenges or adversity they moved past the challenges and reached the point of achievement. Not accepting the status quo. Choosing to move forward towards new goals, and things that stand in their path. Though they may come from vastly differing backgrounds, each has found within themselves their ability to turn dreams into reality.
+When you read this it is my hope that you take from this the knowledge that you, are just as they are. You are in fact an achiever. Just like these people you will have adversity. You may have more then your fair share of shortcomings. You may experience what seems to be at the time an inordinate amount of failure in your life.
+Even so, you are still an achiever. You have more greatness in you then you can ever know. I hope that you will choose to use the power of persistence to your benefit, as all those achievers before you have. In doing so I am certain you will accomplish much more than you can imagine you are capable of at this point in your life. Dare to dream, but even more importantly, dare to put action behind your dreams.
+Two Key Success Ingredients
+Two of the most important ingredients of success are: 1) Raw, blind ambition and 2) The carefully laid out planning of our goals. Unfortunately, too much of either one can actually keep us from achieving that which we strive for! How is that you ask?
+For starters, there's the danger that you'll plan yourself out of taking the necessary action to begin with. While on the other side of the coin, to much ambition can keep us from taking the time to refocus our efforts, thus making sure we're on the right path.
+The solution you ask? Each day we need to spend some time finding the secret mix of the ingredients mentioned above.
+15
+
+
+My friend, success is a journey, where the prize almost always goes to the folks who stay in the game the longest. May you be blessed in all your endeavors!
+Remind Yourself That You Are Special, Talented and Gifted
+Tell yourself at this very moment that you are an incredible person! Say out loud, "I am a gift to this world".
+You don't believe me? I challenge you to look around you today, look at the many positive things that have happened in your life! Look beyond your shortcomings, these are the easy things to take notice of! Instead focus on your family, friends, job, etc. Many of them are unique to you! Accept the fact that no one else is exactly as you are! Explore this, it's amazing!
+Upon looking at your life I hope you will further ponder the ideas you have or have had, the simple fact is that if you can dream them, then it is equally likely to be within your power to achieve these things!
+I hope that you will do as I do and at least spend a portion of each day trying to be the change you want to see in your life!
+Surround Yourself with Supportive People
+Surround yourself with people who support you -- This is more commonly referred to as mentoring. Call it whatever you like, but the more people you can network with the better off you will be.
+When you are developing your network make sure to choose your members wisely. One of the most disruptive things that can keep us from our success is to allow someone who is either to cynical or just plain doesn't believe you can accomplish what you set out to do!
+16
+
+
+Often it's not that these folks are being mean, more often then not it's that over the years their experiences have given them this outlook on life. Perhaps they listened to those who said they couldn't reach their dreams.
+At any rate it is important to choose only the highly motivated people you come into contact with. I am not saying that you should avoid the negative folks, but I am saying that they definitely should not be the one's you consult with before pursuing your next goal!
+Friends, encourage them to the best of your ability, but don't let them steal your dreams from you in the process.
+Dealing with Procrastination
+Procrastination - why is it that some of us seem to struggle with getting things accomplished while others appear to make light work of their to do lists?
+I have a confession to make ... I also have times (like most people) where I struggle with working on certain tasks that I know need to get done. While I do make a concerted effort to keep such moments to a minimum, there are still times when the procrastination monster is known to rear its ugly head.
+However, I should say that I don't consider the fact that at times procrastination finds its way into my life to be that big of a deal.
+Why not you ask?
+Because I understand that by simply being aware that I'm putting off doing something I can make the decision to replace what I am doing (procrastinating) with an action that will lead to my getting what I want to get done -- hence removing procrastination.
+It comes down to a simple choice. Either I can choose to continue doing what I'm doing -- putting things off, or I can choose to take an active step that will get the positive results I desire.
+17
+
+
+So what I'm saying is that while we may not ever get to a point where we totally remove the desire to procrastinate, we can choose to take corrective measures to get ourselves on track.
+You've got to remember that it is a choice that we make. Simply being aware isn't enough we also have to actually do the identified step that we know will put us on the path to the desired result...
+If it's getting up earlier then you'll have to set that alarm clock or do whatever it takes to get up and get going. Action ... even the tiniest of steps leads to less resistance.
+To illustrate my point I'd like to share an example with you...
+Just before I decided to start writing what you're reading now I was doing something entirely different. I was doing some reading when the thought popped in to my head that I should write a column on procrastination. The point to consider is this... I had several very real choices to make in that instance. Whatever choice I decided on would give me very different results.
+On one hand I could have (and almost did) made the choice to continue with my reading and forgo writing. Secondly, I could have chosen to make a note of the thought I had and simply told myself that I'd begin writing when I felt like it, or after I finished reading. Finally, and fortunately because I understand how if I'm not careful procrastination can spiral out of control I decided to immediately stop my reading and begin writing this article.
+So you see, I still had the initial feeling of procrastination -- I still felt the feeling of wanting to put something off for later, but instead I opted to work on what I felt I should do.
+Interestingly the further along I get on this article the less resistance to doing it I'm experiencing -- and so it is with procrastination. We best overcome it when we take active steps towards accomplishing the task at hand.
+Be it exercising, working on school work, a business project, or just about anything one can imagine. Do the thing you are resisting doing as quickly as humanly possible and you'll drastically reduce the times where feelings of procrastination rob you of achievement in your given endeavors.
+18
+
+
+The Power of a good success story -- Fuel to move you forward in the pursuit of your own goals and dreams
+In case you didn't know I love to read -- mainly personal development and business related titles -- but I also enjoy biographies -- particularly where the person's story is one that's filled with inspiration. The reason I tend to read mostly non-fiction is simply that I enjoy learning -- long ago I committed to being a life long learner. Hopefully this is a commitment you've made for yourself as well.
+Speaking of great biographies I just completed Jump In! by Mark Burnett -in case you don't know who Mark Burnett is think reality TV -- as in Survivor, The Apprentice, The Contender, among others. He's the producer / creator of those shows.
+What can I say; I'm a sucker for a good success story! And Mark's book fits that perfectly. The interesting thing about people who have reached a certain level of success in their endeavors is that often we assume they were lucky, or else we don't give a lot of thought as to what they had to endure to get to where they are now.
+For example, just about everyone recognizes Mark Burnett's accomplishments, but few know that when he first came to America, he was a nanny -- yes, that's right, a nanny - Hey you do what you have to when you're getting started. From his gig as a nanny he went on to start a little business selling T-shirts on the beach. Along the way he got into promoting an adventure competition known as eco-challenge, which eventually led him to start the survivor series as well as his other well known reality TV programs.
+One of the key things that stuck out in reading this book was Mark's philosophy of "jumping in" -- which is something that I myself identify with greatly. All too often people end up planning themselves out of truly getting started on their dreams. They look for the perfect time, or just the right moment, when in fact in most cases if they'd have "jumped in" and given themselves the wiggle room to learn as they go they'd be much farther towards achieving their desired success journey.
+19
+
+
+Do yourself a favor and take the time to read more success stories -- and while you're at it, you might as well start with Mark Burnett's Jump In!
+Saying Thank You Works ... What a Concept
+When was the last time you wrote a note to thank someone you did business with, or hoped to do business with? I'm not talking about the quick one second email here either. Think about that for a moment.
+Now let me restate the question from a different point of view... Have you ever received a thank you note from someone you met with, a note written not for any direct purpose or with any hidden agenda, simply one in which they had taken the time to acknowledge their genuine appreciation to you for something? I bet it made a pretty big impression on you didn't it? Of course it did... it always does.
+So why is it that so few of us make a habit of writing thank you notes? It's almost as though it is a lost art. Sad, but true.
+Now consider for a moment how easy it would be to put yourself in an otherwise enviable place in the minds of your business associates, colleagues, and prospects (and family and friends) -- by simply taking the time to send a thank you note. Trust me when I tell you it's a habit worth developing.
+There are any number of ways you can start developing the habit of sending sincere thank you notes. Anything from an all out greeting card, to a simple postcard can work well.
+For years I've used simple post cards that include my web site address on them with the words, "Thank you for your support" -- nothing fancy, but the words I choose to write always come from the heart, which is what matters anyway. Such a simple way to show your appreciation, but oh so effective.
+If you're not quite sold on the positive effects that sending thank you notes can have consider what my friend Bob Burg (www.burg.com) often says, "All things being equal, people will always choose to do business with those they know, trust and like first".
+20
+
+
+Now doesn't it just make sense to start sending out those "thank you's" starting now?
+How Do You Measure Success?
+How do I know when I am successful? Boy, talk about the granddaddy of open ended questions eh? Please bear with me though as I believe we would all do well to give it some serious thought.
+Have you ever noticed how many folks choose to equate success with a monetary figure -- they place a dollar amount on it and assume that once that figure is attained they'll suddenly feel successful.
+Unfortunately it's rarely as easy as saying that once we have x number of dollars in the bank we will somehow magically feel as though we've truly lived a life of worthwhile achievement.
+With that said the question becomes how do we get past the point where we're only equating success with a sticker price?
+Take your success personally...
+Years ago I heard success defined as, "having the freedom to be yourself" and I think that is about the best definition I have heard to date. It is the gauge I use in my own life to know whether I'm leading a successful life.
+My feeling is that as long as I have the resources necessary to move through life fully able to pursue the goals and dreams that are important to me then I am successful.
+At first the above definition might appear to be a bit open ended, but it should get you really thinking if you give it some serious thought.
+For starters it gives us the room to dream and really think about what it would take to live out our goals and dreams -- the things that we truly place personal value on -- not just those things that outside forces may deem as important.
+21
+
+
+Say for example you want to be the best parent you can be. That doesn't take a lot of money does it? (Unless you think to be a good parent you've got to have ample amounts of money to care for your kids).
+You see, the point here is not what amount of money you have, or lack there of. In fact only you will be able to decide what is enough for you and your loved ones.
+It is far easier to take our due credit for our past achievements when we're not holding ourselves up to someone else's standard. Competition isn't a bad thing, but when it's the only measuring stick we use it can end up working against us if we are not careful.
+In my humble opinion success is best measured on a personal level. If we attempt to put a frame around what we see as being successful or not -- if we view others and say, they have this many material possessions so they must be successful we're missing out.
+You see when we frame what constitutes living a successful life around those things that we personally see as valuable then we enjoy where we are now more. Life seems to offer up opportunities to us that we never seemed to notice before.
+By the same token when we set out to do the best we can do inevitably great opportunity finds us because we are doing what truly makes us happy. We're in alignment and ready for the opportunities that life will put in our path.
+Don't misunderstand me here. I'm not saying that acquiring wealth is not a result of achieving success. I'm simply saying that at best it is a result that comes from following your dreams. Working towards achieving those things that you deem to be most important. I'd also suggest that lack of financial rewards most definitely is not the only currency with which we should measure our level of success (that is whether or not we have achieved a given level of personal success).
+Keep this thought in mind: Success is a personal thing. Define it according to what you value most and you are far more likely to achieve it as well as enjoy it once you have it.
+22
+
+
+The Myth of Perfect Timing
+Perfect timing is for the most part a myth. The truth is that there's no better time than this very moment to do whatever it is that we've been neglecting.
+There will never be any better time than now to reach out to that family member that we keep putting off calling. Now is the time to rekindle the friendship that for whatever reason we have let dwindle.
+This very moment is as good a time as any to pick that phone up and reach out to that person you've been meaning to get back in touch with. There will never be any better time than right now to commit to learning a new skill set and improving yourself in some way.
+The present is what you and I have -- this very moment that we find ourselves in right now. We plan for the future because not to do so could leave us vulnerable (after all what would we do when the future finds us?). Even still the "now" is what you and I are promised. There is a lot of truth in the saying, "the present is the gift we give ourselves".
+Now it's time to let go of whatever fear may be built up that's been keeping you from doing just that. The longer you and I allow our procrastination to get in the way of doing what we know we must do the more power we give to that very thing that's stopping us.
+The surest remedy to overcoming your fears is to do that which we know we must. Is it easy? Of course not, but it is doable. One of the greatest rushes you will feel is the one you will experience at the point where you find yourself moving just past what you've been allowing yourself to get stuck on.
+Whatever you might be dealing with at this moment close your eyes, take a few deep breaths and make the jump ... and as you take action know without a doubt that greatness is a part of who you are.
+Remind yourself that inside you is more talent than you can possibly fathom. My hope is that you will spend each day allowing those gifts and talents to be set free -- for the good of you, your loved ones, and all of us that will benefit as a result of your choosing to do so.
+23
+
+
+Your Action Will Fuel Your Achievement
+I was reading a magazine recently when something caught my eye. The article mentioned that most people that exercised regularly (and as a result tended to be in the best shape) were those guys and gals that didn't so much plan out when they would work out, but rather simply worked out regularly without giving much thought to specifically when they would make time to do so.
+At first I thought to myself ... self, how on earth with such busy lives that we lead do these folks ever find the time to get their work outs in?
+After a bit of pondering on this it became glaringly obvious that by taking this approach they weren't allowing themselves to fall victim to the part of us that over analyzes things. You know the one I'm talking about.
+The part of us that says I don't have time to work out -- I've got to get home in time to make dinner. I've got to stay late at the office. I've got to (insert whatever you'd like here). No, they simply acted on their initial impulse to work out. To get that bit of exercise they felt they needed.
+Such a simple thought, to do that set of push ups or go for that walk or run instead of going through all the trouble to schedule it in.
+I couldn't help but think, by how applying this same approach to just about any of our goals we wouldn't find ourselves getting more accomplished.
+Consider how many lost goals and otherwise would be achievements we experience simply because we wait around for the right time to get started -and in the process never get the necessary action going to get started in the first place.
+Take a moment to really give the above statement some thought...
+Is there ever really a "perfect time" to set out in pursuit of your goals? I mean really. Is a month from now, two weeks, or a day from now going to be any better than right now at this very moment. Probably not. That's just the way things work.
+24
+
+
+Life is filled with any number of things that will shift and change and inevitably occupy our limited time, if we don't first take the initiative to fill it with those things we want to implement in our lives.
+Each of us is given the same number of hours in the day (24 -- last I checked). The same number of days in a week -- 7. And days in a year ... 365 (unless it's a leap year).
+Starting now get into the mind set that time -- or a lack there of won't stop you from working towards achieving those things that you want to see manifest in your life. Instead of looking for the right time to get started, just get going on them and allow yourself the wiggle room to move and adapt to any change that might be necessary to get you to where you want to be.
+As the saying goes, "you don't have to get it right starting out, you just have to get going".
+Change is inevitable, and in some instances it is true that we can't control every single thing that happens to us. Even so there are active steps we can take that will help to guide us in the direction of those things we desire. Simply sitting still and idle is one sure way to keep yourself from realizing your dreams.
+Dream big and feed your dreams with the necessary amount of action and as a result you are sure to attain your own definition of success.
+Keep this thought in mind: Even the best laid out goals are simply dreams until you add the fuel of action that puts you on the path towards achieving them.
+Don't Cling So Tightly To The Past
+With each new sunrise we are given the opportunity to start fresh and paint the canvas that is our life. Provided we are willing to acknowledge that we can do so. That's right, no matter how many things may have gone wrong for you up to this point in your life, if you're willing to do so you can start over and put any negative events behind you.
+25
+
+
+Your past doesn't have to define your future -- as long as you make the ongoing commitment not to allow it to do so.
+The sooner you get to where you can move past life's shortcomings the sooner you will be able to start taking advantage of the vast opportunities that life affords those who don't allow themselves to stay stuck in the past.
+As the saying so eloquently goes, the past is in the past, the future we do not know yet, and the present is a gift we can give ourselves. Perhaps that's not exactly how you heard it said, but I think the point is still clear.
+Here's wishing you all the best as you make the move towards living your own personal definition of success. May you find the happiness and achievements in life that are yours.
+Do You See the Positive Side of Things?
+In life there are generally two ways of seeing things, we can choose to view them through negative or positive filters (Perhaps you've heard it referred to as seeing through rose colored glasses when things are viewed in a positive light). When I'm faced with situations in my life where I've got the choice to assume the best, or worst. I like to recite the following quote to myself -- and to others....
+"Until you're proven wrong, you might as well assume you'll receive the best possible outcome"
+I think there's a lot of truth to the term self-fulfilling prophecy. Meaning that if a person runs around thinking of all the reasons things can't possibly work out for them, they end up giving power to the very things they don't want to have happen. In summary, we tend to get what we most focus on. That being the case, doesn't it stand to reason we would benefit from seeing things through a more optimistic lens?
+26
+
+
+I'd also add that I'm not saying that everything is going to work out for the best in every single instance. However, even in the worst of times we can choose how we respond to the things that happen to us.
+We can make the choice to do what is necessary to dig ourselves out of the place we are now -- reminding ourselves that in time if we refuse to give up and stay in the game our life will turn for the better and we'll see the positive results we desire.
+A Proud Uncle, Entrepreneurship, and Nickel Bookmarks
+Upon checking my voice mail I found the most delightful message... "Josh, I had to call, this is your sister. Your youngest nephew came to me earlier this morning and announced that he'd made some bookmarks and he intended to go out in the neighborhood and sell them. When she told me that I knew that was a story I had to share. I guess he has a bit of his Uncle Josh in him eh?"
+Aside from the fact that I absolutely ADORE my nephews and niece I took particular pride in hearing this news. Besides the obvious pride I had for my nephew being bright enough to take the initiative to come up with this idea on his own -- I was excited for him because I knew that he'd tapped into something that many, many adults tend to lose sight of overtime.
+Sadly, as they get older many people begin to focus on why things won't work, as opposed to cutting through the reasons why they won't and simply jumping on the horse and giving themselves a fair shot at the success they deserve... the sense of achievement that is theirs for the taking.
+Hearing the story of my nephew reminded me that we're all born with a sense of fearlessness when it comes to pursuing our dreams. I was excited because I knew that his willingness to get out there and do what he wanted to would result in an achievement that will yield results for years to come.
+Today it's homemade bookmarks -- and who knows, tomorrow it may be a business that he starts that ends up going public. Who is to say for sure, but at just 5 years old one thing is for sure... my nephew is getting a good start.
+27
+
+
+My hope is that you'll take a moment to reconsider the things that you've put on hold. Ideas that you believed you would like to have pursued, but for whatever reason did not. Do they still hold that appeal for you? Right now write those things down. Include a few action steps you can take as quickly as possible to get yourself moving in the right direction. Action in the direction of your desires leads to success, and even the smallest of achievements begins a snowball effect. Keep in mind the saying, success begets success.
+Another lesson I'd like you to take from the story of my young nephew is that he didn't overly plan, another thing that we adults sometimes do to much of -- to the point that we end up planning ourselves out of ever taking the action needed to get started. Nope, my little nephew had his idea, he made his bookmarks, and before anyone could tell him any different he headed out the door and got started. By the way, I'm happy to report that at a nickel a bookmark he did pretty well.
+You've Got to Be Willing to be Uncomfortable Sometimes
+I've heard it said before that if you want to be successful you've got to learn to be uncomfortable at times. I think there's a lot of truth in that statement.
+Think about it... What's comfortable about putting yourself out there and asking for a job promotion? What's comfortable about asking someone to use your company's product or service? What's comfortable about reaching out and making contact with someone you don't really know that well initially? What's comfortable about taking the first step towards learning a new skill?
+Not a whole lot is there?
+Of course this is not all bad news. For one thing if you're willing to be uncomfortable just a bit from time to time you're going to put yourself in a much better position to take advantage of a lot of the opportunities that are all around us -- even if we don't always notice them.
+28
+
+
+In most cases the reason that most folks don't achieve greater levels of success is because they either don't recognize the opportunity in the first place, or they lack the ability to move past their self-imposed comfort zones and do the uncomfortable actions necessary to get on with finding success in their given endeavor.
+Keep this in mind - if you always feel comfortable it is likely that you're not giving your success the full chance it deserves. If you are always comfortable, you may be limiting yourself in ways you may not even fully realize.
+Action Step:
+Develop the mindset to try new things - always be on the lookout for new opportunities and be willing to reach beyond what you think you are capable of and go for it. Even in a worse case scenario where it doesn't work out, you've still gained an invaluable life experience.
+It is through trying new things that we grow to the point where we realize that we've got every resource we need inside us to live our perfect life.
+Count Your Daily Wins
+It has been said that you and I tend to become what we think about most. If we believe this to be true doesn't it stand to reason that we would do well to take an active role as to what we allow to become our most dominant thoughts?
+Hopefully you would agree that we would all benefit greatly by choosing to recount the daily achievements we experience. No matter how small or insignificant you may view them at the moment each should be acknowledged -- and framed in our mind as they are -- successes. If we neglect to do so there's a chance that we will end up focusing on the occurrences of our day that don't help to build our own self-esteem.
+29
+
+
+There's great personal power that comes from celebrating both our larger achievements as well as the small successes that we experience ongoing in our lives.
+The reality is that you and I have the choice to allow ourselves to gravitate towards thinking about the negative things we have experienced, or we can choose to take a more pro-active approach where we make the choice to relive in our mind the positive accomplishments of the day.
+It really does get right down to making the choice to see things from a half full versus half empty mentality. Make the choice to see the positives and that's exactly what you'll notice more of.
+Action exercise:
+At the end of each day just before heading to sleep take a moment to write down several successes from the day. Remember that they don't have to be monumental to count as a success. Anything from meeting a new person to calling on a new client and just about anything in between qualifies as a worthy achievement.
+After you have written down your daily list -- read over what you've written and each time you do so close your eyes for a moment and try to experience the positive feelings associated with your given accomplishments.
+By following this idea we can actually control what we choose to focus in on. While we don't always have complete control over what happens to us, we do have the choice to focus our minds on (and thus give power to) those things that are most likely to get us on a positive path.
+My hope is that the ideas shared above help you to better take control of your most dominant thoughts. Always remember that if one person can succeed in their given endeavors then so can you and I.
+Keeping the Kinks Out Of Your Goal-Setting Plan
+When it comes to achieving your goals, keep in mind the old saying, "out of sight, out of mind". Anytime that we allow ourselves to lose sight of our
+30
+
+
+desired goal it can end up creating a real kink in the goal setting process. Why you ask? The answer is simple -- because our lives can get hectic and if we allow ourselves to take our eye off what we want, life has a way of putting some other action that requires our attention in its place. It's really that simple.
+So what's the solution you ask? Keep lists, to do lists, action tasks... whatever you choose to call them, the point is... keep your goals nearby and in plain sight, and just as important always write down those smaller tasks you can take on an ongoing basis that will support you in reaching your larger goals.
+It Doesn't Always Take Money Honey!
+If you buy into the old saying, it takes money to make money you're really missing the boat. In fact some of the greatest success stories ever told are of people just like you and I who started with little or nothing and grew their business idea into a masterful success. Would it have been easier say if these folks had had access to deep pockets when starting out on their business journey? Maybe, maybe not -- who knows for sure.
+One could make the case that in some of the situations had these bootstrapping entrepreneurs had it easier at startup many of them would never have learned the value of persistence and the necessity to be creative in growing their businesses in the first place.
+It makes you think doesn't it? So my question now is what are you waiting for? It's your life that's waiting, why not get on the ball now and take a little action and start moving towards the success that awaits you?
+Quotes to Ponder...
+"Success is the prize for those who stand true to their ideas!" -- Josh Hinds
+31
+
+
+"Heading out in the direction of ones dreams is not for the faint of heart. At times it is true that you may feel fear and doubt. You may feel as though the result you long for is nowhere in sight. Friend, don't succumb to your fear of failure -- stay the course, because very often it is just beyond the point where we experience the most doubt that opportunity opens up and literally pulls us in the direction of our dreams." -- Josh Hinds
+"I believe a little bit of success lies in everyone! Will you be the one to deny that? Or rather be the one who chooses to be guided by it? I hope you choose as I do to do the latter! -- Josh Hinds
+"A day will never be anymore than what you make of it. Practice being a doer!" -- Josh Hinds
+"Life's like a boom-a-rang. The more good you throw out, the more it makes its way back to you." -- Josh Hinds
+"Play the smiling game in your daily life. See how many people you can get to smile back at you. Keep score and tally the results at the end of each day." -- Josh Hinds
+"Take time-out 1/2 way through your day to ask "what have I done today?" Then act on your thoughts! Chances are if it was enough for you to ponder it, success is not far behind!" -- Josh Hinds
+"Keys to success... Research your idea, Plan for success, Expect success, and just plain do it! It amazes me how many people skip the last step! Practice being a "doer" and success will follow you every step of the way!" -- Josh Hinds
+"Spend more time asking why not. There are far too many folks saying things can't be done. The problem is that they're often left behind by the ones making things happen! Don't fall into this trap." -- Josh Hinds
+"Set out each and everyday to enjoy the journey. When we enjoy the things we're doing we perform better. It's all about applying the law of least resistance." -- Josh Hinds
+32
+
+
+Closing thoughts...
+It's my sincere hope that you've found the ideas I have shared to be valuable. However, I'd like to challenge you not to simply do as so many people do when it comes to personal development. What I want you to do is really look for ways day in and day out where you can apply the ideas you've learned. Add action where it's needed. Keep clearly in mind the old saying, "all else fails without first action". Set out each day with vigor for what's ahead. Enjoy the journey along the way. Encourage others to live the life of their dreams... All the best, Josh Hinds I'd like to invite you visit my site GetMotivation.com where you will find a large ever growing collection of motivational and inspirational resources. While you are there you might also want to join our free Motivational Newsletter. � All rights reserved, Josh Hinds
+33

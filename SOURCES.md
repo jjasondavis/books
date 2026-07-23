@@ -170,6 +170,19 @@ All public-domain English text (no scans). Division: `tradition/`.
 | George MacDonald | Gutenberg | *Unspoken Sermons* (I–III); *The Diary of an Old Soul* | Public domain |
 | Horatius Bonar | CCEL | *God's Way of Peace* | Public domain |
 
+## Owned personal library (added 2026-07-23)
+
+Text extracted from the owner's own purchased/owned ebooks, for personal research use, in the
+segregated `owned-library/` division. Each work is tagged `public-domain` or `owned-copyright`
+(in `CATALOG.tsv` and in its reading-copy header); the owned-copyright items are personal-use
+copies — **do not distribute**, and the segregated folder makes them trivial to exclude if this
+private repo is ever made public. 33 works extracted from DRM-free EPUB and text-layer PDF.
+Skipped: MOBI/PDB (no clean extractor available without Calibre), image-only PDFs, getAbstract
+book *summaries* (~46 files — not full books), work documents/presentations, and KJV duplicates
+(the corpus already has the KJV). 5 are public domain (Dickens *A Tale of Two Cities*, Melville
+*Moby Dick*, Bernays *Propaganda*, Oliver *History of Initiation*, Newton *The Builders*); the rest
+are owned-copyright (devotional, product-management, motivation/self-help, and comparative/esoteric).
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.

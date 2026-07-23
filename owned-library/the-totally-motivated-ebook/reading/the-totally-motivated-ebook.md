@@ -1,0 +1,507 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB/PDF). -->
+Source file: totally_motivated_ebook.pdf
+Title/Edition: The Totally Motivated Ebook: How to Stay Totally Motivated and Achieve Your Dreams; Chris Widener; owned copyright — personal use, do not distribute.
+
+The Totally Motivated Ebook!
+How to Stay Totally Motivated and Achieve Your Dreams!
+By Chris Widener Copyright 2003 All Rights Reserved Worldwide
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+CAUTION
+The material you have purchased is protected by United States and International Copyright Conventions. You are authorized to download one personal copy of this eBook and you may maintain one personal backup copy of the eBook, so
+long as such backup is not used while the primary copy exists. Please read Terms of Use carefully. Terms of Use
+INTELLECTUAL PROPERTY; LIMITED LICENSE TO USERS The product you have purchased is protected by United States and International copyright, trademark, and/or other intellectual property laws, and any unauthorized use of this product may violate such laws and the Terms of Use. Except as expressly provided herein, Your Success Store and its suppliers do not grant any express or implied rights to use this product. You agree not to copy, republish, transmit, modify, rent, lease, loan, sell, assign, distribute, license, sublicense, reverse engineer, or create derivative works
+based on this product except as expressly authorized herein. USE OF PROGRAM
+The program and accompanying documentation is the copyrighted and/or patented work of Your Success Store and/or its suppliers. By your purchase you are granted the right to
+download one personal copy of the eBook and you may maintain one personal backup copy of the eBook, so long as such backup is not used while the primary copy exists. If
+you do not agree to these terms, you will not be able to use this eBook.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Copying and distributing copyrighted electronic files is a violation of U.S. and International Copyright laws. If you did not purchase this eBook, please send an email to info@chriswidener.com with details on where you
+obtained this copy.
+The Totally Motivated Ebook!
+By
+Chris Widener
+Copyright 2002-2005 Chris Widener International All rights reserved Worldwide. No part of this book may be reproduced in any form or by any electronic or mechanical means, including information storage and retrieval systems, without permission in
+writing from the copyright holder.
+Published and Exclusively Distributed by Chris Widener International info@chriswidener.com
+While this eBook is optimized for viewing on screen, it may be printed out and assembled in booklet form. Because it is optimized for screen viewing it has larger than normal type when printed.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+About the author:
+Chris Widener is a popular speaker and writer as well as the President of Made for Success and Extraordinary Leaders, two companies helping individuals and organizations turn their potential into performance, succeed in every area of their lives and achieve their dreams. Chris has been recognized as the leader of a new generation of personal development and leadership experts. His three newsletters on successful living and leadership have subscribers in 105 countries around the world. Chris has been a speaking professionally since 1988 and has shared the stage with U.S. Presidential candidates, nationally known television news anchors, best-selling authors, and professional athletes. He has spoken on motivation and leadership to groups at some of America's finest organizations such as General Electric, Cisco Systems, and the Harvard Business School. Please visit his website at www.ChrisWidener.com.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Here is what Jim Rohn, master motivator and business philosopher says about Chris Widener: "Chris Widener is the leader of a new generation of personal development and leadership experts. He lives and breathes the strategies and tools he shares with millions around the globe. Chris' content is rich and practical, and his style is dynamic and engaging! If you want to see real change in your life, or the life of your organization, connect with Chris Widener."
+Made for Success provides you with the following:
+� 3 FREE ezines to help you turn your potential into performance! � Quality Ebooks, MP3's, and CD products on personal development and leadership. � Over 300 articles on success, motivation, and leadership. � Hundreds of quotes. � A speaker's bureau with people like Mark Victor Hansen Tom Hopkins, Denis Waitley, Jeffrey Gitomer, Vince Lombardi Jr., John C. Maxwell, and MORE! � Free streaming audios on success.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Congratulations! You are taking charge of your life and investing in yourself by reading this ebook on how to stay totally motivated all of the time. I believe it is possible and the chapters in this ebook are designed to give you insights on how to do it � from many different angles.
+You will find out what motivates me, how to stay motivated even when things aren't going so well, how to overcome fear, avoid conflict, think and live like a winner, overcome bad habits, and take massive action to propel your life forward � all of which are key elements of staying totally motivated!
+So dig in, read, and most of all, apply the principles you find in this ebook. As you do, you will find yourself becoming increasingly motivated until you learn how to stay totally motivated all of the time!
+Success to you!
+Chris Widener Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+What Motivates the Motivator?
+Someone wrote me once and said, "I would love to know what motivates YOU!" So I took them up on it and I want to spend some time telling you how I stay motivated. I f I can't keep myself motivated, how will I be able to tell you how to? And if it doesn't work for me, how will it work for you?
+It is a valid question, this one of what motivates me. After all, each and every day I have to stay on the top of my game whether it is because I am giving a speech, marketing my materials, writing to one of the subscribers I have in over 100 countries around the world, or just trying to keep my kids energized! As I thought about it, I realized again just how simple life can be if you put the right processes in place. I realized that me staying motivated revolves around a few basic things that I do. And they are things that ANYBODY can do. So if I can stay motivated, you can too!
+If you want to stay motivated, try these basics that I use to keep
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+myself motivated:
+Read good books and magazines. I am an information junkie! I read all of the time. I don't care what you say; you cannot be successful without reading! I read books, magazines etc all of the time. I read a breadth of information so as to develop myself on a wide variety of topics. Keep reading them on a regular basis throughout the month and not just in reading binges.
+Listen to good information. Get yourself into some good tapes. Listen to what others have to say. Give yourself a budget to spend on materials that will make you into a motivated animal! Above all, as you listen, apply the truths to your life in your head and they will become what you live!
+Maintain a positive group of friends and colleagues. I broke this rule yesterday and went to coffee with a real downer. I am still recovering from him! One of the best things you can do is to surround yourself with positive people who will build you up and Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+encourage you to pursue your dreams. They will be honest with you, yes, but they will also challenge you to shoot for the stars!
+Focus clearly on my goals. I know where I am going and what I want to accomplish. They are firmly rooted in my mind and heart. Because of this, my mind and heart are in an attitude of motivation all of the time. I want to hit my goals and since they are present in my heart and mind, I put my energies into them.
+Discipline myself to live out my priorities. Most of the time it takes plain old work. We have to discipline ourselves and as we do we find ourselves becoming more and more motivated. If we discipline ourselves, it gives us wins and victories, which makes us feel good, which motivates us for further action. If we don't discipline ourselves, we feel defeated and we fall into a downward spiral of despair.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Are you keeping yourself motivated? You can. I know you can because I have seen these principles and actions work in my own life. Take a moment right now and see if you are living out the principles for keeping motivated:
+Do you regularly read good books and magazines? Do you regularly listen to good material? Do you surround yourself with positive and supportive people? Do you know and focus on your goals? Do you discipline yourself to action even when you don't feel like it?
+Commit yourself to these and you will find that you become a much more motivated person. This is what I do, and why I can continue to motivate others! Upward and onward my friends!
+Ignite Your Life!
+Where have you come from in the last year? What have you Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+accomplished? Don't like the answers? Wish you had better ones, more fulfilling ones? You can - just one year from now!
+You have within yourself the power to decide that when someone asks you just one year from now, "What did you accomplish in the last year?" you will respond, "Let me tell you - I was on fire!"
+You aren't getting any younger, and neither am I. If nothing changes, next year you will be one year older and still stuck in the rut wondering when you will achieve your dreams. But you can change! Here are some thoughts to apply so that you can take control of your world and ignite your life!
+Decide what you want over the next year. What is it - exactly? You will never pursue it, nor get it, if you do not know what "it" is. Crystallize it in your mind. See it. Know it.
+Put some sort of physical reminder where you will see it every day.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Maybe you want to lose weight. Put a picture of someone who looks the way you want to, or perhaps a picture of yourself from when you weighed what you want to weigh again. This will keep it in your mind each and every day.
+Increase your positive self-talk. Stop telling yourself negative things, and I include thoughts, not just verbal talk. Instead, start telling yourself positive things. "But Chris, those thoughts just run around in my head. I don't put them there!" Well, catch them. Take them captive and throw them out! When you
+Get More Motivation! Visit us on the web: www.ChrisWidener.com catch yourself thinking negative thoughts, stop and ask yourself what the exact opposite would be. Then begin to think it. Let the positive thought expand and take over the terrain of your mind the same way the negative thought would have before you ran it out of town!
+Act. Yes, act. I don't mean join a theater group. I mean get some action Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+going in your life. Want to get out of debt? Ask the boss for 5 hours of overtime a week. Over a year that would be 250 hours (I give you two weeks for vacation. Aren't I nice?). If you normally make $15 an hour, you will make $30 (or something like that - go with me here). $30 multiplied by 250 is $7500. Your action will move you toward your goal. Worrying about money won't. If you want to lose weight, go to the gym on a set schedule. Whatever you do - act! Just make the action something that will propel you toward your goal.
+If you do the above - if you decide what you want, put a physical reminder of it where you will see it, increase your positive self-talk and take actions that will propel you toward your goals, you will ignite your life! And next year when someone asks how you have been your eyes will light up and you will boldly say, "Man, I have been on fire! Let me tell you all about it..."
+Keeping Your Attitude Up When Circumstances Are Down
+"Instead of spending your time thinking about how bad things are, think about how good they will be!" Chris Widener
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Everyone knows that a positive attitude is key to the successful life. But what happens when things go wrong? What happens when circumstances deal us a blow? We have a tendency to let our attitudes take the dive along with our state of affairs. Life deals us setbacks, both minor and major, on a regular basis, but if we are going to be successful, we need to know how to deal with them and keep our attitudes intact! We need practical tools to help us understand how we can go about keeping our attitude up, when the circumstances are down. Here are some thoughts to help us do so:
+Take some time-out. I'm sure you are aware of what happens. You are going about your day and everything seems to be going well, when out of nowhere disaster strikes. All of your best-laid plans begin to tumble. Sometimes circumstances surprise us and we react. Unfortunately, this often compounds the problem because by reacting we tend to operate out of our weaknesses instead of our strengths. We make decisions that are not well thought out. We function with a bad attitude that says, "I can't believe this is happening!" The next time circumstances turn against you, take some time to just step back from Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+the problem and think. This will enable you to deal with the issue at hand rationally, instead of emotionally. It will allow you to put your state of mind back into its proper place. It gives you the opportunity to choose your attitude as you face the circumstances at hand. Remember that we don't have to do something right now. Go grab a cup of coffee and relax little bit. By doing this you function with you being in control and not the circumstances.
+Keep your eye on the goal. A second step in keeping our attitude in the proper place is to make sure we keep the important things important. One of the biggest problems with trouble is that it gets your focus off of where it should be. When I experience difficult circumstances and people ask me how it is going, I tell them, "I am just keeping my eye on the goal." It has always been fascinating to me that when racecar drivers get into trouble, they keep their eyes straight ahead and do not move them away. There is just too much chance of wrecking that way. Instead, their eyes are on the goal, and this keeps them out of trouble. If you find yourself getting down about circumstances, sit down and write out what the goal is. Give some thought to how you can achieve that
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+goal, or others you may have.
+A man was asked how he was doing and he responded, "Pretty well, under the circumstances." The other man asked, "What are you doing under the circumstances?" Good question. We shouldn't be under the circumstances, we should be focused on the goal and moving forward.
+Focus on solutions, not problems. The squeaky wheel gets the oil, the old saying goes. Negative circumstances don't sit idly by. They scream for our attention. When we face difficult circumstances, we tend to dwell on them. We talk about them, fret about them, and give them way too much attention. Instead of talking about problems, talk about solutions. Instead of spending your time thinking about how bad things are, think about how good they will be! Don't have family or staff meetings about the problems and how big they are. Have meetings on the solutions and how you will implement them. Don't let yourself or other team members complain. Encourage them to solve, with an emphasis on the positive results that will come from doing so. Then take some time to put these solutions down on paper, so you can monitor your
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+progress.
+Get some positive input. The mind tends to build on itself, so when we begin to go in one direction, i.e. worry, it can be a slippery slope. One thing we must do is get our thoughts back on track with positive ideas. When circumstances have got you against the emotional wall, get with a good friend who can encourage you. Listen to a tape by Zig Zigler or another motivational speaker. Pick up a good book and give it a read. Whatever external influence you can get to put your attitude back on the positive side of the tracks � do it! It must be one of our first goals to start plugging good things into our minds to fuel our attitudes.
+Tell yourself the good. One of the greatest internal powers we have is the power to control our thoughts. Spend time dwelling on the good things about your life or job instead of the problems. Think about positive things, things you enjoy and give you a sense of happiness and peace. There is an Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+old childhood song that says, "Count your blessings, name them one by one." That is great advice! Let your positive attitude develop from within as well as from without. This makes all the difference!
+Remember that circumstances are not forever. Sometimes it seems like we are going to be up to our eyeballs in the situation forever, when in reality, this too shall pass. There will be a time in the future when circumstances will change and you will be on the mountain instead of the valley. This will give you a sense of hope
+Get More Motivation! Visit us on the web: www.ChrisWidener.com as you live and work that will change your attitude, make you feel better and put you on the fast track for growth!
+Some questions as we close:
+Q. Do you have a habit of reflection before responding? Q. Do you have a habit of keeping your eye on the goal? Q. Do you focus on solutions or problems?
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Q. Do you give yourself positive outside influence? Q. Do you have a habit of telling yourself the good? Q. Do you remind yourself that nothing is forever?
+Finding Motivation: What To Do When You Don't Feel Like Doing Anything
+"The measure of your success usually comes down to who wins the battle that rages between the two of you. The `you' who wants to stop, give up, or take it easy, and the `you' who chooses to beat back that which would stand in the way of your success - complacency." Chris Widener
+In all of my interactions with people, I've never found anyone, regardless of their level of success, who doesn't sometimes find themselves simply not wanting to do the things that they need and want to do. It is a part of human nature that there will be times that,
+Get More Motivation! Visit us on the web: www.ChrisWidener.com in spite of all that we need to do, and even desire to, we will find
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+ourselves not wanting to do anything. And what separates those who will become successful from those who will maintain the status-quo, is the ability at those very crucial moments of time when we are making decisions about what we will do, to choose to find the inner motivation that will enable us to conquer our complacency and move on in action. I find that I confront this issue in my life on a regular basis, so the following success strategies are not merely pie in the sky techniques, but proven ways to get yourself to go even when you don't feel like doing anything.
+Honestly evaluate whether or not you need a break. This is the first thing that I usually do what I find that I don't want to get to a specific action. The fact is that oftentimes we will have been working very hard and the lethargy we are feeling is really our body and emotions telling us that we simply need a break. And this is where it takes real intellectual honesty because when we don't need a break our mind is still telling us we need a break! But sometimes we do need a break. I'll give you a good example. I don't particularly like
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+to exercise, but I do almost every day. Sometimes, I find myself before going to the club thinking about how I just didn't feel like going. Most of the time I am just being lazy. However, sometimes I realize that my body needs a break. So from time to time I will take a one or two daybreak from working out. The benefits of this are two-fold: One, my body gets a break to regenerate itself. Two, after a day or two, I begin to miss my workout, and eagerly anticipate a turning to the gym.
+Other examples: Perhaps you are a salesman who has been phoning clients for a week straight, day and night. You wake up one morning and just don't feel like doing it any more. Well, take a break for the morning. Go to a coffee shop and read the paper. Go to the driving range and hit some golf balls. Take a break and then get back to it!
+Start small. I'm at a point in my workout schedule now where a typical workout day for me consists of 30 to 45 minutes of aerobic exercise, and about 30 minutes of weight lifting. So when I find myself not wanting to get up and go to the gym, I will sometimes make a commitment to go and
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+just do a smaller workout. Instead of deciding not to go, I'll commit to doing 15 to 20 minutes of aerobic exercise and 15 to 30 minutes of weight lifting. This is also good for two reasons. One, I actually get some exercise that day. And two, it keeps me from getting into a cycle of giving up when I don't feel like moving toward action. Other examples: Maybe you are a writer who simply doesn't want to write today. Instead of the long day writing you had planned, decide that you will at least outline a couple of new articles. You will at least get these done, and you may have found that you put yourself into the writing mood after all.
+Change your routine. I have found that what keeps me in the best shape and burns the most calories for me, is to do 30 to 45 minutes on the treadmill every day. Now let me be very blunt. I find running on the treadmill to be extremely boring. Usually I can get myself to do it, but sometimes I need to vary my routine. So instead of 30 to 45 minutes on a treadmill, I will break down my aerobic exercise routine into a number of different areas. I will do ten to 15 minutes on treadmills, 10
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+to 15 minutes on the reclining cycle, 5 to 10 minutes on the rowing machine, 5 to 10 minutes on the stair stepper, and then back on to the treadmill for five to 10 minutes. I still get my exercise, but I'm bored a lot less.
+Other examples: Maybe you are in construction and you have been working on the plumbing for a week, and it is getting monotonous. Don't do the plumbing today! Go frame-in the office.
+Reward yourself. One way that I motivate myself to do something when I don't feel like doing it, is to tell myself that if I get through the work that I need to, I will give myself a little reward. For instance, I may tell myself if I to get up and go to the club I can take five to 10 minutes off my treadmill exercise, which will shorten my workout routine, and I'll allow myself to sit in the hot tub for a few extra minutes. Hey, it works!
+Other examples: Maybe you are a mortgage broker who feels like sleeping in. Tell yourself that after the next three mortgages you close
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+you will take your kids to the fair, or your spouse to the movies. Maybe you'll give yourself a night on the town with old friends.
+Reconnect the action with pleasure rather than pain. Psychologists have long told us that we humans tend to connect every action with either pleasure or pain. Tony Robbins has popularized this even further in the last few years with something he calls Neural Associations. That is, we connect every action with either a pleasure, or pain. When we are finding ourselves lacking motivation, what we are probably finding about ourselves is that we are associating the action that we are thinking about with pain, rather than pleasure. For instance, when I'm considering that not going to the health club on any given day, I am usually associating going and working out with having no time, the pain of exercising and weight lifting, or the boringness of running on a treadmill for an extended period of time. What I can do to re-associate is to remind myself that by going in and doing my exercise I will feel better about myself, I will lose weight, and I will live longer. This brings me pleasure. When we begin to run those kinds of tapes through our minds, we find our internal motivating force unleashed and changing our attitude about the
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+action that we are considering. Other examples: Maybe you are a counselor who really doesn't want to spend the day listening to people. Your association may be that it will be boring, or that you will be inside while it is sunny outside. Instead, re-associate yourself to the truth of the matter: Someone will be better off because of your care and concern. Think of your clients and the progression they have been making recently and how you have been a part of that.
+Accelerate Your Abilities
+In today's fast-paced life, the wins usually go to those with exceptional skills and abilities. The old quote is true, "The race is not always won by the swift and the strong, but that is the way to bet."
+With this in mind, and with your desire to become increasingly successful, here are some ways to accelerate your abilities, thus enabling you to achieve greater and greater things.
+Become dissatisfied with your current state.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Growth for growth's sake is good. Those who will achieve much are those who say to themselves, "I want to grow. I want to be better. And I am willing to do what it takes to get there. This current state is not enough!" This dissatisfaction will create for you an insatiable drive to do what it takes to get your abilities to the next level.
+Visualize the benefits of increased abilities. Put them at the forefront of your mind. This will saturate your mind with the motivation that it will take for you to do what it takes to increase your abilities. What good will come out of my increased ability? How will I be better off as well as the others around me? The answers to these questions act as the carrot before the horse, moving you forward.
+Understand your weaknesses. If you want to improve, one of the best ways is to start with some area that you aren't particularly good at. This is the "shoring up method." Sometimes it is easier to improve something you aren't good at that something you are. And the gains will still look great for your overall Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+situation! Take some time to consider what areas you are weakest in and focus in on them for a while. The results will obviously be much more pronounced than getting better at something you have already somewhat mastered.
+Attempt greater levels of what you are already good at. Another tact to take would be to stretch yourself in an area that you already have some skill and ability in. What areas do you excel in? Now understand that when you leave the weaker areas weak and make extraordinary gains in one area, then you will be moving more toward "specialist" rather than "generalist." That is okay, but needs to fit in with your overall goals.
+Commit time each day to improvement. Steady improvement is the way to go. In fact, you may not see improvement for days or weeks. You may feel like you are failing each time. But alas, eventually you will get it and your skill will increase to the next level. The key is day in, day out, spending time working on improving. Even five minutes a day equals a half hour a week, 2 hours Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+a month. That adds up! Remember, Practice, practice, practice.
+Seek out and spend time with someone who has greater ability than you. One of the best things to do to increase your ability is hang out with people who are already more skilled than you. Watching, them, studying them, interacting with them, even competing with them will make you better. As in sports, to improve, you play with people better than you, not worse. They will raise you to a new level. Who around you can you get involved with who will help you with your ability?
+Take a class or hire a coach. Go to school my friend. Take a course at a local college or vocational institute. Take a class online. Hire one of the many coaches available today. Pick a specific skill you would like to improve upon and find someone who is a specialist in that area. At the very least, pick up some audio or videotapes to help you grow.
+Be the tortoise, not the hare. Slow but sure. Take your time, do it right. Keep going in the right Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+direction. Learn your craft correctly. Don't give up quality for speed. The whole idea of acceleration is this way: Slow start, work up to high speeds, go the distance. Luckily life isn't a sprint but a marathon!
+Hope these ideas help you as you commit to accelerating your abilities!
+Are You In It � To Win It?
+Have you ever heard this? "It isn't whether you win or lose. It is how you play the game." I am sure you have. But do you know who said it? Some guy who came in second place!
+You see, I have a problem with that statement. It presupposes, or at least strongly suggests that winning and playing the game "right" are mutually exclusive propositions. Perhaps we ought to have this as our goal as we pursue success: We want to win, while playing the game right! I totally disagree with the statement that we should win at all costs. Instead, we should do everything good that we can to win at this game we call life. And we ought also do all that we can to help others win. Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+With all of that... here are some thoughts on being in the game � to win!
+Any "game" worth playing is a game worth pursuing a win in. If I get into a game, I play to win. What nobility is there is playing like a slacker? What virtue is purposeful mediocrity? None! I live my life to be a winner � Spiritually, financially, physically, emotionally, relationally � every area of my life! If it is worth doing, it is worth playing for the win!
+It is good to win. We live in an age now where people have reacted to sore winners by saying that we shouldn't strive for winning. Many of our schools have abandoned the idea of competition, and our educational scores show that. Kudos to all of the teachers out there who still tell their kids that they can be winners! It is good and noble to win! It is something to strive for. It is good to push ourselves, to stretch and reach for victory. It is a grand thing to want to win!
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+There doesn't have to be a loser in life. Yes, in teamed competition, there are always losers (but more on that in a bit), but in life, you can all win! We can all strive for the best and give it our all to win. Winners are the ones who move families, businesses, organizations, cities and countries ahead. Winners are the ones who push progress. You don't think that couch potato is the one who will cure cancer or open up the next great technology do you? No � it will be a person who has chosen to be a winner!
+Losing can mean winning. Just because your score in a game or contest is the least at the end of the game doesn't mean all is lost. You can still be a winner in that you gave it your all, you competed at your highest level, you learned new skills and strategies, and you became a better player and person. That is winning in my book!
+Winners help others win. That is right, good people, people who pursue winning by excellence, are also people who stop to help others so that they, too, can enjoy the Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+spoils of victory. Pursue the win, but help others achieve all that they can as well! Winners make everyone better. When I get into athletic matches I want to play against the best. Yes, I may come up short in the score, but I will be better because that winner will make me grow in every area of my game! Winners stretch the losers so they can become winners too!
+Questions for reflection:
+Are you afraid of winning? Do you think it is wrong to win? Are you living each area of your life as though you are a winner? Are you enjoying your wins? Are you helping others win with you?
+Friends, we need to be in the game of life full force! We need to be in it, and we need to be in it to win it! Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Don't Let Conflict Keep You From Success
+Anytime you are making ground and moving toward success, there will inevitably be the opportunity for conflict. That is just a fact of life. You put two people or more in a group and there is potential for conflict � and conflict, improperly handled, can destroy your ability to continue on and achieve your goals.
+This is true in many areas of life, from the boardroom to the schoolroom. It can happen in marriage and it can happen between friends and business associates. And when conflict goes bad, success doesn't happen. The good news is that conflict can be healthy and can actually move you closer to success. Success is based on relationships and relationships offer the chance of conflict, so to get success, you must master conflict. So with that in mind, here are some ideas for handling conflict.
+When you are the one who is confronting the problem with someone else:
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Don't assume. Don't assume the worst. Don't assume that they meant what you think they did. Don't assume they know any better. Don't assume they did it on purpose. The fact is that most of the time our assumptions are incorrect and all our assumptions do is cause us to get out of a deeper hole.
+Ask questions. Since you can't assume anything, you must begin your confrontation by finding out the facts as that person sees them. Here are some questions to ask: What was your intention in saying or doing that (Maybe they had good but misguided intentions)? What were the thoughts behind those words or actions (Maybe they actually have a well thought out position that you hadn't thought of)? Are you aware of how that might have been perceived (Maybe they just missed how that would be seen. Everybody is entitled to blow it)?
+Tell them how you perceive things, or how you feel, rather than what they did. Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+It is never good to start out with telling somebody, "You did this!" Instead, you can say something like, "I feel like your action may have been better if you would have..." Or, "I think that the way that came across may have been..."
+Deal with one issue at a time. If they battle back a bit, you may be tempted to say, "Well, that isn't all! As a matter of fact, a number of us here think that you also need to work on..." If there is another issue, then deal with it at a separate time. Too many conflicts go around and around and don't end up solving the original issue. Stick to one point and see it through to understanding.
+When someone is confronting you:
+Get More Motivation! Visit us on the web: www.ChrisWidener.com Don't take it personally. Worst-case scenario, you blew it. But that doesn't make you a bad person. So don't act like they have accused your character (unless Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+they have, in which case you should try to get the conversation back to the facts). When we take things personally we become even more protective and we tend to become defensive and in the end escalate the conflict even more.
+Don't counterattack. This gets back to dealing with one issue at a time. Don't try to justify or hide from the conflict the person has with you by showing him or her their problems. If they have a problem, great, talk about it later. Don't muddy the waters with debate about who is better, or as the case may be, less guilty. As hard as it may be, let the conversation run its course until it is solved.
+Ask for some time to give it objective reflection. One way to stop conflict from escalating is simply to ask for time to consider it. Most of the time when people confront us, we had no idea it was coming. Our natural tendency is to fight out of reaction. If we go and think about it, we can be objective and approach the situation objectively, or at least more so. Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Set a time to get back with them and discuss the issue. Let the person know that you take their concern seriously and that you want to deal with it in a timely manner. Set a time, no more than three days away, to get back together. You will keep from reacting, and they may even find that they had confronted too soon themselves.
+Either way:
+Keep your eye on the big picture. Is this the hill you want to die on? Determine how important this issue really is. Most things simply aren't worth getting too upset about, or so upset that the relationship breaks down. Is a productive business relationship worth sacrificing over the fact that you partner wears too much cologne or their spouse talks loudly at parties? Of course not, but some people go to war over those things. Is your husband worth giving up on because he leaves his underwear on the floor? Now, for the sake of argument, the reverse is true: The other person could wear less cologne or pick up their underwear, because that is an easy way to make the other person happy. Ask yourself if Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+this is really a big deal. If it is, proceed.
+Always respect the other person as a person. No matter what they have done, they are a person of value and deserve to be treated that way. They are not summed up and defined by their mistake. They have hopes and dreams, fears and worries, strengths and weaknesses. Take some time to picture them outside the office, playing with their kids or doing something fun. This will personalize your issue and keep you from going overboard.
+Be solution oriented. Whatever you do, don't focus on the problem. Ask yourself and the other person to approach the issue with the idea that you are both working for a solution that will be mutually beneficial. Rather than ask, "Why in the world did you do that stupid thing? What were you thinking?" Ask, "Okay, what is done is done � what can we do to fix
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+this again?" That is much more productive. The goal is to get things going again, not continually punish the other person.
+Conflict doesn't have to end in a bad way. In fact, it can cause you to develop a deeper and more trusting relationship with the person you have had conflict with. So the next time you have to confront, or you are being confronted, follow the advice above and you will be much further along toward getting through your conflict in a positive way.
+Getting Over Fear and On with Your Life
+I have worked with thousands of people through the years and written for millions of others, many who have written to me for advice and the like. One of the things that I have found to be common in so many people is fear. Fear is something that cripples people and keeps them from pursuing and reaching their dreams. This does not have to be so! I truly believe that a person does not have to have fear in their life. I can honestly say that I do not have any fear in my life. Now, I am not perfect by any means but fear is not something I have because I have dealt with it. Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+The main reason I do not have fear is because I have come to grips with the concepts surrounding fear. I have understood fear, primarily from two angles. The first angle is psychologically and the second angle is theologically. You see, I think that if we address the issues of life and the fears we experience from both a good understanding of psychology and theology, then I believe we can be free from fear.
+Psychology is the study of the mind and that is where most of our fears take place. Theology is the understanding of God and the world we live in as it relates to God and what takes place in this world. I know from personal experience, that as we settle just a few basic issues, we can be free from fear. A few weeks ago I spoke to a group on fear and here are a few of the insights I gave them on how they can get over their fears and get on with their lives. Look and see how each one of these principles fits either psychology or theology.
+Disciplining your thoughts. Fear is an action of the mind. Fear is a use, or better said, misuse, of the imagination. In reality, when you fear something, you are simply choosing to imagine a future happening. You are fearful that your Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+spouse will divorce you (future), or that the snake will bite you (future � it hasn't yet), or that you will lose your job (future � you still have it). So when we fear, we are simply letting our minds imagine a bad future. That is what fear is! Imagining a bad future. So what is the answer?
+Well, there are two things you can do. One would be to imagine a good future. The other would be to stop thinking about the future and just take one day at a time. If you are a fearful person, either one of these would be preferable to living in the prison you currently live in. The principle remains true in that we have to discipline our minds and choose not to think about a bad future. We can do that. We can choose our thoughts. It just takes discipline.
+Accepting the realities of life. Much of what people fear are the realities of life. Some may think this cold, but people die, people lose jobs, people choose to do crazy things in relationships etc. There is nothing you can do about that. Period.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+For example, I know many fearful mothers who won't let their children play in the front yard because they are afraid the kids will get kidnapped. Now, what should they do? Do everything they can to make it safe and then let their kids play in the front yard! Some people are afraid they will go bankrupt or broke and worry endlessly about it. What should they do? Work hard, save, invest and live life. Could someone get kidnapped? Yes. Could you go bankrupt? Yes. These things happen and all you can do is work to make your life what it can be and accept that sometimes things happen, even tragic things. If they happen, you experience the pain and emotion then � there is no sense forcing yourself to experience it before it happens � IF it happens! This is a mental adjustment that we make that enables us to get over fear.
+Give yourself good information. Much of what we fear is irrational and not based on good information. For example, someone afraid of snakes will scream when they see a gardener snake, even though the reality is that there is absolutely nothing that snake can do to them! Take the time to
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+educate yourself about whatever it is you fear and see if that doesn't help you gain the mental edge you need.
+Taking control only of those things you can control. There are things you can control and things you can't. Much of what we fear is out of our hands and we can't control it. You can't control if your spouse leaves you. You can control how you treat your spouse. You can't control a downturn in the economy. You can control whether you save for a rainy day or not. You can't control whether or not you will get a fatal disease. You can control whether you eat right and exercise. You can't control how your kids will turn out. You can control how you raise them, what kind of example you set, and what you teach them. You can't control how others will treat you. You can control how you will treat others. Control what you can control, and let go of the rest.
+Trusting that God is in control, even when it doesn't seem like it. Here is where theology comes in. There is an old theological term called "sovereignty," that basically means, "God is in control of the Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+universe." I believe that. Basic to my understanding of God is that God is in control of the universe (God better be, because I'm certainly not � and wouldn't want to be!). Now there is a fundamental difference between believing that God is in control and trusting that God is at the helm. There is a difference between believing that ultimately God is calling the shots and actually liking the shots that God calls. I think one of the overriding principles of life that we can embrace that will help us overcome fear is that we can relinquish control and trust that someone greater than us is fully aware of what is happening on this earth and in our lives. I for one leave a lot of my fears on this theological hook.
+These are some basic points that I use to shape my heart and mind so that I don't have to spend my life in fear. There are a few others as well, I am sure, and many you probably use yourself, but for now, this should be enough to chew on. Getting over fear is an issue of the mind and the spirit and, believe me, the battle over fear can be won!
+How to Guarantee a GREAT Day Every Day!
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+I have a standing interview every Monday morning on a radio station in the southeast that I enjoy very much. You can imagine though that it can become routine. So to make it a little more fun, the host nowadays doesn't even tell me the topic before we go live on the air � that puts some excitement into it!
+This past week he asked me the following question cold at the beginning of the show: How can a person guarantee that they will have a great day, every day? Now some may find that a hard question but for me it was actually a very easy question to answer (a little harder to actually live, but not that hard). You see, I believe in principles that govern our lives so that we can control our destinies and create for ourselves the kind of lives that we desire. People who live based on principles achieve what they desire while people who live reacting to circumstances do not.
+So, what were the principles that I gave to guarantee that a person could have a GREAT day every day? Here they are:
+Focus on today only. Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Yes, we need to have long-range goals. But our focus must be on today. My old equation is that your short-term tasks multiplied by time equal your long-term accomplishments. With that in mind, it is imperative that we focus in on our short-term, to control it and make it what will eventually, when multiplied by time, equal our long-term goals. Don't think about tomorrow. Today is enough trouble in and of itself. You can work on tomorrow when it gets here. Instead, make today the best day you have ever had. Realize that when you lay down to sleep tonight you will have just given up the only shot you will ever have at today. Today is now gone and it is only a memory. You only get one shot at your today so focus intently on making it all that it possibly can be. Focus, focus, focus! When you focus on making today great, you are on the road to guaranteeing that you will make your day GREAT, every day!
+Embrace your power to choose. Dwight D. Eisenhower said that "The history of free men is never written by chance but by choice, their choice." When your today becomes your yesterday, you will look back and realize that that day
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+was a result of your choices and your choices only. "But wait Chris, what if my boss controlled my day? That isn't my choice!" But it is your choice to work for someone else! You choice to let someone else tell you what to do. You chose the feelings of helplessness that overwhelm you when you feel bad that you do not control your own destiny.
+The moment we realize that we have a gift from God that the animals do not have, mainly the gift of free will and choice, and when we realize the inherent power within that gift, and ultimately when we finally begin to exercise that gift, then and only then, will we begin to create for ourselves a GREAT day each and every day! Take ownership of the direction in your life. Make your choices then carry them out!
+Your attitude is up to you. Yes, bad things may happen in your day. The pitcher for Team Circumstances may have a tremendous curveball waiting for you and you cannot control that. You cannot control what others may do or
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+say. But you do control your attitude. Your attitude about whatever happens to you is up to you.
+When something happens to you, you have the choice: Will you let it get you down and depressed, keeping you from forging ahead and making the day the best one ever? Or will you say to yourself that no matter what happens you are on the path to success and no obstacle will keep you from it? Will you say, "Sometime you win and sometimes you lose � I guess this time I lost"? Will you say, "Sometime you win and sometimes you learn � I can really learn something from this!"? It is all in what attitude we choose. Your attitude is up to you and when you choose to have a great attitude, you are choosing to guarantee to have a GREAT day, every day!
+Live out and act on your priorities. So far we have dealt with internal perspectives, and that is indeed the place to start. But the practical place is in our priorities. If we want to make our days great, then we have to live out those things that will by
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+definition make our days great. And those things are what are important to us. They are our priorities.
+So each morning you start out by saying, "What things are important to me today? What are the things I need to accomplish in order for me to lay down tonight and know that I lived a GREAT day?" Then you put those in order of most important to least important.
+Don't so what is fun. Don't do what is easy. Do what is IMPORTANT! Live out your priorities! When you do, you will guarantee that you will make your day GREAT, every day! Tomorrow, when you wake up, go through the four following points and see if you don't make tomorrow a GREAT day:
+Focus on today only. Understand that I get to choose how today will go. Remain in a positive attitude no matter what happens. Live out and act on my priorities.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Do this and you will guarantee a GREAT day, every day!
+Give Bad Habits the Boot!
+Everybody has bad habits. Everybody. Now granted, some people have less than others and some people's bad habits are more grating than those of others, but we all have them. What is great is that we don't have to! Imagine a life where you couldn't change? What kind of life would that be? But we can, so let's!
+There are two kinds of bad habits: Those you know you have that others may or may not know about, and those you don't know you have but everybody else knows you have! For the sake of everybody involved we ought to get rid of them all, right?
+Well Chris, how can I get rid of a bad habit if I don't know I have it? Simple, but hard. Ask somebody to be brutally honest with you! You might think, "Yeah, but I'll be embarrassed." Would you rather Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+everyone talk behind your back? Get up the courage and ask. Ask somebody who loves you and has your best interest in mind. Be gracious and don't defend your self. Just accept it and work on it.
+What about the ones we know about - which are all of them once your good friend tells you the ones you were missing? Those are the tough ones. How do I know they are tough? They must be tough if you know about them and yet you still have them! If they weren't tough, they would be FORMER bad habits! Got me? Good!
+So how do you break a bad habit? How do you give it the boot out of your life? Here are a few things that must be a part of the plan in order to see that stuff gone forever! You must want them to go. That's right, some people want them to stick around. I have seen dads choose alcohol over their grandchildren. I have seen smokers continue smoking while watching their parents die of emphysema. They don't want them to go. The first thing is to go deep into the recesses of your heart and ask, "Do I really want to give this up?"
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+You do?
+Good. Step two: Make up a list of all of the reasons you want to quit your bad habits. Make them positive. Make the list long! Start with the really powerful and dramatic if you need to. Now memorize them. Put them in your mind. You are making connections between stopping the bad behavior with what good things you will get from doing so. If you want to lose weight, then picture yourself slim and looking good in those skinny people clothes! If you want to stop smoking, picture your wife actually kissing you rather than sending you to the bathroom to brush your teeth!
+Choose. That is right. Once you have the information, this comes down to one thing: It is an act of the will. Choose to do it. Say to yourself throughout the day, "I am choosing to..." Eisenhower rightly said, "The history of free men is written not by chance but by choice, their choice." It is your choice. You can write your history.
+Take action! Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Point four is tricky because there are two philosophies about this. One theory is that you must take massive action. You must go all or nothing. Using the weight loss example, this person would go spend $500 to join a gym, rework their schedule and hit the treadmill everyday for a year. They will get rid of all fat in the house. They go all out! That works for some. Others would burn out on that, feel like failures and be worse off than before. They should start out slow, taking baby steps, but working diligently toward a planned goal. This person would decide to start walking three days a week. They would decide to limit dessert to two nights a week, down from seven. See how this works? Either way is okay as long as you get to the goal eventually. Which one am I?
+Tell somebody. This is your accountability partner. Tell them your goal and tell them your plan. Write it down for them and have them ask you on regular intervals about your progress. This will prove invaluable!
+Recover from failure. Inevitably most people will have setbacks. The key is to have them be Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+setbacks and not turnbacks! Pick yourself up and get going again. Some people may want to lose 30 pounds and after losing fifteen they eat a gallon of ice cream. Then they feel bad and give up. Don't! Reset your goal for another two weeks and get going again. Chalk it off to experience! Say to yourself, "Sometimes you win and sometimes you learn."
+Reward yourself. That's right. You should regularly congratulate yourself by rewarding yourself with some gift to yourself. Start small with small victories and plan a big one when you are finally and for sure over the habit. Is it that simple? Most of the time, no. Habits are hard to break. There are so many intangibles that it would be hard to cover them all. But this is a simple and workable plan that will help you make great strides if you apply the principles.
+Get going! Give those bad habits a boot! Good luck!
+My Top Four Pointers for Kicking Your Life into High Gear
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+How would you like to kick your life into high gear? I can help you! Your life doesn't have to be stale and full of drudgery. Your life can be lived at the highest levels, experiencing joy in every area! I want to give you my top pointers for kicking your life into high gear so you can get moving on the fast track to success!
+But first... A secret key to understanding success.
+Secret Key: Success isn't just doing certain things, though we will certainly do certain things to become a certain kind of person. What kind of person you are is what determines your success in life. Yes, you can do right things and achieve a certain level of success, but not the kind of success I am talking about � true life success.
+So what are my four tips? Here the are:
+Become a person of Vision. Vision is the spectacular that causes us to carry out the mundane. Vision is what sees us through the dark days so we do not give up and settle for second best. Vision is the grand scheme that we relentlessly Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+pursue. Vision is the goal we aim for. The best way to kick your life into high gear and begin to succeed in what you want to succeed in is to begin to become a person of vision.
+The successful person has a fully developed vision of their destination. So let me ask you a simple question:
+Do YOU know where you are going?
+And not only do you have a vision of where you are going, but is your vision fully developed? Now certainly we cannot know everything that will happen to us in the future, but we can develop the plan fully, allowing in our plan for a variety of contingency plans. "But Chris, that is a lot of work." It is, but when you look across the board at people who have succeeded much, they are people who laid out most of their life and work before it happened. Life didn't just happen to them. They didn't just stumble into success. They planned for it and they created it.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+The Tests of Vision
+Is it Clear? Is it Concise? Is it Inspiring? Is it Achievable? Is it Easy to Memorize?
+Ask your self the questions above and let the answers begin to shape the vision you have for your life. The tighter and clearer the vision you have for your life, the sooner you will kick your life into high gear! Become a person of Passion. Passion. Mmmmm.... Passion. Passion is the burning of the heart. It is the unbridled running amuck of the emotions. It is the overwhelming desire to accomplish your goal. It transcends the mental assent to a set of ideals. It drives and thrusts you toward your goal. You MUST have it!
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Those who consider themselves intellectuals will underestimate the power of passion. The fact is that the victory isn't only in the mind. The truths of the mind are driven by the passion of the heart. So by all means, fuel the passion for life that resides deep within your soul.
+Passion is like a fire. It can rage or it can smolder. Even if all you have is barely lit embers, you can fan into flame the fire of your passion for life, love, and the goals and vision you have for your life! Commit yourself to becoming a person who lives passionately!
+Become a person of Priorities. As I have worked through the years with people who achieve much and have lives that are constantly in high gear, I notice something amazing about them: They are people with an extraordinary ability to know what the right thing to do is and to actually do it in a timely fashion.
+For example, a friend of mine was in charge of a three-day event a few weeks ago that was attended by close to 250,000 people and was
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+featured on national and international television. Four days before the event he told me he had nothing to do and felt guilty. I encouraged him by reminding him that this was actually a sign of his incredible ability to have focused on and lived out his priorities throughout the whole year before the event took place.
+When all was said and done, living and working out of his priorities enabled him to kick back and enjoy the fruit of his (and hundreds of his employees) labor. His life was in high gear and because he is a person of priorities, he is enjoying life. You can too.
+Discern what the important things are that you must involve yourself in so as to have the life you want. Then relentlessly live out of those priorities. Say "no" to everything else! Become a person of Excellence. People who live life in high gear, succeeding in every area of life, are people who place a high emphasis on and strive for excellence in every area of life. Good just won't do. The best is the target.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Even when they fail or do poorly, they make an inner commitment to do an excellent job the next time. They are people who want, and live for, excellence in their work, their play, their finances, their relationships � everything!
+Do you long for a life lived in high gear? One that is filled with joy and achievement? It is possible! Give some time to contemplate how you can make changes in the next few days and weeks in the following areas and see if your life doesn't kick into high gear!
+Vision Passion Priorities Excellence
+No Excuses
+Don't you just hate it when people make excuses for their failures? So do I. But do you know what I hate even more? Finding myself making excuses for my failures! I have a policy that I try to live by: No excuses.
+Here are some thoughts on a "No Excuses" policy.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+People will respect you. When you say that there are no excuses, that you blew it, and that you take full responsibility to make the situation right, people will be astounded (since very few people make no excuses) and they will come to a greater respect of you. You will find yourself taking greater responsibility. When you know that your policy is to have no excuses, there will be less room for error because you will be doing everything that you can to make sure the job gets done!
+You will become the "go to" person. When someone wants something done, they will turn to you because they know that they can count on you to perform. And they know they won't get any excuses! This will improve your level of success, and that is exactly what you are aiming for, right?
+Practice up: "You're right. There is no excuse for that. I will fix it immediately." Refreshing!
+Put Some Fire in Your Desire
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+One of the keys to success is staying motivated because it is being motivated that keeps us going out the door every day to change the world and reach our destiny! It is our desire for a better life, for change in ourselves and others, and for personal growth and fulfillment that moves our mountains! Desire!
+Desire sure is a word with much more richness to it than the word "want" though they are essentially the same. "Want," though, sounds like you could take it or leave it. "Desire" says, "I have to have it!" Desire, is "want" with a fire under it!
+Unfortunately, we tend to ebb and flow from want to desire, even with the same goal! One day we may be passionate about building our business or growing our relationships and then, the next day, we find ourselves simply in the "want" camp again. The key to keeping on is to re-light the fire under want so it roars into a raging fire of desire! Then, and only then, will we see the passion needed to be tenacious pursuers of our dreams! Keeping the fire lit is what will see you through the mountains and valleys of life and the journey you are on
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+to your success!
+So what do we do? We light the fire! Here are a few thoughts to help you build the fire of your desire!
+The wood:
+Keep a clear mental picture of the goal. This is imperative. The picture of the goal is like the wood in a fire. It is the raw material. Know what your goal is and what it looks like. The fuel:
+Keep a list, if simply just a mental one, of all of the benefits of pursuing and reaching your goal. Make them as "sense" oriented as possible. "See" the benefits. "Hear" them. "Touch" them. This is like the fuel that we add to a fire to get it going. Now all we need is a match.
+The match: Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Keep yourself active! This is the match: Action! Even when you don't feel like it, get yourself to act and soon you will see the fire burning because you have again ignited the dream! The more desire you have the more the fire burns.
+Eventually the fire will begin to die out. Here is where you throw the wood on again, pour on some fuel, and if need be, strike another match. I would encourage you to not let the fire go out though, because it is easier to continually throw wood and fuel on an already burning fire than it is to start one up again!
+Take a Turn at Tenacious!
+"Nothing in this world can take the place of persistence. Talent will not; nothing is more common than unsuccessful people with talent. Genius will not; unrewarded genius is almost a proverb. Education
+will not; the world is full of educated derelicts. Persistence and determination alone are omnipotent. The slogan 'press on' has Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+solved and always will solve the problems of the human race." Calvin Coolidge
+I have worked with many successful people; people who have achieved the kinds of lives they have dreamed about. I have also worked with many people who are not anywhere near where they want to be in life. Many times those who are not successful resent those who are and believe that somehow success was handed to those who have achieved much.
+What I have found however is that actually the reverse is true. Those who have achieved much have worked much HARDER than those who are not successful. You wouldn't believe the stories of struggle that I hear from those who now appear to on "top of the heap." Yes, they are successful, but no, it wasn't handed to them! And I find that most of the unsuccessful people who come to me actually haven't been tenacious at all. I find that with many of the people I speak to who complain about their lack of success simply haven't persevered and been tenacious. When I ask them questions I usually get excuses. Yes, there are exceptions on both sides, but I find this to be almost Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+universally true.
+If you are one who finds yourself dreaming of a better life, or looking at someone who "has it made," I would ask you to take a long, deep look inward and at your life to find whether or not you have actually been tenacious in pursuit of your dreams. How long have you gone for it? Many people who achieve much go for YEARS before they achieve what their hearts long for? How hard have you gone for it? Most people who achieve much have given up much. They have sacrificed much. They strive valiantly for what it is that resides deep in their dreams. They just plain ol' work hard!
+So what are the principles of tenacity? What do you need to know in order to take your turn at the tenacious? Here are some thoughts to start your fire and get you going!
+Sometimes you just have to outlast the others.
+"Success seems to be largely a matter of hanging on after others have let go." William Feather Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+I have found that many people start on their dreams but most never finish. Then those who stop resent those who make it. The truth is that most people who become successful have simply mastered the art of keeping on keeping on! I myself can remember early on in my career when I would get discouraged and I literally said to myself, "One more week. Just give it one more week." Quite frankly, this is what got me through a couple of years of my work early on. I hung on as others let go.
+It is easy to get disheartened. Ask those who have achieved success if they ever got disheartened and you will find some of the most amazing stories you have ever heard. Give it a try: Go to the most successful person you know and ask them if they ever thought about quitting. Ask them how they kept on going. You will be amazed at what you hear.
+Sometimes you just have to hold on at the end.
+"When you get to the end of your rope, tie a knot and hang on."
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Franklin Roosevelt
+I wonder how many people have quit just as they would have begun their entrance into success? Sure there are many who quit at the first sign of hard work, but what about those who, after the tenth time of trial then give up, just as fate would have seen them go through one last hurdle and then into the promised land? How many people were on their last hurdle and decided not to jump? How many people had just one more mountain pass to go? Or just one more river to cross?
+Of course we will never know, but certainly some of the people who quit are doing so on what would have been their last trial, right?
+So what does this mean for you? For me it means I do not quit because I would hate to find out later that all I needed was just one last effort and I would have achieved my goal. What if it isn't my last trial? That's okay because as long as I keep going, eventually I will get to my last trial, I will overcome it, and I will enter the Winner's Circle.
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Sometimes the most beautiful results come from dull things under pressure.
+"Diamonds are nothing more than chunks of coal that stuck to their jobs." Malcolm Forbes If coal wasn't an inanimate object it would certainly scream, "Stop! I want out!" But that coal, when facing incredible pressure, is turned into one of earth's most precious possessions. Ugly, dirty old coal is transformed into beautiful diamonds.
+Instead of looking at pressure and trials as the reason to quit, get tenacious and see them as the very thing that will make your life the beautiful thing that you desire it to be. See it as your opportunity to learn, to grow, and to be transformed. See these trials as the very things that will enable you to have the life that dream of!
+Trials will surely come. Life will get hard. You will want to quit.
+Then you will have a choice: Will you give up? Or will you take your turn at tenacious. The choice you make will determine much of the Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+rest of your life.
+My advice? Take your turn at tenacious. You will become stronger, and you will end up living the life you dream of!
+Take It Up a Notch
+One of the problems many people have is that they have a long-term goal, which they should, but they don't have any short-term goals that they move toward. What they want is to get to the top, and they focus on that, rather than focusing in on simply taking their lives or careers up a notch.
+When you shoot for it all at once, chances are you will not be able to make it. The person who does is extremely rare. Instead, most people shoot for it all and fail, then get discouraged and quit. Hear this: Don't have the mindset of going for it all at once! Here is the reality for most of us: We get to the top one notch at a time. The road to CEO starts at the mailroom, and then goes through the position of salesperson, then sales manager, then V.P. Sales, then president of a division, then CEO. These are all notches that we go Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+through. Every once in a while you may be able to skip a notch, but rarely. The men and women I have worked with who have achieved so much usually have a lot of notches they passed through to get there.
+So while our ultimate goal may be to be the CEO, we need to plan and work on getting to the notch above us. What will it take to get to the next level? When you find that out, do what it takes to get there and do it better than anyone else!
+One of the benefits of going one notch at a time is that your confidence builds in ways that it never would if you went for the gold and failed repeatedly. Then at every level you have the confidence that you will be able to move to the next level.
+Final thoughts: Take a long-term view but work for the short-term. Yes, keep your eye on where you ultimately want to be, but set many notches between where you are and where you want to go. Then over time, take it up a notch at a time.
+Make sure that your notches are far enough to be a challenge, but Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+short enough to be a possibility. This is a balance that only you can answer for yourself. You want to stretch but make sure it is something you can really achieve! This will maximize your time and your gains!
+Take a look where you want to go. Then create the notches you have to go through. Then develop a plan for getting to the next notch. Now go for it!
+The Myth of What We Manage
+Perhaps it is merely semantics, but an underlying problem I find that people have as it relates to the success in their life lies in a proper understanding of what exactly it is that we manage. Think about it. We have time management (In fact I have a seminar on this very topic, some of which is excerpted below), and financial management, and relational management, weight management, career management, and many, many more.
+The fact is though, that we don't manage any of those things. What we do manage is ourselves, as they relate to those things. We don't manage time. Time clicks by, second by second, whether we do
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+anything or not. What we do is manage ourselves, and our activities, as the time passes. We make choices as to what we will do and be involved in. The problem as well as the solution lies not with time, but with us.
+We don't manage money. A pile of money will sit there forever if left alone. It won't grow or shrink. What we manage is ourselves and the decisions we make in regard to how we will spend the money. Getting the idea?
+So as we live our lives and pursue success, one of the keys to grab on to is the idea that the most important thing we can manage isn't a thing at all � it is our self!
+How then can we manage ourselves? Here are some thoughts.
+Make sure that the above is firmly engrained in your thinking: I only manage myself. I can choose how I will act and react in every situation. Dwight D Eisenhower said that "The history of free men is not written by chance, but by choice, their choice." Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Know your priorities. Do you know from top to bottom what your priorities are? Have you decided what the top ten things you want to spend your time on are? How about the same with your money? Only after you know these things can you properly manage yourself into choosing to live your priorities.
+Learn to say "no" with a smile on your face. Here is where most of us fail. We do not choose to say "no" to those things that are not a matter of priority (the reason "why" is another newsletter article and probably a few counseling sessions at that!). Someone calls us up and asks us to do something for them (usually because they haven't managed themselves and would like our help picking up the pieces) and we say "Uh, I guess so." Then what? We usually kick ourselves for the rest of the day. "Why did I ever say yes?" Instead, practice this, "Gee, I am really sorry but I am not going to be able to be involved this time. I am sure you will be able to find somebody though." Go ahead and try it right now. Weird, isn't it? That is because we don't say it very often. Schedule your priorities into you schedule or budget or whatever structure governs that area of your life. For example, do you have a Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+financial budget that you yourself set? Then do you first and foremost spend your money in that way, say at the beginning of the month? If you do, you will eliminate even the opportunity to blow your money on impulse decisions and expenses because your money has already been committed into your priorities.
+Remember, one of the greatest gifts God gave us is the ability to choose. And we can choose to manage ourselves appropriately and according to our priorities. As we do, we will find ourselves feeling less and less of the personal pain and frustration that we feel when we are out of control.
+Get goin'!
+Life Rewards Action
+Thinking is good, yes it is. I strongly encourage thinking. In fact, thinking plays a terrific role in success. It helps you strategize. It helps you get motivated. It tunes you into success. I am all for thinking and I do it regularly! Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+That being said, just thinking, no matter how good of a thinker you are, will never keep you totally motivated or catapult you to success. The difference between the thinker who succeeds and the thinker who doesn't is that the thinker who succeeds also ACTS! Actions produce results, and results keep us motivated! Life does not reward thinking. Life rewards action. Let me clarify: Life rewards thoughtful action.
+Think first, by all means... But then ACT!
+Do you want to gain wealth? The save your money � ACT! Do you want to lose weight? Then hit the treadmill � ACT! Do you want a new job? Then quit your current one � ACT! Do you want to write a book? Then begin to write � ACT! Do you want a new friend? Then introduce yourself � ACT!
+Anything you want to accomplish will only be done by bold and decisive action.
+Wishing won't bring it about. Neither will dreaming. Nor will hoping. Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+Nope, you must ACT. What is it you want from life? Tell me. Be specific. Be clear. Think about it. Strategize. Roll it around inside that noggin of yours. Got it? Good. Now what? What will you DO to turn that non-physical electrical impulse we call a thought into a physical reality?
+There is only one thing: ACTION.
+Will you succeed? Will you achieve your dreams? Will you live the life that you want? Only you can make that decision because only you can decide whether or not you will act.
+My friends, life rewards action. Your actions do not need to be perfect. They just need to be. And then they get rewarded with success. With achievement. Accomplishment.
+You have the power within you to lead YOUR life as you see it. There is only one question you must answer for yourself:
+Will I act? Because Life Rewards Action. Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+The Last Word...
+There you have it. Over 80 pages of secrets of staying motivated all of the time. Now the only thing standing between you and success is your application of the principles and allowing time to move you forward! I believe in you. I believe you have it within you to accomplish anything your heart desires. You will need to stay motivated to do it, but now you will be. So go for it my friend! Chris Widener info@chriswidener.com
+Get More Motivation! Visit us on the web: www.ChrisWidener.com
+
+
+For more Info contact: Chris Widener International Email: info@chriswidener.com
+For more info on these speakers click on name below:
+Brian Tracy Zig Ziglar
+Bob Proctor Loral Langmeier
+Jerry Clark Tony Jeary Les Brown John Maxwell
+Get More Motivation! Visit us on the web: www.ChrisWidener.com

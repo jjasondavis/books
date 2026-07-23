@@ -1,0 +1,218 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB/PDF). -->
+Source file: mbs111m.pdf
+Title/Edition: The Condition of Salvation (MBS111); Dr. Arnold G. Fruchtenbaum / Ariel Ministries; owned copyright — personal use, do not distribute.
+
+MBS111
+
+A MESSIANIC BIBLE STUDY FROM ARIEL MINISTRIES
+
+THE CONDITION OF SALVATION
+
+By Dr. Arnold G. Fruchtenbaum
+ariel.org
+
+
+MBS111
+
+Ariel Ministries Digital Press
+
+THE CONDITION OF SALVATION By Dr. Arnold Fruchtenbaum
+TABLE OF CONTENTS
+I. THE CORRECT CONDITION TO SALVATION ........................................................................4 A. Faith................................................................................................................................................4 B. Biblical Evidence............................................................................................................................4 C. The Messiah as Substitute ............................................................................................................5 D. The Greek Words ..........................................................................................................................5 1. Pistis ........................................................................................................................................6 2. Pisteuo......................................................................................................................................6 3. Peitho ......................................................................................................................................6 E. Usages of the Word ......................................................................................................................6 F. Conclusion ....................................................................................................................................6
+II. FALSE ADDITIONS TO SALVATION............................................................................................7 A. Repentance ....................................................................................................................................7 1. The Misuse of the Word ........................................................................................................7 2. The New Testament Usages of the Word ..............................................................................7 B. Confession of the Messiah ............................................................................................................8 1. The Basis for this Teaching ....................................................................................................8 2. The Problems with this Teaching............................................................................................9 C. Confession of Sin ..........................................................................................................................9 1. The Basis for this Teaching ....................................................................................................9 2. The Problems with this Teaching..........................................................................................10 D. Imploring God for Salvation........................................................................................................10 1. The Basis for this Teaching ..................................................................................................10 2. The Problem with this Teaching ..........................................................................................10
+Page 2
+
+
+MBS111
+
+Ariel Ministries Digital Press
+
+E. Surrendering to the Lordship of the Messiah ............................................................................11 1. The Basis for this Teaching ..................................................................................................11 2. The Problem with this Teaching ..........................................................................................11
+F. Baptism ........................................................................................................................................12 1. Mark 16:15-16 ......................................................................................................................12 2. Acts 2:38 ................................................................................................................................12 3. Acts 22:16 ..............................................................................................................................12
+
+� 1986, 2005 Ariel Ministries. All rights reserved. No part of this manuscript may be reproduced in any form, except in brief quotation in a review or professional work,
+without written permission from the publishers. Cover illustration by Olivier Melnick. Email: Homeoffice@ariel.org � www.ariel.org
+Page 3
+
+
+MBS111
+
+The Condition of Salvation
+
+But as many as
+
+NOTES
+
+received him, to them
+
+gave he the right to
+
+become children of
+
+God, even to them that
+
+believe on his name.
+
+John 1:12
+
+This study will answer the question, "Exactly what must one do to be saved?" This subject will be discussed in two major categories. First, the condition of salvation will be discussed positively. Then secondly, the various false additions to salvation that were added by various groups throughout Church history will be investigated.
+I. THE CORRECT CONDITION TO SALVATION
+"According to the Bible, what is it that a person must do to be saved?" Concerning the positive condition of salvation, five points will be made.
+A. Faith The first point is that according to Scripture salvation is based solely on faith in Yeshua (Jesus) the Messiah. Salvation is by grace through faith, and that is the only condition for salvation. This is the starting point from which one must tackle this question.
+B. Biblical Evidence The second thing to point out is that, in more than two hundred cases where there is a condition given for salvation, faith or belief is stated to be the only condition. This is important to remember. There are more than two hundred places in the New Testament where the condition for salvation is spelled out, and in all these, cases faith or belief is given as the one and only condition. If this is true, and if there are "problem passages," one should not interpret the two hundred clear passages by the few minor problem passages. One should try to interpret the few problem passages by the two hundred clear passages. The problem passages will be dealt with under the second category, "False Additions to Salvation."
+
+Page 4
+
+
+MBS111
+
+The Condition of Salvation
+
+One clear passage is John 1:12: But as many as received him, to them gave he the right to become children of God, even to them that believe on his name. This verse states that the ones who became the children of God are those who received him. "What does it mean to receive the Messiah?" The second part of the verse explains that to receive the Messiah means to believe on his name, to believe that He really is the Jewish Messiah. Simply by believing, one receives salvation. That is the way one becomes a child of God, and believing is the only condition mentioned here.
+Another example is Acts 16:30-31: and brought them out and said, Sirs, what must I do to be saved? And they said, Believe on the Lord Jesus, and you shall be saved, you and your house. In verse 30, the question is asked: what exactly must I do to be saved? When the apostle answers in verse 31, the only condition is to Believe on the Lord Jesus. If they believe on the Lord Jesus, then they receive salvation.
+These are just two of over two hundred examples where a condition is given for salvation, and the only condition spelled out is that of faith and belief. Because in the majority of cases that is the only condition given, one must be careful before assuming that the Bible teaches that there are additional conditions to salvation.
+C. The Messiah as Substitute The third point concerning the correct condition for salvation is that this faith must be placed in the Messiah as our substitute for the penalty of our sin and our Savior from the penalty of sin. Salvation is not merely believing that Yeshua existed. Some of the most pagan atheists believe that a man named Yeshua of Nazareth existed. Merely believing that Yeshua existed, merely believing that He died on the cross, merely believing that He rose again from the dead does not save anyone. Rather, the believer's faith must be placed in the Messiah as his substitute for and as his Savior from the penalty of sin.
+In other words, one needs to trust the Messiah for one's salvation. One must believe that He has accomplished the salvation work on one's behalf. To be saved, one must believe not just that He died, but that He died for one's own sins. If one believes that Yeshua the Messiah died for his sins, that presupposes that one has confessed that he is a sinner. If Yeshua died for one's sins, obviously it means that he is a sinner. So one must believe that Yeshua died for his sins as his substitute, was buried and rose again, and therefore has provided salvation. Thus, one trusts Yeshua for his salvation.
+This is the condition of salvation: faith must be placed in the Messiah as one's substitute for and as one's Savior from the penalty of sin.
+D. The Greek Words The fourth point to discuss about the correct condition for salvation is
+
+NOTES Page 5
+
+
+MBS111
+
+The Condition of Salvation
+
+the three main Greek words, which are used.
+1. Pistis
+The first main Greek word is pistis, which is used 243 times in the New Testament. It always has the meaning of "faith," with only four exceptions: Acts 17:31, where it has the meaning of assurance; II Thessalonians 2:13, where it is translated as belief; Titus 2:10, where it has the meaning of fidelity; and Hebrews 10:39, where it is translated belief, although some translations have faith. Except for these four occasions, the word pistis always has the meaning of "faith."
+2. Pisteuo
+The second key Greek word is pisteuo, which is used a total of 246 times in the Greek New Testament. It always has the meaning "to believe," except for nine times: once it is translated as believers (Acts 5:14); and eight times it is translated as either commit, committed or intrusted (Lk. 16:11; Jn. 2:24; Rom. 3:2; I Cor. 9:17; Gal. 2:7; I Thes. 2:4; Titus 1:3; I Tim. 1:11).
+3. Peitho
+The third main Greek word is peitho, which means, "to cause belief in a thing." This word is used 50 times in the Greek New Testament, and it is translated in nine different ways. It is translated as persuade twentytwo times; as trust ten times; as confidence nine times; as obey seven times; as believed three times; as assure one time; as yield once; as made free once; and as access once. But in spite of these nine different translations, the root-meaning of the word remains the same: "to cause belief in a thing."
+By combining these three Greek words, one can clearly determine what the condition of salvation is in reference to faith. First, it means, "to believe." Secondly, it means, "to be persuaded of." Thirdly, it means, "to place confidence in." And fourthly, it means, "to trust in the sense of relying upon." These are the four facets of faith when one places his faith in Jesus the Messiah.
+E. Usages of the Word The fifth point to discuss about the correct condition for salvation is the five senses in which the word "faith" is used. First, it is used as "conviction that something is true." Secondly, faith is used as "trust." Thirdly, faith is used as "persuaded," and it is stronger than mere opinion, though it is weaker than foreknowledge. Fourthly, faith is used as "belief based upon the facts of knowledge" (Rom. 10:14). And fifth, faith must have an object. The object of faith is God, while the content of faith is the death of the Messiah for one's sins, His burial and Resurrection.
+F. Conclusion To conclude the first part of this study: the only condition of salvation is believing that the Messiah died for one's sins, was buried, and rose
+
+NOTES Page 6
+
+
+MBS111
+
+The Condition of Salvation
+
+again, and trusting Him for one's salvation.
+II. FALSE ADDITIONS TO SALVATION
+The second major category concerning the condition of salvation is the various false additions, which have been added throughout Church history. We will discuss five false additions.
+A. Repentance The first false addition to salvation is repentance. Some groups claim that not only does one have to believe on the Messiah and trust Him for one's salvation, one must also repent. Usually what they mean by repentance is that "one must truly be sorry for his sins."
+1. The Misuse of the Word
+First, the actual meaning of repentance is simply "to change one's mind." That is all that biblical repentance means. Repentance does not mean, "to feel sorry for one's sins." The Greek word for "repentance" simply means, "to change one's mind."
+The second thing about repentance is that when it is used as a synonym for believe, then yes, it is a condition for salvation. For example, one has to change one's mind about who the Messiah is in order to be saved. If repentance is meant as a synonym for belief and faith, then yes, repentance is necessary for salvation.
+A third thing about the word "repentance" is that it becomes a false addition when it is taken to mean "sorrow." If by repentance one means "sorrow" and, therefore, one has to feel sorry for his sins to be saved, then it is a false addition to salvation.
+Fourthly, the reason for this is that if repentance, in the sense of being sorry for one's sins, is necessary, salvation then becomes two things. First, salvation is now placed on the basis of works, and secondly, salvation is based upon feeling, not upon the facts and promises of Scripture.
+The fifth thing about repentance is that in salvation repentance is never a separate act from faith or believing.
+Belief as a condition to salvation appears about two hundred times; repentance as a synonym for believing is given thirty-five times. Repentance is a synonym for believing and only as a synonym for believing is it a condition for salvation. But if one redefines repentance as "being sorry for one's sins," then it is a false addition.
+2. The New Testament Usages of the Word
+The New Testament uses the word "repentance" four different ways. First, it is used as a synonym for believing, and means nothing different than believing in Yeshua the Messiah. One changes his mind
+
+NOTES Page 7
+
+
+MBS111
+
+The Condition of Salvation
+
+and believes on Him (Lk. 24:47; Acts 17:30; Rom. 2:4; II Tim. 2:25; II Pet. 3:9).
+A second way that repentance is used is to change one's mind about anything. Again, it never carries the sense of feeling sorry. Sorrow may accompany repentance, but the word itself does not mean "sorrow." It simply means, "to change one's mind" (Acts 8:22; 11:18; 20:21; 26:20; Heb. 6:1, 6; 12:17; Rev. 9:20).
+A third way the word "repentance" is used is in reference to Israel when speaking of Israel's need to repent, that is, Israel's need to change its mind about Jesus. Here again, it merely means "a change of mind concerning who the Messiah is" (Acts 2:38; 3:19; 5:31).
+A fourth way the word "repentance" is used is as a reference to John's baptism, which was called a "baptism of repentance." In this sense, it is simply a part of God's covenantal relationship with Israel (Acts 13:24; 19:4).
+Insofar as repentance is concerned, there are two things to note. If repentance is used merely as a synonym for believing in the Messiah, the way the Bible uses it, only in that sense is it truly a condition for salvation. But if, as some groups use it, repentance means, "to feel sorry for one's sins," then it indeed becomes a false addition to salvation.
+B. Confession of the Messiah The second false addition to salvation is known as "confession of the Messiah." Where this becomes a false addition is the teaching in some circles that there must be a public confession of the Messiah for one's salvation.
+1. The Basis for this Teaching
+This teaching is based upon two passages. First is Matthew 10:32: Every one therefore who shall confess me before men, him will I also confess before my Father who is in heaven.
+The second passage is Romans 10:9-10: because if you shall confess with your mouth Jesus as Lord, and shall believe in your heart that God raised him from the dead, you shall be saved: for with the heart man believes unto righteousness; and with the mouth confession is made unto salvation. Based upon these two passages of Scripture, some groups have made a false addition to salvation and teach that there must be a public, verbal confession for a person to be saved.
+The answer is that in both of these passages, confession is not a separate act from faith. In the case of Matthew 10:32, the context is dealing with Israel's having rejected the Messiah, and those individual Jews who want salvation must confess the Messiah, meaning that they must confess that Yeshua is the Messiah. But in this case, the word
+
+NOTES Page 8
+
+
+MBS111
+
+The Condition of Salvation
+
+"confession" is simply part of the act of faith; it is not a separate act in any way.
+As far as the Romans 10:9-10 passage is concerned, Paul uses a Hebraic poetical form known as "inversion." Paul interchanges the terms "confession" and "believing" to show that both these terms are used synonymously. For example, in verse 9, he first spoke of confession: with your mouth, the Lord Jesus and then secondly: believe in the heart that God raised him from the dead. So in verse 9, there was confession followed by believing. Then in verse 10, he reversed the terms. In verse 10, he first spoke of believing: for with the heart man believes unto righteousness, then he spoke of confession: with the mouth confession is made unto salvation.
+This inversion of confession and believing and the interchangeableness of the two terms shows that he used them synonymously. Confession in this verse equals calling upon the name of the Lord. Calling upon the name of the Lord is simply exercising faith in Him. Confession is not a separate act from faith.
+2. The Problems with this Teaching
+There are three problems with this false addition of confession for salvation.
+The first problem is that confession is omitted in all passages that speak of a condition of salvation with these two exceptions. In the other two hundred plus cases where the condition is given for salvation, confession is not one of them. Even in these two cases, confession is used only synonymously with believing in the Messiah.
+The second problem is that if a public confession is necessary for salvation, then salvation is on the basis of works. Salvation would be based upon works if a person must actually publicly confess the Messiah.
+The third problem is that the circumstances for many people who are saved preclude a public confession. Many people are saved merely by reading a gospel tract or by reading a New Testament. They believe on Yeshua the Messiah and they indeed experience salvation without having any opportunity to make a public confession right then and there.
+A public confession is not part of salvation, and those who teach it make it a false addition to the condition of salvation.
+C. Confession of Sin The third false addition is confession of sin.
+1. The Basis for this Teaching
+The verse, which is used, is I John 1:9: If we confess our sins, he is faithful
+
+NOTES Page 9
+
+
+MBS111
+
+The Condition of Salvation
+
+and righteous to forgive us our sins, and to cleanse us from all unrighteousness. People sometimes use this verse and make it a condition of salvation by saying that one must confess his sins before he can be saved.
+2. The Problems with this Teaching
+First of all, I John 1:9 is not a salvation verse. In fact, the writer is writing to those who already are believers; they have already been saved. Notice the pronouns: If we confess our sins. The pronouns we and our include the Apostle John and his readers. Both John and his readers were already saved. This is not a salvation verse, it is simply a verse, which deals with the sins committed by people who already are believers.
+Secondly, if the confession of sin were a necessary addition to the condition of salvation, how many people remember every sin they commit? It would literally be impossible to remember every sin that one has committed. If this condition were true, it would mean that unless one has confessed every single sin ever committed, then one cannot be saved! Since this is impossible, no one would have hope of salvation.
+Confession of sin is a third false addition to the condition of salvation.
+D. Imploring God for Salvation The fourth false addition which some teach is that one must implore God to save him or he will not be saved. The picture is that God is somewhat reluctant to give salvation and, therefore, one must implore Him before one may receive it.
+1. The Basis for this Teaching
+Two main passages are used to teach this. First is Isaiah 55:6: Seek ye Jehovah while he may be found; call ye upon him while he is near. The admonition to seek ye Jehovah is interpreted as "imploring God to save." While the admonition is to seek the Lord, they ignore the fact that Romans 3:11 teaches that no one seeks God on his own. If this were a condition of salvation, it would mean that no one would be saved since no one will ever seek God on his own!
+Another passage used is Luke 18:13, which speaks of praying for salvation. What is ignored here is that this passage does not actually say that one must implore God to be saved, nor does it teach that one must seek God and seek God and seek God until one finds Him. The passage is dealing with the believer's prayer-life, not with salvation. Luke 19:10 states that it is the Messiah who actually does the seeking.
+2. The Problem with this Teaching
+The problem is that in the two hundred plus places where the condition for salvation is discussed, imploring God is not a condition for salvation. It is never written that one must implore, seek, and pray
+
+NOTES
+
+Page 10
+
+
+MBS111
+
+The Condition of Salvation
+
+for God to save him before God will do it. Furthermore, this is salvation by works. Salvation is emphasized as being by grace through faith. The salvation, which God offers, is simply received by faith; one does not have to implore God to save him. God is more than ready to do so.
+If one must implore God first, then salvation is by works.
+E. Surrendering to the Lordship of the Messiah The fifth false addition to salvation is that before one can be saved, one must surrender to the Lordship of the Messiah. This view states that one must not only accept Yeshua as one's Savior or Messiah, but also accept Him as Lord of one's life; then one can actually be saved.
+1. The Basis for this Teaching
+Passages like Romans 12:1-2 are used for this argument. However, this passage is not speaking of a condition of salvation, but of something, which follows salvation. In fact, Romans 12:1-2 is a good argument against what is called "Lordship Salvation." Paul writes to those who have already been saved. In light of their salvation, Paul implores them to make the Messiah the Lord of their lives by the dedication of their bodies. It is only after one becomes a believer that he needs to make the Messiah the Lord of his life. This is not a condition of salvation; rather, it is a condition of discipleship.
+Another passage used for this argument is Romans 10:9, which speaks of confessing Jesus as Lord. In this context, Paul is not dealing with the fact that the Messiah must become "the Lord of every aspect of one's life." The word Lord is used in the sense of the Jehovah of the Old Testament. Only God can save, and the aspect of the Lordship of Jesus which one needs to be saved is His salvation Lordship. One does not have to accept Him as the Lord of one's life to be saved, but Yeshua needs to be the Lord to be able to save. The Messiah must be Lord in the sense of Jehovah to be a qualified Savior.
+Romans 10:9 does not teach that one must make Messiah the Lord of one's life in order to be saved. Rather, it teaches that the Messiah must be Lord in order to be the Savior. In order to be saved, one must merely believe that the Lord Jesus died for one's sins, was buried, and rose again. One must trust Him for one's salvation, but in order for Him to save anyone; He must be LORD (Jehovah). Contrary to this false addition to salvation, He becomes the Lord of our lives some time after salvation, when the believer dedicates his body to the Messiah for His permanent use (Rom. 12:1-2).
+2. The Problem with this Teaching
+When the Bible talks about the Messiah's being Lord to save, it does not mean His personal Lordship of the believer's life. For example, Acts 10:14 states: But Peter said, Not so, Lord; for I have never eaten anything that is common and unclean.
+
+NOTES
+
+Page 11
+
+
+MBS111
+
+The Condition of Salvation
+
+In this verse, Peter called Jesus Lord, and yet he said to the Lord, Not so, Lord. Peter proceeded to rebuke the Lord. In fact, one can accept the Lordship of Messiah like Peter did, and yet immediately act contrary to something that this Lord commands. Acts 19:8 19 will also bear out this same point.
+So the fifth false addition, surrendering to the Lordship of the Messiah or Lordship Salvation, is not biblically valid.
+F. Baptism "Is baptism necessary for salvation?" In this study, we will address this topic in a brief, three-part comment on the passages, which people use to teach that baptism is necessary for salvation.
+1. Mark 16:15-16
+The first passage to examine is Mark 16:15-16. This passage does not say that if one is not baptized, he will be lost, nor does it teach that if one believes but is not baptized, he will be lost. The negative is not stated. It simply says to believe and be baptized. In those days, baptism immediately followed salvation. Furthermore, this verse is not even found in the best and oldest Greek manuscripts of the Gospel of Mark.
+2. Acts 2:38
+The second passage used is Acts 2:38, which states: Repent ye and be baptized... for the remission your of sins. The Greek word here is eis, which can also mean "because of " or "on account of," as is its meaning in Matthew 12:41. Therefore, Acts 2:38 simply states: "repent and be baptized on the basis of the remission of sins" or "because you have been saved, therefore you should be baptized."
+3. Acts 22:16
+The last passage is Acts 22:16, which, in the Greek text, contains two imperatives and two participles, and literally reads: "arise, having been baptized, wash away your sins, having called upon the name of the Lord." What this verse is saying is that baptism follows the arising just as the forgiveness of sins follows the calling upon the name of the Lord. The two parts of the verse must be kept distinct. Just as after calling upon the name of the Lord, one is then saved; having been saved, one should arise, and be baptized.
+Baptism is a false addition to the condition of salvation.
+
+
+NOTES
+
+IF YOU ENJOYED THIS BIBLE STUDY, DR. FRUCHTENBAUM RECOMMENDS: MBS095, 099, 100, 102, 103, 105 and 110.
+Page 12

@@ -1,0 +1,1773 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB/PDF). -->
+Source file: one-2-one.epub.epub
+Title/Edition: One 2 One; Steve Murrell; owned copyright — personal use, do not distribute.
+
+Cover
+
+One 2 One
+
+One 2 One
+
+web: www.everynationnyc.org
+
+facebook: everynationnyc
+
+twitter: @everynationnyc
+
+email: info@everynationnyc.org
+
+One 2 One
+
+ONE 2 ONE, Every Nation New York City Version, Smashwords Edition
+
+Copyright © 1996-2014 by Steve Murrell
+
+Adapted from the ONE 2 ONE, South Africa Version.
+
+Additions and editing done, with permission, by the Every Nation New York City Executive Team.
+
+All rights reserved. No part of this publication may be reproduced or transmitted in any form or by any means, electronic or mechanical, including photocopy, recording, or any information storage and retrieval system, without permission in writing from EVERY NATION NEW YORK CITY.
+
+All Scripture quotations, unless otherwise indicated, are taken from the Holy Bible, New International Version®, NIV®
+
+Copyright © 1973, 1978, 1984, 2011 by Biblica, Inc.®
+
+ISBN: 978-1-3106-2658-6
+
+One 2 One
+
+CONTENTS
+
+Preface – The ENNYC Story
+
+Introduction – Getting Started
+
+Discover the Scriptures – The S.O.A.P Method
+
+1. Creation – A New World
+
+2. Salvation – A New Start
+
+3. Lordship – A New Master
+
+4. Repentance and Forgiveness – A New Direction
+
+5. Water Baptism – A New Life
+
+6. Baptism with the Holy Spirit – A New Power
+
+7. The Bible and Prayer – A New Devotion
+
+8. The Church – New Relationships
+
+9. Faith – A New Victory
+
+10. Spiritual Warfare – A New Enemy
+
+The 4 Stages of Discipleship Growth
+
+The Purpose of this Resource
+
+One 2 One
+
+PREFACE
+
+The Every Nation New York City Story
+
+Every Nation New York City’s story is one of God’s hope and redemption in the midst of pain and brokenness. Our congregation was birthed immediately after the 9/11 terrorist attacks, when Pastor Ron Lewis (Founding and Senior Minister), Pastor Rice Broocks and a team of ministers from the Every Nation movement of churches journeyed to New York City to minister to a city reeling from the shock of this unspeakable tragedy.
+
+Driving into Manhattan, Pastor Ron was deeply moved when he saw the pillar of smoke that had once been the World Trade Towers. At that moment, he felt God clearly speak to him: “Out of these ashes I will build a great church”. Pastor Ron interpreted this to mean that the Lord would grow many churches in NYC, as well as call Every Nation to start a new congregation there. Sensing the urgency of the need, Pastor Ron and Pastor Rice began making immediate plans to birth this new congregation in New York.
+
+Within a few weeks, Every Nation New York City (ENNYC) held its first worship service in the historic Lamb’s Theatre in Times Square. Over the next five years, ENNYC saw hundreds of New Yorkers from all walks of life come through its doors. Countless numbers of people have found God and new life in our services, Connect Groups, and relationships with our members. Many lives have been permanently changed for the better. Over time, ENNYC has borne significant fruit, helping to plant regional churches in Philadelphia and Boston, and sending teams and resources to serve churches in India, Russia, Taiwan, Scotland, Zambia and the Dominican Republic. Here in New York City, several pastors and leaders have risen up to relocate and start new churches.
+
+Today, ENNYC is a diverse, multi-ethnic, multi-site congregation consisting of people from all kinds of backgrounds, career fields and aspirations. We are committed to seeing God transform this city one life at a time through our three core values—winning the lost, building community and healing the broken. Our goal is to develop leaders to plant churches throughout the five Boroughs, the greater New York City metroplex and the surrounding region including New Jersey, Long Island and Connecticut.
+
+* Adapted from ‘The 2020 Vision’, a blueprint for the future of ENNYC.
+
+One 2 One
+
+INTRODUCTION
+
+GETTING STARTED
+
+17 “Come, follow me,” Jesus said, “and I will send you out to fish for people.”
+
+Mark 1:17
+
+These five steps will get you off to the right START, as you follow Christ.
+
+Stop trusting in yourself and your own good works, and start trusting in Christ alone for salvation.
+
+8 For it is by grace you have been saved, through faith—and this is not from yourselves, it is the gift of God— 9 not by works, so that no one can boast.
+
+Ephesians 2:8-9
+
+Turn away from everything the Bible calls sin.
+
+19 Nevertheless, God’s solid foundation stands firm, sealed with this inscription: “The Lord knows those who are his,” and, “Everyone who confesses the name of the Lord must turn away from wickedness.”
+
+2 Timothy 2:19
+
+Attend a Connect Group and a weekly worship service.
+
+... 25 not giving up meeting together, as some are in the habit of doing, but encouraging one another—and all the more as you see the Day approaching.
+
+Hebrews 10:25
+
+Read and obey your Bible every day.
+
+8 Keep this Book of the Law always on your lips; meditate on it day and night, so that you may be careful to do everything written in it. Then you will be prosperous and successful.
+
+Joshua 1:8
+
+Tell others about your new relationship with Christ.
+
+19 Jesus did not let him, but said, “Go home to your own people and tell them how much the Lord has done for you, and how he has had mercy on you.” 20 So the man went away and began to tell in the Decapolis how much Jesus had done for him. And all the people were amazed.
+
+Mark 5:19-20
+
+One 2 One
+
+DISCOVER THE SCRIPTURES
+
+S.O.A.P method
+
+The S.O.A.P method is a simple tool to help you grow in your relationship with God by learning how to read the Scriptures and to apply them to your life. Using the S.O.A.P method should become a consistent habit like washing your hands or taking a bath.
+
+Get a notebook or journal of some kind. Then, like taking a bath, find a private place and a consistent time. Bring your One2One book, a pen and a journal. Choose a verse from the One2One lesson you just finished or are working on. It’s preferable to choose whichever verse interests you or was most meaningful to you. Then simply follow the instructions below based on the S.O.A.P acronym.
+
+Scripture
+
+• Write down the portion of Scripture you will journal on. This is usually a short section that you have underlined or marked as you were reading.
+
+Observation
+
+• Write down your thoughts and observations of the passage.
+
+Application
+
+• Write down how you will apply this passage to your life today.
+
+Prayer
+
+• Write down a prayer to God about your experience today.
+
+Alternatively, you can use one of the following websites if you prefer online journaling:
+
+http://soapstudy.com
+
+m.soapstudy.com
+
+Always remember to begin each journaling session by inviting God to go on this journey with you. He’s got a lot of wisdom and will share it with you through the Scriptures if you will take the time to listen and learn. One day you will look back through these journals and be amazed at the wisdom God has poured into you as you’ve taken the time to journey with Him.
+
+One 2 One
+
+CHAPTER ONE
+
+CREATION
+
+A NEW WORLD
+
+3 Through him all things were made; without him nothing was made that has been made.
+
+John 1:3
+
+God created everything out of nothing or ex nihilo, a Latin phrase meaning ‘out of nothing’. God was before everything. He has always been and all things come from Him.
+
+God created the universe we live in
+
+1 In the beginning God created the heavens and the earth. 2 Now the earth was formless and empty, darkness was over the surface of the deep, and the Spirit of God was hovering over the waters.
+
+Genesis 1:1-2
+
+Genesis 1–The Creation Story
+
+God created:
+
+DAY 1: Light, and separated light from darkness.... it was good.
+
+DAY 2: Separated water from water and formed the sky and land.... it was good.
+
+DAY 3: Vegetation, “all kinds of plants”.... it was good.
+
+DAY 4: Sun, moon, and stars.... it was good.
+
+DAY 5: All living creatures in the sea and air, fish and birds.... it was good.
+
+DAY 6: All living creatures on land, “Animals”.... it was good.
+
+DAY 6: God created man in His image, His likeness.... it was very good.
+
+DAY 7: God rested from all His work.
+
+The Genesis creation narrative doesn’t address scientific questions such as the age of the earth. There are aspects of the account which are open to varying interpretations such as whether or not the word ‘day’ referred to 24 hours or some longer period of time. Many differing creation theories can fit within the framework of scripture, and science simply has not advanced to the place where it can prove any one theory.
+
+However, nearly every major civilization known to man has a supernatural creation story and even secular scientists at the highest levels acknowledge the possibility, if not the likelihood, of intelligent design in creation. To quote Dr. Robert Jastrow, first chairman of NASA’s Lunar Exploration Committee, Chief of the Theoretical Division at NASA and a self-described agnostic: “For the scientist who has lived by his faith in the power of reason, the story ends like a bad dream. He has scaled the mountains of ignorance, he is about to conquer the highest peak; as he pulls himself over the final rock, he is greeted by a band of theologians who have been sitting there for centuries.”
+
+If you look at a work of art you will see the expression of the artist reflected in what he creates. In the same way, creation echoes out the character and nature of the Creator. All that was made was marked by His nature: “it was good”. God’s intention with all of creation from the beginning was good.
+
+All creation has its origin in God. Nothing that exists, exists without God our Creator’s direct involvement. Any theory or idea that claims a different creation plan is in direct conflict with the Creator’s nature, plan and purpose. We are more than ‘lucky mud.’ We are uniquely made in the glory and likeness of God.
+
+1 In the beginning was the Word, and the Word was with God, and the Word was God. 2 He was with God in the beginning. 3 Through him all things were made; without him nothing was made that has been made.
+
+John 1:1-3
+
+It is very important that we understand that we are the offspring of a loving Creator and not some product of chance without the Creator’s involvement. This lays the foundation for the next important question: ‘If I was created, then why was I created?’
+
+God Created Man in His Image
+
+27 So God created mankind in his own image, in the image of God he created them; male and female he created them. 28 God blessed them and said to them, “Be fruitful and increase in number; fill the earth and subdue it. Rule over the fish in the sea and the birds in the sky and over every living creature that moves on the ground.”
+
+Genesis 1:27-28
+
+Mankind was created in our Creator’s image. His character and nature gave us the ability and the potential to create and to rule within the framework of what He created. Part of that framework is the purpose for which we were created.
+
+God Created Man for a Purpose
+
+... 7 everyone who is called by my name, whom I created for my glory, whom I formed and made.
+
+Isaiah 43:7
+
+4 For he chose us in him before the creation of the world to be holy and blameless in his sight… 6 to the praise of his glorious grace, which he has freely given us in the One he loves.
+
+Ephesians 1:4,6
+
+Everything was created by God for His Glory. Our highest calling and the purpose of our existence is that our lives would demonstrate and reflect ‘His Glorious Grace.’
+
+8 Whoever does not love does not know God, because God is love.
+
+1 John 4:8
+
+36 “Teacher, which is the greatest commandment in the Law?” 37 Jesus replied: “‘Love the Lord your God with all your heart and with all your soul and with all your mind.’ 38 This is the first and greatest commandment. 39 And the second is like it: ‘Love your neighbor as yourself.’ 40 All the Law and the Prophets hang on these two commandments.”
+
+Matthew 22:36-40
+
+Furthermore, because God is love, His first and greatest commandment to man is to love Him and to love others as a reflection of His image.
+
+All Creation Testifies of God
+
+20 For since the creation of the world God’s invisible qualities—his eternal power and divine nature—have been clearly seen, being understood from what has been made, so that people are without excuse.
+
+Romans 1:20
+
+There is a famous old question, “What about the people who have never heard about God?” Even before anyone ever explains the Gospel to them, Scripture tells us that the creation around them is already a testimony of God to them.
+
+All of Creation Will Be Accountable to God
+
+13 Nothing in all creation is hidden from God’s sight. Everything is uncovered and laid bare before the eyes of him to whom we must give account.
+
+Hebrews 4:13
+
+It is important to know that we were created. Creation establishes ownership and ownership establishes accountability. By virtue of His creation of us, He owns us and we are accountable to Him. Fundamentally, we are accountable to God to steward the life He has given us in accordance with the purpose for which that life was created, to manifest His grace and glory.
+
+Believing that we are all offspring of a loving Creator who fearfully and wonderfully made us to reflect His image is foundational to our perspective of life and death, right and wrong. This foundation plays a crucial role in all our values and decision-making. But when we look at creation we immediately see and know that something is wrong. What went wrong? We will look at this in the next chapter.
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Genesis 1:1 states that, “in the beginning God created”. This means that God existed before anything else was created. God therefore created everything. What are some of the things God created?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Genesis 1:27-28 states that God created man in His image and assigned him roles. Applying the universal laws of ownership, authorship, and invention man neither owns the earth, nor himself, but rather, is a caretaker of them on God’s behalf. Reflect on what that means for you and how you approach life?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+If God created you to be in His image, is your whole life reflecting His character? If not, what characteristics need to change for you to be more like Him?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+According to Genesis 1, man was created on the 6th day, the last thing God created before resting. This means that man’s first day on earth was a ‘day off’ with God. What does that tell you about God’s intention for your relationship with Him?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+CHAPTER TWO
+
+SALVATION
+
+A NEW START
+
+Therefore, if anyone is in Christ, the new creation has come: The old has gone, the new is here!
+
+2 Corinthians 5:17
+
+A new creation. A fresh start. For all of us who have ever wished we could start over, this is good news. However, before we can really appreciate this good news, we need to understand exactly why we need to start over. Why do we need to become a ‘new creation?’ Why do we need salvation?
+
+The Problem: Separation Because of Our Sin
+
+There is an immeasurable gap separating God and man. The cause of this eternal separation between God and man is sin. Have you ever felt distant from God? We all have. Feeling far from God is very common. Many who sense this vast separation suppose that if they meditate harder, learn more about their religion, or just step into a religious sanctuary, they would be closer to God. But since our separation from God is neither physical nor intellectual, neither¬ meditation nor knowledge can bring us any closer to God. What causes the separation between God and man?
+
+1 Surely the arm of the LORD is not too short to save, nor his ear too dull to hear. 2 But your iniquities have separated you from your God; your sins have hidden his face from you, so that he will not hear.
+
+Isaiah 59:1-2
+
+The separation between God and man is a moral separation. God is holy; man is not. God is good; man is not. God is just; man is not. All men have sinned; therefore, all are eternally separated from God. All will suffer the consequences of sin, which is eternal death.
+
+... 23 for all have sinned and fall short of the glory of God,
+
+Romans 3:23
+
+23 For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+
+Romans 6:23
+
+The Solution: God’s Sacrifice and Substitution
+
+The justice of God demands punishment for man’s sin. Jesus Christ took man’s punishment by sacrificing himself on the cross, paying the penalty for sin. Since God is righteous and just, He could not allow sin to go unpunished. Since He is loving and compassionate, He did not want mankind to be eternally separated from Him. The divine solution to this problem was for Jesus, God’s only Son, to become the sacrifice for sin.
+
+26 Otherwise Christ would have had to suffer many times since the creation of the world. But he has appeared once for all at the culmination of the ages to do away with sin by the sacrifice of himself. 27 Just as people are destined to die once, and after that to face judgment, 28 so Christ was sacrificed once to take away the sins of many; and he will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
+
+Hebrews 9:26-28
+
+What exactly happened on the cross? Through His death on the cross, Jesus took our place and our punishment. He exchanged His righteousness for our sin. He took our curse and gave us His blessings. Because of His sinless life, Jesus was the only one qualified to pay the penalty for man’s sin and to bridge the gap between God and man.
+
+21 God made him who had no sin to be sin for us, so that in him we might become the righteousness of God.
+
+2 Corinthians 5:21
+
+13 Christ redeemed us from the curse of the law by becoming a curse for us, for it is written: “Cursed is everyone who is hung on a pole.”
+
+Galatians 3:13
+
+The Result: Our Salvation and Reconciliation
+
+Christ died on the cross so that we could receive forgiveness of our sins, be reconciled to God and have eternal life. We have all sinned against a holy and righteous God. The penalty for sin is eternal separation from God in hell. God is just and must punish sin. He is also loving and does not want us to go to hell forever. Therefore, He sent His Son, Jesus Christ, to pay the penalty for sin by dying on the cross. Because of His sinless life, death could not hold Jesus. He was raised from the dead on the third day. In Christ, we experience forgiveness for our sins and eternal life. In Him we are restored to right standing before God and given a new life as His children.
+
+16 For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life.
+
+John 3:16
+
+7 In him we have redemption through his blood, the forgiveness of sins, in accordance with the riches of God’s grace...
+
+Ephesians 1:7
+
+The Response: Receive God’s Gift by Faith
+
+We receive salvation when we stop trusting in ourselves and put our trust in what Christ did for us. Our salvation is a result of God’s grace. It is based on what Jesus did for us on the cross. It has nothing to do with what we do for Him. We cannot save ourselves or earn God’s approval through the good works we do. We are saved by God’s grace when we realize our need for a Savior, turn from sin, and receive Jesus Christ as Lord and Savior, putting our trust in Him alone for salvation.
+
+9 If you declare with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. 10 For it is with your heart that you believe and are justified, and it is with your mouth that you profess your faith and are saved.
+
+Romans 10:9-10
+
+12 Yet to all who did receive him, to those who believed in his name, he gave the right to become children of God— 13 children born not of natural descent, nor of human decision or a husband’s will, but born of God.
+
+John 1:12-13
+
+13 But now in Christ Jesus you who once were far away have been brought near by the blood of Christ.
+
+Ephesians 2:13
+
+8 For it is by grace you have been saved, through faith—and this is not from yourselves, it is the gift of God— 9 not by works, so that no one can boast.
+
+Ephesians 2:8-9
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Have you stopped trusting in yourself and started trusting in Christ alone for salvation?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you turned away from all known sin?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you confessed Jesus as the Lord and Master of your life?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you willing to follow and obey Him for the rest of your life?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+Prayer for Salvation
+
+Heavenly Father ... I acknowledge that the separation between us ... is because of my sin ... I confess that I have sinned ... and have fallen far short of Your glory ... thank You that You sent Your Son Jesus ... to pay the penalty for my sin ... I believe that He died on the cross for me ... I believe that You raised Him from the dead ... I am sorry for my sins ... and I ask You to forgive and cleanse me ... I want to turn away from everything the Bible calls sin ... and receive You as my Lord, Master, and Savior ... help me to love, serve and obey You ... for the rest of my life ... in Jesus’ name ... Amen!
+
+Date: _________________
+
+(tap and hold to highlight and enter comments)
+
+One 2 One
+
+A New Life
+
+If you have sincerely prayed that prayer, the Bible promises that the old has gone and the new has come! The next seven lessons will introduce you to some of the new things that have come.
+
+It is important to understand that you are created with three different parts. You are body, soul and spirit. Your body consists of five senses: sight, hearing, touch, taste and smell. Your body connects you to the physical world, but your five senses are also a doorway to your soul and spirit. Your soul connects you to the human world and it defines who you are as a person and connects you to other persons. Your soul is eternal and will continue after you die. Your soul consists of your mind, will and emotions. Your spirit is also a nonphysical part of your being, believed to also live on after death. Your spirit was created as the receiver and image bearer of God. When you are born again, your spirit is reborn and renewed to become the image bearer of Christ in us. Thereafter your soul—mind, will and emotions—are being saved and renewed daily as you allow the Holy Spirit and the Word of God to transform and heal your mind, will and emotions of all past sin, hurts, lies and bad experiences.
+
+The following seven lessons will help you to understand how God transforms your life so that your will, your mind and your emotions will enjoy, love and obey Him completely.
+
+Application
+
+Share with three people who do not know Jesus what He has done in your life. Write their names below:
+
+1.______________________________________________________________________
+
+2.______________________________________________________________________
+
+3.______________________________________________________________________
+
+(tap and hold to highlight and enter comments)
+
+One 2 One
+
+CHAPTER THREE
+
+LORDSHIP
+
+A NEW MASTER
+
+36 “Therefore let all Israel be assured of this: God has made this Jesus, whom you crucified, both Lord and Messiah.”
+
+Acts 2:36
+
+Lordship is one of the central messages of the Bible. Jesus is referred to as ‘Lord’ 92 times in the book of Acts and 747 times in the whole New Testament, while being referred to as ‘Savior’ only twice in Acts and 24 times in the New Testament. The biblical emphasis is overwhelmingly on the concept of Lordship. Lord means master, the one who rules. The one who makes the decisions.
+
+Lordship Begins in the Heart
+
+Submitting to Christ as Lord is not about following a set of religious rules and traditions. Rather, Lordship is a matter of the heart. Lordship begins as an internal submission of the heart. If it is genuine, it will eventually manifest itself in outward obedience.
+
+15 But in your hearts revere Christ as Lord. Always be prepared to give an answer to everyone who asks you to give the reason for the hope that you have. But do this with gentleness and respect,...
+
+1 Peter 3:15
+
+Lordship and Salvation
+
+The starting point of salvation is the acknowledgment of the Lordship of Christ. Confessing Jesus as Lord implies a submission to His Lordship in every area of life. If Jesus is not Lord of all, He is not Lord at all. We do not have the option of receiving Him as Savior and not as Lord. Salvation is an ‘all or nothing’ proposal.
+
+9 If you declare with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved.
+
+Romans 10:9
+
+Lordship and Love
+
+God is both Savior and Lord. Knowing God only as Savior will lead us into love without obedience. Knowing God only as Lord will lead us into obedience without love. When we know Him as both Lord and Savior, we will both love obedience and obey with love. Our obedience to Him is a natural outflow of our love for Him, and our love for Him will always overflow into obeying Him.
+
+37 Jesus replied: “‘Love the Lord your God with all your heart and with all your soul and with all your mind.’...
+
+Matthew 22:37
+
+15 “If you love me, keep my commands.... ”
+
+John 14:15
+
+Lordship Demands Obedience
+
+Anyone who claims Christ as their Lord is expected to do what He says. Intellectual faith and empty confession is not enough. If we say Christ is our Lord, our lifestyle should back up our claim.
+
+46 “Why do you call me, ‘Lord, Lord,’ and do not do what I say?... ”
+
+Luke 6:46
+
+21 “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father who is in heaven.... ”
+
+Matthew 7:21
+
+Lordship is a Continuous Walk
+
+We begin our Christian life by acknowledging that Jesus is Lord. We must continue to walk under His Lordship for the rest of our lives. Lordship is not having a one-time experience with God, but developing a lifetime walk with God. The more we know Him, the more we submit to Him.
+
+6 So then, just as you received Christ Jesus as Lord, continue to live your lives in him,...
+
+Colossians 2:6
+
+6 Whoever claims to live in him must live as Jesus did.
+
+1 John 2:6
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Are there areas in your life that you have not yet submitted to the Lordship of Jesus Christ?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are your relationships under his Lordship?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are your finances under his Lordship?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Is your time submitted to his Lordship?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+CHAPTER FOUR
+
+REPENTANCE AND FORGIVENESS
+
+A NEW DIRECTION
+
+38 Peter replied, “Repent and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of your sins. And you will receive the gift of the Holy Spirit...”
+
+Acts 2:38
+
+Driving a car in the wrong direction on a one-way street is foolish and dangerous. Some drive the wrong way out of ignorance; others out of rebellion. There is a spiritual parallel. If we are heading away from God, whether out of ignorance or rebellion, then we are going the wrong way on a one-way street that will ultimately lead to eternal separation from God. Until we turn around (repent) and begin following Christ, every step we take is a step in the wrong direction—a step away from God.
+
+Repentance, Sorrow, and Fruit
+
+Real repentance begins when we are truly sorry for our sins. This “godly sorrow” makes no excuses, takes full responsibility, and doesn’t place blame on people, society or circumstances. It acknowledges that our sin is primarily against God. Godly sorrow produces true repentance and a changed life.
+
+10 Godly sorrow brings repentance that leads to salvation and leaves no regret, but worldly sorrow brings death.
+
+2 Corinthians 7:10
+
+5 Then I acknowledged my sin to you and did not cover up my iniquity. I said, “I will confess my transgressions to the LORD.”And you forgave the guilt of my sin.
+
+Psalm 32:5
+
+On the other hand, “worldly sorrow” only produces excuses. While godly sorrow is having a broken heart when we realize we have offended a holy God, worldly sorrow is being sorry we got caught, or being sorry we have to suffer the consequences of sin. The ultimate difference between godly sorrow and worldly sorrow is the fruit. Worldly sorrow never produces the fruit of a changed life; it only produces spiritual death.
+
+20 First to those in Damascus, then to those in Jerusalem and in all Judea, and then to the Gentiles, I preached that they should repent and turn to God and demonstrate their repentance by their deeds.
+
+Acts 26:20
+
+8 Produce fruit in keeping with repentance.
+
+Matthew 3:8
+
+How do we know that we have repented of our sin? What fruit is produced after true repentance?
+
+11 See what this godly sorrow has produced in you: what earnestness, what eagerness to clear yourselves, what indignation, what alarm, what longing, what concern, what readiness to see justice done. At every point you have proved yourselves to be innocent in this matter.
+
+2 Corinthians 7:11
+
+Repentance and Forgiveness
+
+The parable of the prodigal son in Luke 15:11-24 is a beautiful picture of true repentance. The wayward son came to his senses, turned his back on his folly, and returned to his father. He made a 180 degree turn around, walking away from his former life of sin and rebellion. His father forgave him for his offenses and received him back. In the same way, our Heavenly Father is faithful to forgive us when we turn to Him and repent of our sins.
+
+19 Repent, then, and turn to God, so that your sins may be wiped out, that times of refreshing may come from the Lord,...
+
+Acts 3:19
+
+No Regret
+
+Repentance is turning away from sin and turning to God. It means we stop trusting in our own good deeds and religious activity and start trusting in Christ alone. We were going in the wrong direction; now we are going in the right direction. We were running from God; now we are walking with Him. Repentance is the starting point of a new life. Repentance takes us off the treadmill of a self-centered life and puts us on the fast-track of God’s glorious purpose for our lives. Turning to God means no looking back and no regrets.
+
+10 Godly sorrow brings repentance that leads to salvation and leaves no regret, but worldly sorrow brings death.
+
+2 Corinthians 7:10
+
+Forgiveness & Confession
+
+Ever had a stain on your shirt that you couldn’t wash out? Imagine a stain remover that would not only remove the stain, but would make the shirt just like new again. That’s what happens when we repent and receive Jesus as our Lord and Savior. He not only cleans sin’s stain of guilt and shame from our hearts, He gives us a new heart.
+
+9 If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness.
+
+I John 1:9
+
+Q: What does confession mean?
+
+A: To acknowledge personal guilt and admit specific sin
+
+5 Then I acknowledged my sin to you and did not cover up my iniquity. I said, “I will confess my transgressions to the Lord.” And you forgave the guilt of my sin.
+
+Psalm 32:5
+
+Q: What happens if we fail to confess our sin?
+
+A: We experience continued conviction, guilt, condemnation, shame and bondage
+
+13 Whoever conceals their sins does not prosper, but the one who confesses and renounces them finds mercy.
+
+Proverbs 28:13
+
+3 When I kept silent, my bones wasted away through my groaning all day long. 4 For day and night your hand was heavy on me; my strength was sapped as in the heat of summer.
+
+Psalm 32:3-4
+
+Q: Who should we confess our sin to in order to receive forgiveness?
+
+A: God
+
+4 Against you, you only, have I sinned and done what is evil in your sight; so you are right in your verdict and justified when you judge.
+
+Psalm 51:4
+
+Q: When should we confess our sin to another person?
+
+A: When we need prayer for healing and victory in that area of our lives
+
+16 Therefore confess your sins to each other and pray for each other so that you may be healed. The prayer of a righteous person is powerful and effective.
+
+James 5:16
+
+Results of Confession
+
+Q: What does God do when we confess our sin?
+
+A: Forgives us and purifies us from all unrighteousness
+
+9 If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness.
+
+I John 1:9
+
+Q: Is it possible to have a clean conscience? How?
+
+A: Yes, by the Blood of Jesus
+
+14 How much more, then, will the blood of Christ, who through the eternal Spirit offered himself unblemished to God, cleanse our consciences from acts that lead to death, so that we may serve the living God!
+
+Hebrews 9:14
+
+Q: How does God deal with our sin?
+
+A: Removes it as far as the East is from the West
+
+... 12 as far as the east is from the west, so far has he removed our transgressions from us.
+
+Psalm 103:12
+
+The Importance of Forgiving Others
+
+Q: How often should we forgive people who sin against us?
+
+A: As many times as they ask forgiveness
+
+4 Even if they sin against you seven times in a day and seven times come back to you saying ‘I repent,’ you must forgive them.”
+
+Luke 17:4
+
+21 Then Peter came to Jesus and asked, “Lord, how many times shall I forgive my brother or sister who sins against me? Up to seven times?” 22 Jesus answered, “I tell you, not seven times, but seventy-seven times.
+
+Matthew 18:21-22
+
+Q: What happens if we refuse to forgive?
+
+A: We will be tormented and defiled by a root of bitterness.
+
+34 In anger his master handed him over to the jailers to be tortured, until he should pay back all he owed. 35 “This is how my heavenly Father will treat each of you unless you forgive your brother or sister from your heart.”
+
+Matthew 18:34-35
+
+5 And have you completely forgotten this word of encouragement that addresses you as a father addresses his son? It says, “My son, do not make light of the Lord’s discipline, and do not lose heart when he rebukes you,...
+
+Hebrews 12:5
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Is your life going in a new direction?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are there sinful areas in your life that you struggle with?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are there areas of intense temptation or consistent weakness that you need prayer for?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are there sins that you have turned away from, yet you still feel condemned about?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you accountable to someone? Who?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are there any people you need to forgive, or people you need to ask forgiveness from?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+CHAPTER FIVE
+
+WATER BAPTISM
+
+A NEW LIFE
+
+19 Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,...
+
+Matthew 28:19
+
+There Are Three Primary Baptisms the Bible refers to:
+
+1. Baptism into Christ - Indwelling of Christ:
+
+... 27 for all of you who were baptized into Christ have clothed yourselves with Christ.
+
+Galatians 3:27
+
+2. Baptism into Water - Identify with Christ’s death:
+
+12 But when they believed Philip as he proclaimed the good news of the kingdom of God and the name of Jesus Christ, they were baptized, both men and women.
+
+Acts 8:12
+
+3. Baptism in the Holy Spirit - Infilling of the Holy Spirit:
+
+16 John answered them all, “I baptize you withwater. But one who is more powerful than I will come, the straps of whose sandals I am not worthy to untie. He will baptize you with the Holy Spirit and fire.... ”
+
+Luke 3:16
+
+Who should be baptized?
+
+Everyone who has genuinely repented of his or her sins and has given their life to Christ should be baptized in water. Baptism is the public declaration of personal conviction and it is the next step after being saved. It is a personal decision, which no one else can make for us.
+
+38 Peter replied, “Repent and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of your sins. And you will receive the gift of the Holy Spirit.... ”
+
+Acts 2:38
+
+Why should every believer be baptized?
+
+1. In obedience to Christ’s instruction. Baptism is a command from Christ.
+
+19 Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,...
+
+Matthew 28:19
+
+2. It’s a decision in faith to leave your sinful life behind and obey Christ. As Paul was told shortly after his conversion:
+
+‘ ... 16 And now what are you waiting for? Get up, be baptized and wash your sins away, calling on his name.’
+
+Acts 22:16
+
+3. It’s a demonstration of truth. Being born again, we have been united with Jesus in His death, His burial and His resurrection from the dead:
+
+4 We were therefore buried with him through baptism into death in order that, just as Christ was raised from the dead through the glory of the Father, we too may live a new life.
+
+Romans 6:4
+
+4. It’s following Christ’s example. Christ was baptized publicly not because He had sin but to demonstrate His wholehearted submission to His Father. He identified Himself with sinful human beings and obeyed His Father’s will. This pleased His Father.
+
+16 As soon as Jesus was baptized, he went up out of the water. At that moment heaven was opened, and he saw the Spirit of God descending like a dove and alighting on him. 17 And a voice from heaven said, “This is my Son, whom I love; with him I am well pleased.”
+
+Matthew 3:16-17
+
+Do we need to be baptized in order to be saved?
+
+We are saved by grace alone through Christ alone. Baptism is then a public declaration of your obedience to Christ in faith after you have accepted Jesus as Savior and Lord.
+
+8 For it is by grace you have been saved, through faith—and this is not from yourselves, it is the gift of God— 9 not by works, so that no one can boast.
+
+Ephesians 2:8-9
+
+When should a believer be baptized?
+
+Only after they have come to the faith and believe in what Jesus did for them at the cross.
+
+32 Then they spoke the word of the Lord to him and to all the others in his house. 33 At that hour of the night the jailer took them and washed their wounds; then immediately he and all his household were baptized.
+
+Acts 16:32–33
+
+12 But when they believed Philip as he proclaimed the good news of the kingdom of God and the name of Jesus Christ, they were baptized, both men and women.
+
+Acts 8:12
+
+How should you be baptized?
+
+Baptism comes from the word “baptisma” which means “to dip or immerse”. The examples we see from the Bible were that they were immersed; they went into the water and came up out of the water. The Bible is very clear that God commands all believers to be baptized, to be immersed into Christ’s death so that they can now live for Him.
+
+In Acts chapter 2, when the crowd asked Peter what they should do in response to his sermon, he gave them a three-fold answer: repent, be baptized, and receive the gift of the Holy Spirit. Thousands responded and were added to the fellowship of believers. The biblical pattern is that everyone who is baptized is also added to the spiritual family and becomes an active member of the body: serving with their gifts, talents and resources, honoring God in all they do.
+
+38 And he gave orders to stop the chariot. Then both Philip and the eunuch went down into the water and Philip baptized him.
+
+Acts 8:38
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Have you repented of your sins?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you put your trust in Christ alone for salvation?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you been baptized in water since you repented?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Would you like to get water baptized?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+CHAPTER SIX
+
+THE BAPTISM OF THE HOLY SPIRIT
+
+A NEW POWER
+
+“ ... 8 But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth.”
+
+Acts 1:8
+
+It is impossible to live the Christian life apart from the power and presence of the Holy Spirit. Jesus promised that the Holy Spirit would quench our thirst and lead us into all truth.
+
+37 On the last and greatest day of the festival, Jesus stood and said in a loud voice, “Let anyone who is thirsty come to me and drink. 38 Whoever believes in me, as Scripture has said, rivers of living water will flow from within them.” 39 By this he meant the Spirit, whom those who believed in him were later to receive. Up to that time the Spirit had not been given, since Jesus had not yet been glorified.
+
+John 7:37-39
+
+7 But very truly I tell you, it is for your good that I am going away. Unless I go away, the Advocate will not come to you; but if I go, I will send him to you. ... 13 But when he, the Spirit of truth, comes, he will guide you into all the truth. He will not speak on his own; he will speak only what he hears, and he will tell you what is yet to come.
+
+John 16:7, 13
+
+Jesus the Baptizer
+
+John the Baptist taught that water baptism was an act of repentance, and pointed out that Jesus would baptize His disciples with the Holy Spirit.
+
+11 “I baptize you with water for repentance. But after me comes one who is more powerful than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and fire.... ”
+
+Matthew 3:11
+
+Power to be a Witness
+
+The Holy Spirit empowers us to be effective witnesses. A witness is one who not only tells the truth, but also lives the truth.
+
+“ ... 8 But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth.”
+
+Acts 1:8
+
+God’s Gift for Today
+
+Peter taught that the baptism of the Holy Spirit is a gift promised to every believer, not just for those present during Pentecost.
+
+38 Peter replied, “Repent and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of your sins. And you will receive the gift of the Holy Spirit. 39 The promise is for you and your children and for all who are far off—for all whom the Lord our God will call.”
+
+Act 2:38-39
+
+How to Receive the Baptism in the Holy Spirit
+
+James tells us that we do not have because we do not ask. In order to receive the baptism of the Holy Spirit, we must ask—and we must ask in faith.
+
+“ ... 13 If you then, though you are evil, know how to give good gifts to your children, how much more will your Father in heaven give the Holy Spirit to those who ask him! ”
+
+Luke 11:13
+
+The Laying on of Hands
+
+Many disciples in the New Testament received the baptism of the Holy Spirit through the laying on of hands.
+
+17 Then Peter and John placed their hands on them, and they received the Holy Spirit.
+
+Act 8:17
+
+Spiritual Gifts
+
+The baptism in the Holy Spirit is accompanied by the manifestation of spiritual gifts. In the biblical accounts of the baptism in the Holy Spirit, the most common spiritual gift manifested is the gift of tongues.
+
+4 All of them were filled with the Holy Spirit and began to speak in other tongues as the Spirit enabled them.
+
+Acts 2:4
+
+44 While Peter was still speaking these words, the Holy Spirit came on all who heard the message. 45 The circumcised believers who had come with Peter were astonished that the gift of the Holy Spirit had been poured out even on Gentiles. 46 For they heard them speaking in tongues and praising God...
+
+Act 10:44-46
+
+6 When Paul placed his hands on them, the Holy Spirit came on them, and they spoke in tongues and prophesied.
+
+Acts 19:6
+
+The Gift of Tongues and Prophecy
+
+Tongues and prophecy are both designed for edification and strengthening. Tongues strengthen the individual and prophecy strengthens the church.
+
+1 Follow the way of love and eagerly desire gifts of the Spirit, especially prophecy. 2 For anyone who speaks in a tongue does not speak to people but to God. Indeed, no one understands them; they utter mysteries by the Spirit. 3 But the one who prophesies speaks to people for their strengthening, encouraging and comfort.
+
+1 Corinthians 14:1-3
+
+4 Anyone who speaks in a tongue edifies themselves, but the one who prophesies edifies the church . 5 I would like every one of you to speak in tongues, but I would rather have you prophesy. The one who prophesies is greater than the one who speaks in tongues, unless someone interprets, so that the church may be edified. ...
+
+1 Corinthians 14:4-5
+
+14 For if I pray in a tongue, my spirit prays, but my mind is unfruitful. 15 So what shall I do? I will pray with my spirit, but I will also pray with my understanding; I will sing with my spirit, but I will also sing with my understanding. ...
+
+1 Corinthians 14:14-15
+
+39 Therefore, my brothers and sisters, be eager to prophesy, and do not forbid speaking in tongues. 40 But everything should be done in a fitting and orderly way.
+
+1 Corinthians 14:39-40
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Have you repented of your sins?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you put your trust in Christ alone for salvation?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you received the baptism in the Holy Spirit?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Would you like to have someone pray with you to receive the baptism in the Holy Spirit?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+CHAPTER SEVEN
+
+THE BIBLE AND PRAYER
+
+A NEW DEVOTION
+
+42 They devoted themselves to the apostles’ teaching and to fellowship, to the breaking of bread and to prayer.
+
+Acts 2:42
+
+Christianity is more than just a religion. It is first and foremost a relationship with God. The foundation of any healthy relationship is communication. The better the communication, the better the relationship will be. God talks to us in many ways but primarily through His Word, the Bible and prayer. We learn to hear the sound of God’s voice in our lives when we read His Word. He listens to us when we pray. We respond to His Word with action. He responds to our prayers with action.
+
+THE BIBLE
+
+More than just a random collection of stories, poems and letters, the Bible is the inspired written Word of God. We must follow the example of Job who valued God’s Word more than food.
+
+12 I have not departed from the commands of his lips; I have treasured the words of his mouth more than my daily bread.
+
+Job 23:12
+
+Before turning to Christ, we lived by the world’s standards. Now we accept the Bible as the final authority for what we believe and how we live. God’s Word is the ultimate and absolute standard for every area of life.
+
+What is the Key to Spiritual Growth?
+
+As newborn babies crave milk and need it to grow, so new Christians crave God’s Word and need it to grow strong in faith.
+
+2 Like newborn babies, crave pure spiritual milk, so that by it you may grow up in your salvation, 3 now that you have tasted that the Lord is good.
+
+1 Peter 2:2-3
+
+The more we hear and read the Bible, the more our faith will grow.
+
+17 Consequently, faith comes from hearing the message, and the message is heard through the word about Christ.
+
+Romans 10:17
+
+How Can I Resist Temptation?
+
+Jesus resisted temptation, not by willpower, but by knowing and speaking God’s Word. We can win the temptation war the same way, by knowing and speaking God’s Word.
+
+3 The tempter came to him and said, “If you are the Son of God, tell these stones to become bread.” 4 Jesus answered, “It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.’ ”
+
+Matthew 4:3-4
+
+Head knowledge and religious facts don’t produce purity and holiness. The Word, planted deep in our hearts, will keep us from sin.
+
+9 How can a young person stay on the path of purity? By living according to your word. ... 11 I have hidden your word in my heart that I might not sin against you.
+
+Psalm 119:9, 11
+
+How Can I be Successful?
+
+Meditate on God’s Word and carefully obey it; then success is inevitable. Obedience brings success.
+
+8 Keep this Book of the Law always on your lips; meditate on it day and night, so that you may be careful to do everything written in it. Then you will be prosperous and successful.
+
+Joshua 1:8
+
+How Can I Know God’s Will for my Life?
+
+As we renew our minds by studying God’s Word, we will be transformed and will understand God’s will.
+
+2 Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God's will is—his good, pleasing and perfect will.
+
+Romans 12:2
+
+What Happens if I Know God’s Word but Don’t do What it Says?
+
+The measure of our spiritual progress is not how much of the Bible we know, but how much we obey. Those who constantly learn but fail to obey end up deceiving themselves.
+
+22 Do not merely listen to the word, and so deceive yourselves. Do what it says.
+
+James 1:22
+
+PRAYER
+
+Jesus is our best example for prayer. By observing His personal prayer life, we can learn important principles on how to have an intimate time of connection with the Father.
+
+1 One day Jesus was praying in a certain place. When he finished, one of his disciples said to him, “Lord, teach us to pray, just as John taught his disciples.”
+
+Luke 11:1
+
+6 Do not be anxious about anything, but in every situation, by prayer and petition, with thanksgiving, present your requests to God. 7 And the peace of God, which transcends all understanding, will guard your hearts and your minds in Christ Jesus.
+
+Philippians 4:6-7
+
+How are we Not to Pray?
+
+Do not pray like the hypocrites (out of selfish motives).
+
+5 “And when you pray, do not be like the hypocrites, for they love to pray standing in the synagogues and on the street corners to be seen by others. Truly I tell you, they have received their reward in full. ... ”
+
+Matthew 6:5
+
+Do not pray like the pagans (relying on human effort).
+
+7 And when you pray, do not keep on babbling like pagans, for they think they will be heard because of their many words. 8 Do not be like them, for your Father knows what you need before you ask him.
+
+Matthew 6:7, 8
+
+How Should we Pray?
+
+Pray personally to the Father, not saints or angels, not Mary or some impersonal force.
+
+6 But when you pray, go into your room, close the door and pray to your Father, who is unseen. Then your Father, who sees what is done in secret, will reward you.
+
+Matthew 6:6
+
+Pray through Jesus. He is the only way to the Father.
+
+5 For there is one God and one mediator between God and mankind, the man Christ Jesus,...
+
+1 Timothy 2:5
+
+6 Jesus answered, “I am the way and the truth and the life. No one comes to the Father except through me. ... ”
+
+John 14:6
+
+What can we Pray for?
+
+For God’s will to be done…in your life, in your family, in your church, in your city, in your nation, in the whole earth.
+
+... 10 your kingdom come, your will be done, on earth as it is in heaven.
+
+Matthew 6:10
+
+For provision...for personal and family needs to be met.
+
+11 Give us today our daily bread.
+
+Matthew 6:11
+
+For forgiveness...that we might receive forgiveness from God and forgive those who have offended us.
+
+12 And forgive us our debts, as we also have forgiven our debtors.
+
+Matthew 6:12
+
+For victory over temptation...and for protection from the devil’s schemes.
+
+‘ ... 13 And lead us not into temptation, but deliver us from the evil one.’
+
+Matthew 6:13
+
+Does God Really Answer Prayer?
+
+Absolutely! The more specific the prayers, the more specific the answers will be. The secret is to pray according to His will. We know His will by knowing His Word. Therefore, as we pray according to His Word, we know He will answer.
+
+14 This is the confidence we have in approaching God: that if we ask anything according to his will, he hears us. 15 And if we know that he hears us—whatever we ask—we know that we have what we asked of him.
+
+1 John 5:14-15
+
+The condition of answered prayer:
+
+7 If you remain in me and my words remain in you, ask whatever you wish, and it will be done for you.
+
+John 15:7
+
+... 10 your kingdom come, your will be done, on earth as it is in heaven.
+
+Matthew 6:10
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Do you have a set time and place for daily Bible reading and prayer?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you involved in a Connect Group?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you forgiven all who have sinned against you?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Begin praying for your “daily bread.”
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you committed to personal and corporate prayer?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+What are you trusting God for?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+When you pray, pray the Word of God.
+
+Keep a prayer journal to record God’s faithfulness.
+
+One 2 One
+
+CHAPTER EIGHT
+
+THE CHURCH
+
+NEW RELATIONSHIPS
+
+16 Simon Peter answered, “You are the Messiah, the Son of the living God.” 17 Jesus replied, “Blessed are you, Simon son of Jonah, for this was not revealed to you by flesh and blood, but by my Father in heaven. 18 And I tell you that you are Peter, and on this rock I will build my church, and the gates of Hades will not overcome it....”
+
+Matthew 16:16-18
+
+Through a revelation of the Holy Spirit, Peter confessed the true identity of Jesus, the Son of the living God. Jesus said this truth would be the foundation stone that His church would be built on. He also described the type of church He would build, a victorious church that would overcome the kingdom of darkness. Jesus and Paul both used the word ‘church’ in reference to the people of God. In Scripture, the word ‘church’ never referred to a religious building or a meeting. A church is a definable community of believers connected by geography, activity and mutual agreement. Following are five benefits of being part of a local church.
+
+1. Friendship
+
+Real friends. Everyone needs them. Few find them. The best place to look for a real friend is in your spiritual family. True friends are those who have our best interest in mind. They stick with us through thick and thin. Real friends never lead us away from God. Instead, they encourage and motivate us to godliness.
+
+17 A friend loves at all times, and a brother is born for a time of adversity.
+
+Proverbs 17:17
+
+24 One who has unreliable friends soon comes to ruin, but there is a friend who sticks closer than a brother.
+
+Proverbs 18:24
+
+2. Fellowship
+
+If a piece of burning coal is removed from the fire, it will cool off. If it is put back in the middle of a pile of red-hot coals, it will burn again. The same is true of Christians. If a Christian is removed from fellowship with other red-hot Christians, he will cool off spiritually. If a Christian stays in fellowship, he will stay on fire for God.
+
+42 They devoted themselves to the apostles’ teaching and to fellowship, to the breaking of bread and to prayer. ... 44 All the believers were together and had everything in common. 45 They sold property and possessions to give to anyone who had need. 46 Every day they continued to meet together in the temple courts. They broke bread in their homes and ate together with glad and sincere hearts,...
+
+Acts 2:42, 44-46
+
+14 Do not be yoked together with unbelievers. For what do righteousness and wickedness have in common? Or what fellowship can light have with darkness?
+
+2 Corinthians 6:14
+
+3. Family
+
+God the Father is a family God, He puts the rejected and lonely in families where they are loved, and learn to love. He requires that we walk in unity and grow in healthy relationships. He adopted us as His own and added us to a people, not to structures or organizations.
+
+19 Consequently, you are no longer foreigners and strangers, but fellow citizens with God’s people and also members of his household,...
+
+Ephesians 2:19
+
+35 Now a slave has no permanent place in the family, but a son belongs to it forever.
+
+John 8:35
+
+14 For those who are led by the Spirit of God are the children of God.
+
+Romans 8:14
+
+48 He replied to him, “Who is my mother, and who are my brothers?” 49 Pointing to his disciples, he said, “Here are my mother and my brothers. 50 For whoever does the will of my Father in heaven is my brother and sister and mother. ”
+
+Matthew 12:48-50
+
+Worship
+
+God is looking for sincere worshippers. Worship is simply the expression of our love, devotion and commitment to God.
+
+“ ... 23 Yet a time is coming and has now come when the true worshipers will worship the Father in the Spirit and in truth, for they are the kind of worshipers the Father seeks. 24 God is spirit, and his worshipers must worship in the Spirit and in truth. ”
+
+John 4:23-24
+
+Discipleship
+
+The last command Jesus gave His followers before He ascended to heaven was to go and make disciples.
+
+A disciple is someone who:
+
+Loves God = obeying Him
+
+Loves Others = living in relationship
+
+Lives on Mission = making disciples
+
+Discipleship is a 4-stage, cyclical process. The first stage of discipleship is when we engage people with the Gospel (the good news) that God loves them and wants them to know Him. Our goal is to help them choose to believe the Gospel and receive Christ. The next stage is to help establish these new believers in their relationship with God so that they will go to on to become disciples. The third stage of discipleship is to equip these new disciples to go and make disciples themselves. The last stage of discipleship is to empowe r these growing disciples to lead others into disciple-making, which starts the cycle in a new generation of disciple-makers. In the same way that the normal human life-cycle calls for us to be both children and parents of children, God’s plan is that we would all be both disciples and disciple-makers.
+
+“ ... 19 Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 20 and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
+
+Matthew 28:19-20
+
+18 As Jesus was getting into the boat, the man who had been demon-possessed begged to go with him. 19 Jesus did not let him, but said, “Go home to your own people and tell them how much the Lord has done for you, and how he has had mercy on you.”
+
+Mark 5:18-19
+
+2 And the things you have heard me say in the presence of many witnesses entrust to reliable people who will also be qualified to teach others.
+
+2 Timothy 2:2
+
+15 But in your hearts revere Christ as Lord. Always be prepared to give an answer to everyone who asks you to give the reason for the hope that you have. But do this with gentleness and respect,...
+
+1 Peter 3:15
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Are you making disciples? Who are you teaching to obey God’s Word?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you an active member of a local church, and discipleship group?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you ready to give an answer for the hope of your salvation?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Name three Christians you can call for help in case of a spiritual emergency. Have you ever called them?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+CHAPTER NINE
+
+FAITH
+
+A NEW VICTORY
+
+3 In fact, this is love for God: to keep his commands. And his commands are not burdensome, 4 for everyone born of God overcomes the world. This is the victory that has overcome the world, even our faith. 5 Who is it that overcomes the world? Only the one who believes that Jesus is the Son of God.
+
+1 John 5:3-5
+
+17 For in the gospel the righteousness of God is revealed—a righteousness that is by faith from first to last, just as it is written: “The righteous will live by faith.”
+
+Romans 1:17
+
+The key to living a victorious Christian life is having complete trust in Jesus Christ. That’s what faith is. The more we know him, the more we will trust him. Our faith will grow as we read and obey His Word.
+
+Faith is Essential for Salvation
+
+Faith, complete trust in Christ alone, is essential for salvation.
+
+8 For it is by grace you have been saved, through faith—and this is not from yourselves, it is the gift of God— 9 not by works, so that no one can boast.
+
+Ephesians 2:8-9
+
+Faith Pleases God
+
+For the genuine Christian, the major motivating factor for all of life is the desire to please God, not man. The key to pleasing God is faith, trusting who God is and what He says.
+
+6 And without faith it is impossible to please God, because anyone who comes to him must believe that he exists and that he rewards those who earnestly seek him.
+
+Hebrews 11:6
+
+Faith Obeys God
+
+Abraham is called the father of faith. His faith in God always manifested itself in obedience to God’s commands, even the ones he didn’t fully understand.
+
+8 By faith Abraham, when called to go to a place he would later receive as his inheritance, obeyed and went, even though he did not know where he was going.
+
+Hebrews 11:8
+
+Faith Overcomes the World
+
+The foundation of all spiritual victory is faith in God. Complete trust in Him.
+
+... 4 for everyone born of God overcomes the world. This is the victory that has overcome the world, even our faith. 5 Who is it that overcomes the world? Only the one who believes that Jesus is the Son of God.
+
+1 John 5:4-5
+
+Faith in God is Active
+
+Faith in God is not passive but active. When we have faith in God, it will inevitably manifest in good works that will please the Father. No fruit means no faith and a lack of obedience. Our faith makes us fruitful.
+
+17 In the same way, faith by itself, if it is not accompanied by action, is dead. 18 But someone will say, “You have faith; I have deeds.” Show me your faith without deeds, and I will show you my faith by my deeds. ... 22 You see that his faith and his actions were working together, and his faith was made complete by what he did.
+
+James 2:17-18,22
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Have you trusted in Christ alone for your salvation? For your life? For your success?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Would you describe yourself as living to please God, yourself, or others? Why?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you exercising your faith? How?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you obeying God’s commands? Are there any commands you are having difficulty obeying? Is it because you don’t trust Him in some area? Where?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+What are you trusting God for at the moment? Personal? People? Growth?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+“ ... 10 For the Son of Man came to seek and to save the lost.”
+
+Luke 19:10
+
+17 “Come, follow me,”Jesus said, “and I will send you out to fish for people.”
+
+Mark 1:17
+
+Fill in the names of people you are praying for…
+
+1.___________________________________________________________
+
+2.___________________________________________________________
+
+3.___________________________________________________________
+
+4.___________________________________________________________
+
+5.___________________________________________________________
+
+6.___________________________________________________________
+
+7.___________________________________________________________
+
+8.___________________________________________________________
+
+Fill in the names of countries you are praying for…
+
+1.___________________________________________________________
+
+2.___________________________________________________________
+
+3.___________________________________________________________
+
+4.___________________________________________________________
+
+One 2 One
+
+CHAPTER TEN
+
+SPIRITUAL WARFARE
+
+A NEW ENEMY
+
+8 Be alert and of sober mind. Your enemy the devil prowls around like a roaring lion looking for someone to devour. 9 Resist him, standing firm in the faith, because you know that the family of believers throughout the world is undergoing the same kind of sufferings.
+
+1 Peter 5:8-9
+
+7 Submit yourselves, then, to God. Resist the devil, and he will flee from you.
+
+James 4:7
+
+The devil, or Satan, is a spiritual being totally committed to keeping us from living for the glory and pleasure of God. His goal is to divert glory from God to himself or to others. The devil, our enemy, has three main weapons he uses against God’s people.
+
+Temptation
+
+Satan’s favorite method of attack is temptation. But God has promised that we can have victory over temptation.
+
+13 No temptation has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted beyond what you can bear. But when you are tempted, he will also provide a way out so that you can endure it.
+
+1 Corinthians 10:13
+
+Deception
+
+If temptation doesn’t work, Satan does not give up. He goes to plan B, deception. The way to keep free from deception is to stay in God’s Word and stay in fellowship with God’s people.
+
+3 But I am afraid that just as Eve was deceived by the serpent’s cunning, your minds may somehow be led astray from your sincere and pure devotion to Christ.
+
+2 Corinthians 11:3
+
+Accusation
+
+The most subtle weapon in Satan’s arsenal is accusation. He is the master accuser. He accuses God, producing doubt. He accuses our fellow Christians, resulting in division. He accuses our spiritual leaders, creating gossip. He even accuses us to ourselves, causing condemnation.
+
+10 Then I heard a loud voice in heaven say: “Now have come the salvation and the power and the kingdom of our God, and the authority of his Messiah. For the accuser of our brothers and sisters, who accuses them before our God day and night, has been hurled down.... ”
+
+Revelation 12:10
+
+Stand up and fight
+
+God has not left us defenseless. He has equipped us with spiritual weapons and spiritual armor so that we can stand up and fight the devil. Through faith in Christ, we can walk in victory over every attack of our enemy.
+
+11 Put on the full armor of God, so that you can take your stand against the devil’s schemes. 12 For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the powers of this dark world and against the spiritual forces of evil in the heavenly realms. 13 Therefore put on the full armor of God, so that when the day of evil comes, you may be able to stand your ground, and after you have done everything, to stand. 14 Stand firm then, with the belt of truth buckled around your waist, with the breastplate of righteousness in place, 15 and with your feet fitted with the readiness that comes from the gospel of peace. 16 In addition to all this, take up the shield of faith, with which you can extinguish all the flaming arrows of the evil one. 17 Take the helmet of salvation and the sword of the Spirit, which is the word of God. 18 And pray in the Spirit on all occasions with all kinds of prayers and requests. With this in mind, be alert and always keep on praying for all the Lord’s people.
+
+Ephesians 6:11-18
+
+One 2 One
+
+QUESTIONS
+
+(tap and hold to highlight and enter comments)
+
+Are there any temptations that you are not able to resist?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you consistently reading and obeying God’s Word?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Have you received any accusations against God? Against other Christians? Against spiritual leaders? Against yourself?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Who do you pray with on a regular basis?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+Are you at peace with yourself and with people?
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+_________________________________________________________________________
+
+One 2 One
+
+THE 4 STAGES OF DISCIPLESHIP GROWTH
+
+Engage
+
+Disciples intentionally engage people through conversation and action, to build relationships with them with the goal of being able to share the Gospel with them.
+
+3 Then Jesus told them this parable: 4 “Suppose one of you has a hundred sheep and loses one of them. Doesn't he leave the ninety-nine in the open country and go after the lost sheep until he finds it? 5 And when he finds it, he joyfully puts it on his shoulders 6 and goes home. Then he calls his friends and neighbors together and says, ‘Rejoice with me; I have found my lost sheep.’ 7 I tell you that in the same way there will be more rejoicing in heaven over one sinner who repents than over ninety-nine righteous persons who do not need to repent....”
+
+Luke 15:3-7
+
+Engage in 4 Steps (SALT):
+
+Start a conversation
+
+Ask questions
+
+Listen to their stories
+
+Tell them the Gospel story
+
+Establish
+
+Part of the discipleship lifestyle is to establish new believers in Christ through deliberately and systematically laying scriptural foundations using this One2One book as a guide. Our goal is to help them establish permanent scriptural convictions and lifestyles as they continue to grow in loving God, loving others and living on mission.
+
+... 23 if you continue in your faith, established and firm, and do not move from the hope held out in the gospel. This is the gospel that you heard and that has been proclaimed to every creature under heaven, and of which I, Paul, have become a servant.
+
+Colossians 1:23
+
+A Strong Foundation Requires Being Established in 3 Areas:
+
+1. The Word : hearing and obeying God through the Scriptures.
+
+2. The Faith : living by foundational biblically-based convictions as laid out in this booklet.
+
+3. Church : finding a place of fruitfulness in the church, anchored by strong God-centered relationships.
+
+Equip
+
+As part of our discipleship culture, we equip every believer with the skills and heart to minister to others.
+
+... 17 so that the servant of God may be thoroughly equipped for every good work.
+
+2 Timothy 3:17
+
+Equipped to:
+
+Win the Lost
+
+Heal the Broken
+
+Build the Body
+
+Honor God
+
+Empower
+
+As part of our discipleship culture, we empower disciples to lead others into becoming disciple-makers.
+
+2 And the things you have heard me say in the presence of many witnesses entrust to reliable people who will also be qualified to teach others.
+
+2 Timothy 2:2
+
+Empowered to lead others to:
+
+Engage people
+
+Establish believers
+
+Equip disciples
+
+Empower leaders
+
+One 2 One
+
+THE PURPOSE FOR THIS RESOURCE
+
+This resource is a discipleship tool. It focuses on the second stage of Discipleship Growth, getting established .
+
+The Purpose of this booklet is three fold:
+
+1. To help you get established as a disciple.
+
+2. To help you make disciples of others.
+
+3. To help those that you have made disciples to make disciples of others.
+
+A Disciple is someone who:
+
+(1) Loves God
+
+(2) Loves People
+
+(3) Lives On Mission.
+
+Getting Established in Discipleship Requires Three Foundations:
+
+1. Foundation In The Scriptures
+
+24 Therefore everyone who hears these words of mine and puts them into practice is like a wise man who built his house on the rock. 25 The rain came down, the streams rose, and the winds blew and beat against that house; yet it did not fall, because it had its foundation on the rock.
+
+Matthew 7:24–25
+
+Practically: Grow in wisdom by reading and obeying the Scriptures daily.
+
+2. Foundation In The Faith
+
+6 So then, just as you received Christ Jesus as Lord, continue to live your lives in him, 7 rooted and built up in him, strengthened in the faith as you were taught, and overflowing with thankfulness.
+
+Colossians 2:6–7
+
+Practically: Grow in Christ through daily prayer, both speaking and listening, and by applying what you have learned in One2One.
+
+3. Foundation in the Church
+
+24 And let us consider how we may spur one another on toward love and good deeds, 25 not giving up meeting together, as some are in the habit of doing, but encouraging one another—and all the more as you see the Day approaching.
+
+Hebrews 10:24–25
+
+Practically: Consistently attend church and a Connect Group. Actively grow your relationships with other believers through encouraging fellowship.
