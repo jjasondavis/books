@@ -31,11 +31,11 @@ Maintain one tab-separated row per work so the corpus is queryable across centur
 
 - `tradition` ∈ {apostolic, patristic-greek, patristic-latin, desert, byzantine, medieval,
   reformation, puritan, catholic-devotional, orthodox, evangelical, stoic, new-thought,
-  business, scripture, reference, jewish, world-religions}
+  business, scripture, reference, jewish, world-religions, classical, medieval}
 - `topics` = semicolon list from a controlled vocab: repentance; prayer; anger; sorrow;
   acedia; vainglory; pride; gluttony; lust; avarice; humility; watchfulness; discernment;
   temptation; spiritual-warfare; contentment; suffering; wealth; work; leadership; character;
-  self-discipline; providence; grace; sanctification; envy; wisdom; apologetics.
+  self-discipline; providence; grace; sanctification; envy; wisdom; apologetics; scripture.
 - `composed_circa` uses the *authorship* era (for ancient works), `translation_year` the PD
   English edition. Both matter: trend analysis keys on `composed_circa`, quote-checking on the
   translation.
