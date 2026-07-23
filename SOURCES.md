@@ -76,6 +76,28 @@ All public-domain English text (no scans). Division: `jewish/`.
 | Pseudepigrapha — *The Book of Enoch*; Charles's *Apocrypha & Pseudepigrapha* vol. 2 | sacred-texts.com; archive.org (Charles, Oxford 1913) | `jewish/pseudepigrapha/` | public domain; the APOT vol. 2 file is archive.org **OCR — verify before quoting** |
 | The Targums of Onkelos & Jonathan (Pentateuch) | archive.org (Etheridge 1862) | `jewish/targums/` | public domain; archive.org **OCR — verify before quoting** |
 
+## Added 2026-07-23 (deferred passes)
+
+Clearing the deferred queue. Archive.org OCR items flagged `OCR — verify`; large scanned
+reference sets are searchable but rough — a truly clean *complete* Talmud/Treasury would need a
+dedicated sacred-texts/clean-source pass (noted below).
+
+- **Additional Bibles** (`scripture/`): ASV 1901, Young's Literal, Darby, Webster, Geneva —
+  gratis-bible OSIS XML, clean verse text. (KJV + Douay-Rheims already present.)
+- **The Jewish Encyclopedia (1901-06)** (`jewish/jewish-encyclopedia/`) — **complete 12 vols**,
+  archive.org OCR. Huge reference for Jewish law/custom/history ("what did the Jews know").
+- **Rodkinson Babylonian Talmud** (`jewish/talmud/`) — archive.org OCR, **partial** (tracts from
+  vols 1, 7, 9, 17, 19; the archive scan numbering is inconsistent). Complete clean set pending.
+- **Edersheim, *Bible History: Old Testament*** (`jewish/edersheim/`) — partial (~4 of 7 vols, OCR).
+- **Emil Schürer, *History of the Jewish People*** (`jewish/schurer/`) — vol. 3 (OCR); rest pending.
+- **Spurgeon, *The Treasury of David*** (`tradition/charles-spurgeon/`) — vols 1-3 (OCR); vols 4-7 pending.
+- **Plutarch, *Moralia*** (`classical/plutarch/`) — vols 1-3, 5 (Gutenberg, clean); vol. 4 not yet on PG.
+- **Valmiki, *Ramayana*** (Griffith verse, Gutenberg, clean) — resolves the earlier defer.
+- **New Thought / misc.** (archive.org OCR unless noted): James Allen *Eight Pillars of Prosperity*,
+  *From Poverty to Power*, *The Mastery of Destiny*; Wattles *Science of Being Great*; Haanel
+  *Master Key System*; Hill *Law of Success* (verify scope); Carnegie *Gospel of Wealth*; Alfred
+  Marshall *Principles of Economics*; Seneca *Moral Letters to Lucilius* (Gummere, verify scope).
+
 ## Added 2026-07-23 (Phases 4-10 — devotional, medieval, self-improvement, business, classical, world religions)
 
 All public-domain English text (no scans). Archive.org OCR items are flagged `OCR — verify`.
@@ -151,18 +173,16 @@ All public-domain English text (no scans). Division: `tradition/`.
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
 - **The Philokalia — English** (Priority 5) — the Palmer/Sherrard/Ware (Faber) English translation is copyrighted and is NOT captured; research-only. The public-domain **Greek** 1782 first edition WAS captured as a base text (see the Philokalia row above).
 - **John Climacus, English translation** — no public-domain English exists; the Greek PG 88 base text was captured instead (above). English wording must come from a future working translation or a rights-checked source.
-- **Phases 4-10 — deferred items** (2026-07-23, all PD, no reachable clean text yet): James Allen
-  *Eight Pillars of Prosperity* & *Above Life's Turmoil*, Wattles *Science of Being Great* (no
-  archive text layer); *The Way of a Pilgrim* (R. M. French 1930, now US-PD, but no text-layer copy);
-  the *Ramayana* (Griffith — only a rough sacred-texts OCR); Plutarch's *Moralia*; the complete
-  *Discourses* of Epictetus (only a selection is on Gutenberg). Verify-scope: Hill's *Law of Success*
-  and Seneca's *Letters to Lucilius* (archive OCR captures may be a single volume of a multi-volume set).
-- **Additional PD Bibles — deferred** (2026-07-23): the ASV 1901, Young's Literal, Darby,
-  Webster's, and Geneva 1599 are all public domain but NOT on Project Gutenberg; capture them
-  in a dedicated Bible-translations pass from eBible.org / gratis-bible (clean digital text).
-  Also deferred: original-language texts (Textus Receptus, Westcott-Hort, Nestle 1904,
-  Clementine Vulgate, Swete LXX) and the Strong's/Thayer's/BDB lexicons — SWORD/STEP-format,
-  a specialized pass. KJV + Douay-Rheims (captured) cover the Protestant + Catholic canons.
+- **Still genuinely pending** (2026-07-23, after the deferred-pass round — all PD, but no clean
+  complete text reachable yet): a *complete clean* **Rodkinson Talmud** and **Treasury of David**
+  vols 4-7 (need a sacred-texts / clean-source pass; only partial archive OCR captured); the
+  remaining **Schürer** and **Edersheim Bible History** volumes; **Plutarch *Moralia* vol. 4** (not
+  yet on Gutenberg); James Allen *Above Life's Turmoil*, Spurgeon *Lectures to My Students* &
+  *John Ploughman's Talk*, Ryle *Expository Thoughts* on Mark/Luke/John, *The Way of a Pilgrim*
+  (no archive text layer under a correct identifier). Format-specialized: the original-language
+  texts (Textus Receptus, Westcott-Hort, Nestle 1904, Vulgate, Swete LXX) and Strong's/Thayer's/BDB
+  lexicons (SWORD/STEP format). No-PD-source gaps remain: Basil's on-theme homilies, Burroughs'
+  *Rare Jewel* (only garbled 1651 OCR).
 - **Evangelical phase — deferred items** (2026-07-23, all PD, archive.org-only / no clean text yet):
   Spurgeon's *Lectures to My Students* (4 series; only messy per-series archive OCR),
   *John Ploughman's Talk*, and *The Treasury of David* (7 vols; CCEL hosts it image-only) —

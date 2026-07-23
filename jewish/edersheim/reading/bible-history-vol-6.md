@@ -1,0 +1,9756 @@
+<!-- Clean reading copy from archive.org OCR of a public-domain scan. Uncorrected OCR: verify before verbatim quotation. -->
+Source URL: https://archive.org/details/biblehistory06eder
+Edition: Alfred Edersheim, Bible History: Old Testament (vol-6); archive.org OCR; public domain; OCR-verify.
+
+mm% 
+
+
+HISTORY 
+
+OF 
+
+ISRAEL  AND  JUDAH 
+
+
+DR.EDERSHEIM 
+
+
+■» 
+
+
+BIBLE   HISTORY   VOL.  ¥1. 
+
+
+PRINCETON,    N.    J. 
+
+
+^/5^^. 
+
+
+Seaion....t.JLZ./!!r*\ 
+
+Number .V.;.j<7 
+
+
+(•f^L:1^fLrf^ 
+
+
+l/t'- 
+
+
+THE    HISTORY 
+
+
+OF 
+
+
+ISRAEL    AND    JUDAH. 
+
+
+THE    BIBLE    HISTORY. 
+
+By  the  Rev.  Dr.  Edersheim. 
+Crown  8vo.,  2^.  6d.  each  Volume,  cloth  boards. 
+
+
+1.  T/ie   World  before  the  Flood,  and  the  History  of  the 
+
+Patriarchs.     With  Map. 
+*■  It  gives  a  clearer  idea  of  the  external  circumstances  of  the  story 
+of  the  Patriarchs  than  any  other  book  we  know." 
+
+Literary  CJnirchmaJi, 
+
+2.  The  Exodics  and  the  Wanderings  in  the  Wilderness. 
+
+"In  the  easiest,  simplest  way  imaginable,  in  unostentatious  popu- 
+lar language,  he  embodies  the  results  of  a  large  literature." 
+
+Clcrgymaiis  Magazine. 
+
+3.  Israel  in  Canaan,  under  Jcshiia  and  the  Judges. 
+
+"  Dr.  Edersheim  has  succeeded  in  throwing  a  freshness  of  meaning 
+over  these  histories."  Irish  Ecclesiastical  Gazette. 
+
+4.  Israel  binder  SatJiicel,  Saul,  and  David,   to  the  Birth 
+
+of  Solo7no7i. 
+"  Dr.  Edersheim  writes  with  fulness  of  knowledge  and  in  an  easy 
+pleasing  style,  and  these  half-crown  books  will  be  a  great  help  to 
+many  readers  of  the  Bible."  Literary  World. 
+
+5.  History  ofjudah  and  Israel  from  the  Birth  of  Solomon 
+
+to  the  Reign  cf  Ahab. 
+
+
+London:  The  Religious  Tract  Society. 
+
+
+THE     HISTORY 
+
+
+OF 
+
+
+ISRAEL    AND    JUDAH 
+
+
+FROM 
+
+
+THE  REIGN  OF  AHAB    TO    THE   DECLINE 
+OF   THE    TWO   KINGDOMS. 
+
+
+BY 
+
+
+ALFRED  EDERSHEIM,  M.A.  (OxoN.)  D.D.  Ph.D. 
+
+author  of 
+
+"The  Temple:  its   Ministry  and  Services," 
+
+"The  Life   and   Times    of   Jesus   the   Messiah,"   etc. 
+
+
+THE    RELIGIOUS    TRACT    SOCIETY 
+
+56,  Paternoster  Row  ;  65,  St.  Paul's  Churchyard  ; 
+AND  164,  Piccadilly. 
+
+
+IGETOH 
+
+
+PREFACE. 
+
+
+nr^uE  present  Volume  of  this  Bible  History  traces  the  period 
+-*-  of  the  commencing  decline  alike  in  the  kingdom  of  Israel 
+and  in  that  of  Judah,  although  in  the  latter  its  progress  was 
+retarded  by  the  gracious  faithfulness  of  God  in  regard  to  the 
+house  of  David,  and  by  seasons  of  temporary  repentance  on 
+the  part  of  the  people.  The  special  interest  of  the  period  lies 
+in  this,  that  it  was  critical  of  the  future  of  the  nation.  And  of 
+this  its  history  also  bears  evidence  in  the  more  marked  and 
+direct — we  had  almost  said,  realistic — interpositions,  or,  perhaps 
+more  correctly,  self-manifestations  on  the  part  of  the  God  of 
+Israel :  whether  by  more  emphatic  evidence  of  His  constant 
+Presence  and  claims,  or  in  the  more  continuous  mission  and 
+direct  qualifications  of  the  Prophets  whom  He  commissioned. 
+This,  as  indicated  in  a  previous  Volume,  accounts  for  the  in- 
+tensified miraculous  character  of  that  Biblical  period — notably 
+in  connection  with  the  history  of  Elijah  and  Elisha.  For  such 
+prophetic  mission  was  necessary,  if  in  a  crisis — when  destruc- 
+tion, or  at  least  severest  judgment,  was  impending,  or  else 
+national  recovery,  and  with  it  great  expansion  of  national 
+influence — Israel  was  to  be  roused  to  a  realization  of  the  truth 
+at  issue,  such  as  was,  for  example,  presented  by  Elijah  at  the 
+sacrifice  on  Mount  Carmel.  And  not  only  as  regarded,  that 
+fundamental  truth,  but  also  its  application  to  all  the  details  of 
+public  and  private  life  in   Israel.     In  this,  therefore,  we  find 
+
+
+vi  Preface. 
+
+the  rational  vindication — we  avoid  the  obnoxious  designation, 
+apologetic — of  the  otherwise  strange,  and  certainly  exceptional, 
+manifestation  of  miraculous  prophetic  power  in  so  many  private 
+as  well  as  public  affairs.  In  the  state  of  Israel,  and  at  that 
+period,  an  Elijah  and  an  Elisha  were  required,  and,  if  required, 
+their  mission  and  their  message  must  be  thus  evidenced  :  ahke 
+before  all  friends  and  against  all  gainsayers. 
+
+If,  from  this  point  of  view^  the  application  of  the  miraculous 
+during  this  period,  in  private  as  well  as  in  public  concerns,  is 
+not^  as  some  would  have  it,  a  retrogression,  it  marks  in  other 
+and  more  important  aspects  a  great  progression — and  that 
+towards  the  perfectness  of  the  New  Testament.  We  must  ex- 
+plain what  we  mean  by  a  seeming  retrogression.  Very  markedly 
+the  Old  Testament  history  differs  from  all  others,  which  in 
+their  earliest  stages  are  legendary,  in  this,  that  whereas  in  them 
+the  miraculous  is  introduced  in  what  may  be  called  the  pre- 
+historic period,  then  speedily,  almost  abruptly,  to  cease ;  it  is 
+otherwise  in  that  of  the  Old  Testament.  The  patriarchal 
+history  (notably  that  of  Isaac  and  Jacob)  has  comparatively 
+less  of  the  miraculous.  It  appears  in  the  desert-history  of 
+new-born  Israel,  and  on  their  entrance  in  the  land.  It  dis- 
+appears again  in  great  measure,  to  reappear  once  more  in 
+manner  altogether  unprecedented  at  the  period  of  which  this 
+Volume  treats — that  is,  at  a  comparatively  advanced  time,  when 
+the  history  of  Israel  runs  parallel  to  the  trustworthy  records 
+of  that  of  other  nations  as  perpetuated  on  their  monuments. 
+Assuredly,  this  has  its  various  lessons  in  [regard  to  the  credi- 
+bility of  the  miraculous  in  the  Old  Testament.  Most  notably 
+this,  which,  as  before  stated,  marks  that,  which  to  some  seems 
+a  retrogression,  as  a  real  progression  :  that  the  miraculous  now 
+stands  with  increasing  clearness  in  direct  connection  with  moral 
+relationship  towards  God.     So  to  speak  :  the  miraculous  inter- 
+
+
+Preface.  vii 
+
+positions  are  now  not  so  much  for  Israel  as  to  Israel ;  not  so 
+much  on  behalf  of  Israel  as  such,  but  whether  in  judgment  or 
+in  mercy,  with  direct  reference  and  application  to  Israel's  moral 
+and  spiritual  condition.  And  this,  as  we  have  said,  points  to 
+the  perfectness  of  the  New  Testament,  in  which  the  relation 
+of  God  to  each  soul,  as  well  as  to  the  Church,  and  the  spiritual 
+condition  of  the  soul,  or  of  the  Church  :  the  outward  and  the 
+inward,  are  correlative.  Thus,  in  the  wider  application,  these 
+miraculous  elements  in  the  history  of  Israel  are  themselves 
+prophecies,  of  which  the  fulfilment  is  in  Christ. 
+
+Thus  much  must  for  the  present  suffice — the  more  so,  as  in 
+the  next  A^olume  (which  will  conclude  the  Old  Testament 
+History)  the  opportunity  will  necessarily  present  itself  for  larger 
+retrospect  and  wider  survey.  It  only  remains  to  add  that  the 
+treatment  of  the  subject  in  this  Volume  will  be  found  in  ac- 
+cordance with  the  progressive  plan  of  this  work,  repeatedly  in- 
+dicated in  previous  Volumes.  Alike  the  critical  and  exegetical 
+notes  will  be  found  more  frequent  and  more  full,  and  the 
+general  treatment  more  detailed,  and  designed  for  more  ad- 
+vanced readers.  A  new  element  in  the  present  Volume  is  the 
+light  brought  to  bear  on  this  period  from  the  ancient  monu- 
+ments. We  live  in  days  when  more  attention  than  ever  before 
+is  given  to  the  critical  study  of  the  Old  Testament ;  in  days 
+also  when  attacks  are  chiefly  directed  against  the  trustworthiness, 
+the  credibility,  and,  as  it  seems  to  us,  the  Divine  Authority,  in 
+its  true  sense,  of  the  Old  Testament.  There  are  those,  we  will 
+gladly  believe,  who  can  disjoint,  and  in  logical  connection 
+with  it,  re-interpret  the  Old  Testament,  and  yet  retain  their 
+full  faith  in  its  direct  Divine  character,  and  in  its  preparation 
+for  the  Christ.  We  must  frankly  confess  that  we  are  not  of 
+their  number.  There  is,  indeed,  a  general  Divine  character  in 
+the  Old  Testament,  and  a  general  preparation  in  it  for  the  New, 
+
+
+v)ii  Preface. 
+
+whatever  historical  views  we  may  take  of  it,  or  whatever  inter- 
+pretations we  may  give  of  it.  We  would  even  advance  beyond 
+this,  and  say  that  Christ  and  Christianity  have  their  absolute 
+truth,  quite  irrespective  ot  the  Old  Testament.  But  to  us  at 
+least  Jesus  of  Nazareth  as  the  Christ  is  the  direct  outcome  of 
+the  Old  Testament;  as  well  as  its  higher  fulfilment :  not  only 
+"  a  light  to  lighten  the  Gentiles,"  but,  and  even  in  this  very 
+respect  also  :  ^'  the  glory  of  Thy  people  Israel." 
+
+ALFRED    EDERSHEIM. 
+
+
+8,  Bradmore  Road,  Oxford  : 
+\st  November,   18S5. 
+
+
+CONTENTS. 
+
+
+CHAPTER    I. 
+
+PAGE 
+
+Three  Years'  Famine  in  Israel — Elijah  meets  Obadiah 
+AND  Ahab — The  Gathering  on  Mount  Carmel— The 
+Priests  of  Baal — Description  of  their  Rites — Elijah 
+prepares  the  Sacrifice— The  Answer  by  Fire — Israel's 
+Decision— Slaughter  of  the  Priests  of  Baal — The 
+Cloud  not  bigger  than  a  Man's  Hand— Elijah  runs 
+before  Ahab  to  Jezreel        ...  9 
+
+CHAPTER   II. 
+
+Different  Standpoint  of  the  Old  and  the  New  Testament 
+— Analogy  between  Elijah  and  John  the  Baptist — 
+Jezebel  threatens  Elijah's  Life — The  Prophet's  Flight 
+— His  Miraculous  Provision — Analogy  between  Moses 
+and  Elijah— Elijah  at  Mount  Horeb— The  Divine 
+Message  and  Assurance  to  Elijah — Call  of  Elisha         .      22 
+
+CHAPTER    III. 
+
+General  effect  of  Elijah's  Mission — The  Two  Expeditions 
+of  Syria  and  the  Twofold  Victory  of  Israel — Ahab 
+releases  Ben-hadad — The  Prophet's  Denunciation         .      33 
+
+CHAPTER    IV. 
+
+The    Vineyard    of    Naboth— Murder    of     Naboth — The 
+
+Divine  Message  by  Elijah— Ahab's  Repentance  .  .      48 
+
+CHAPTER    V. 
+
+^hab  mxb  ^hnshxh,  ((Eighth  aub  |ltnth)  ^ings  of  Israel. 
+Jehoshaphat,  (Jfourth)  ging  of  Jubah. 
+
+The  Visit  of  Jehoshaphat  to  Ahab — The  Projected  Expedi- 
+tion against  Ramoth-Gilead— Flattering  Predictions — 
+MiCAiAH — The  Battle  of  Ramoth-Gilead— Death  of 
+Ahab       ,,.,....      58 
+
+
+X  Contents. 
+
+CHAPTER   VI. 
+
+Jekoshnphiit,  (Jfoiirtk)  Snug  of  Jubitk. 
+
+PAGE 
+
+The  Reproof  and  Prophecy  of  Jehu — Resumption  of  the 
+Reformation  in  Judah — Institution  of  Judges  and  of 
+A  Supreme  Court  in  Jerusalem — Incursion  of  the 
+Moabites  and  their  Confederates — National  Fast  and 
+the  Prayer  of  the  King — Prophecy  of  Victory — The 
+March  to  Tekoa— Destruction  of  the  Enemy — The 
+Valley  of  Berakhak — Return  to  Jerusalem        .  .       ']t, 
+
+CHAPTER    VII. 
+
+Jchosha^jhat,    (Jfoxirth)  Jliug  of   Juliah,    .^ha^ialt   anb 
+(Jekoram)  Jonim,  (Uiuth  anb  ^cnth)  gings  of  Eeracl. 
+
+The  Joint  Maritime  Expedition  to  Ophir — Ahaziah's  Reign 
+AND  Illness — The  proposed  Inquiry  of  Baal-zebub — 
+The  Divine  Message  by  Elijah— Attempts  to  Capture 
+the  Prophet,  and  their  Result — Elijah  appears  before 
+the  King — Death  of  Ahaziah — Accession  of  Joram— 
+The  Ascent  of  Elijah— Elisha  takes  up  his  Mantle  .      85 
+
+CHAPTER   VIII. 
+
+Elisha  the  flrophet. 
+
+Return  to  Jericho — Healing  of  the  Waters  of  Jericho — 
+Judgment  on  the  Young  Men  at  Bethel — Settlement 
+in  Samaria        .......     loi 
+
+
+CHAPTER    IX. 
+
+Jehcr^ka^kat,  (Jourtk)  lliug  of   Jubah— Joram,  (TUcnth) 
+
+Jiing  of  l)5rael. 
+
+The  Allied  Expedition  against  Moab — The  Moabite  Stone 
+— Lessons  of  its  Inscription — The  March  through  the 
+Wilderness  of  Edom — Want  of  Water — Interview  with 
+Elisha— Divine  Deliverance — Defeat  of  Moab — The 
+Siege  of  Kir-haraseth — Mesha  offers  up  his  Son — 
+Withdrawal  of  the  Allies.  .  -.  .  .     108 
+
+
+Contents.  xi 
+
+
+CHAPTER    X. 
+
+Wcit  Jttmtstrj)  of  CElisha  ns  the  JP^^'sonal  ^c|n*esentatibc 
+qI  the  Jibing  ^crb  in  Israel. 
+
+PAGE 
+
+The  Prophet's  Widow  and  her  Miraculous  Deliverance 
+— The  Shunammite  and  Elisha — The  God-given  Child 
+—His  Death  and  Restoration  to  Life— Elisha  at  Gil- 
+gal — "Death  in  the  Pot"— The  Man  from  Baal- 
+Shalisha — God's  sufficient  and  unfailing  Provision 
+FOR  His  own     .  .  .  .  .  .  .121 
+
+
+CHAPTER    XL 
+
+Illustration  and  Confirmation  of  Biblical  History  from 
+the  Assyrian  Monuments — The  Deliverance  of  Syria 
+through  Naaman — Naaman's  Leprosy  and  Journey  to 
+Samaria — Elisha's  Message  to  Joram  and  to  Naaman — 
+Naaman's  Healing  and  Twofold  Request— Gehazi's 
+Deceit  and  Conviction  .  .  .  .  .141 
+
+
+CHAPTER    XH. 
+
+Two  Wonderful  Manifestations  of  God's  Presence  with 
+His  Prophet  :  The  Interposition  on  behalf  of  '*  the 
+Sons  of  the  Prophets"  by  the   banks  of  Jordan,  and 
+
+THAT  IN  the  deliverance  OF  ElISHA  AT  DOTHAN— IN- 
+FLUENCE OF  Elisha's  Ministry — The  Syrians  led  blinded 
+INTO  Samaria — The  Conduct  of  the  King  and  of  the 
+Prophet.  .  .  .  .  .  .  .158 
+
+
+CHAPTER   XIIL 
+
+Siege  of  Samaria  by  the    Syrians — Terrible    Straits  and 
+Tragedy  in  the  City — The  King  sends  to  slay  Elisha, 
+
+BUT   arrests    his   MESSENGER — ANNOUNCED    DELIVERANCE, 
+
+AND  Judgment  on  the  Unbelieving  "Lord" — The  Dis- 
+covery BY  the  Four  Lepers— Flight  of  the  Syrians — 
+Relief  of  Samaria — The  Unbelieving  trodden  to 
+Death  in  the  Gate    .  .  .  .  .  .169 
+
+
+xii  Contents. 
+
+CHAPTER   XIV. 
+
+Close  Qi  ^lisha'0  fjublir  JEmistrp  :  the  beginning  of 
+
+PAGE 
+
+The  Shunammite  on  her  Return  from  Philistia  restored 
+TO  HER  Property — Elisha's  Visit  to  Damascus — The 
+P:mbassy  of  Hazael — Prediction  of  Future  Judgment — 
+The  Murder  of  Ben-hadad  and  accession  of  Hazael       .     179 
+
+CHAPTER   XV. 
+
+Jckxjrnm  anb  .^ha^iak,  (Jtftk  anb  <Sixth)  gaiujjs  xrf  Jubak. 
+
+Joram,  (^entk)  ^tng  qI  Israel. 
+
+Accession  of  Jehoram — Murder  of  the  Royal  Princes — 
+Introduction  of  the  service  of  Baal  in  Judah — Re- 
+volt of  Edom — and  of  Libnah — The  Writing  from 
+Elijah — Incursion  of  the  Philistines  and  Arabs- 
+Death  of  Jehoram — State  of  Public  Feeling       .  .     185 
+
+CHAPTER  XVI. 
+
+Joram  anb  Jeku,  (^entk  anb  CSlcbentk)  Jltngs  of  israd. 
+^kasiak,  (gixtk)  giug  of  Jubak. 
+
+Accession  of  Ahaziah— Character  of  his  Reign — Expedi- 
+tion of  Joram  and  Ahaziah  against  Hazael,  and  taking 
+OF  Ramoth-Gilead — ^Joram  returns  Wounded  to  Jezreel 
+— Visit  of  Ahaziah— Jehu  anointed  King— March  on 
+Jezreel — Joram  killed— Death  of  Ahaziah— Jezebel 
+killed— Fulfilment  of  the  Divine  sentence  by  Elijah     193 
+
+CHAPTER    XVII. 
+
+Jeku,  (^lebentk)  lung  of  Israel.     Jltkaliak,  (gebentk) 
+Queen  of  Jubak. 
+
+Murder  of  the  "Sons"  of  Ahab  and  Joram — Destruction 
+
+OF     THE     adherents     OF     AhAB     IN     JeZREEL — MaRCH     ON 
+
+Samaria — Slaughter  of  the  "Brethren"  of  Ahaziah 
+— Jehonadab  the  son  of  Rechab — Meaning  of  the 
+Rechabite  movement— The  Feast  of  Baal  at  Samaria — 
+Destruction  of  the  Worshippers — Character  of  the 
+Reign  of  Jehu — Decline  of  the  Northern  Kingdom — 
+Commencing  Decline  of  the  Southern  Kingdom  .     204 
+
+
+THE 
+
+HISTORY  OF  JUDAH  AND  ISRAEL 
+
+FROM   THE   SACRIFICE   ON    CARMEL. 
+
+
+CHAPTER     I. 
+
+^hnb,  Jltng  oi  Israel. 
+
+Three  years'  Famine  in'  Israel — Elijah  meets  Obadiah  and  Ahab—The 
+Gathering  on  Mount  Carmel—The  Priests  of  Baal— Description  of  their 
+Rites — The  time  of  the  Evening  Sacrifice— Elijah  prepares  the  Sacrifice 
+— Elijah's  Prayer — 7/76  Answer  by  Fire— Israel's  Decision— Slaughter 
+of  the  Priests  of  Baal— The  Cloud  not  bigger  than  a  Man's  Hand- 
+Elijah  runs  before  Ahab  to  Jezreel. 
+
+(i  Kings  xviii.) 
+
+THREE  and  a  half  years  had  passed  since  the  ban  of  EHjah 
+had  driven  clouds  and  rain  from  the  sky  of  Israel^  and 
+the  dry  air  distilled  no  dew  on  the  parched  and  barren  ground 
+(comp.  Luke  iv.  25;  James  v.  17^).  Probably  one  of  these 
+years  had  been  spent  by  the  prophet  in  the  retirement  of  Wadi 
+Cherith;  another  may  have  passed  before  the  widow's  son 
+was  restored  from  death  to  life ;  while  other  eighteen  months 
+of  quiet  may  have  followed  that  event.  Surely,  if  ever,  the 
+terrible  desolation  which  the  prophet's  word  had  brought 
+upon  the  land  must  by  this  time  have  had  its  effect  upon 
+Israel.    Yet  we  meet  no  trace  of  repentance  in  king  or  people  : 
+
+1  Not  only  the  New  Testament  writers  (as  above  quoted),  but  the  Rabbis 
+fix  the  period  of  rainlessness  at  three  years  and  a  half,  and  every  explana- 
+tion which  attempts  to  date  this  period  as  beginning  before  the  appearance 
+of  Elijah  is  forced  and  unnatural.  Accordingly  the  expression  "the  third 
+year"  in  i  Kings  xviii.  I  must  refer  to  Elijah's  stay  at  Sarepta — about  tWQ 
+years  and  a  half  after  his  arrival  there. 
+
+C 
+
+
+10  Ahab,  King  of  Israel. 
+
+only  the  sullen  silence  of  hopeless  misery.  What  man  could 
+do,  had  been  attempted,  but  had  signally  failed.  As  the  want 
+and  misery  among  the  people  became  more  pressing,  King 
+Ahab  had  searched  both  the  land  and  all  neighbouring 
+countries  for  Elijah,  but  in  vain  (i  Kings  xviii.  lo),  while 
+Jezebel  had  wreaked  her  impotent  vengeance  on  all  the 
+prophets  of  Jehovah  on  whom  she  could  lay  hands,  as  if  they 
+had  been  Elijah's  accomplices,  to  be  punished  for  what  she  re- 
+garded as  his  crime.  If  all  the  representatives  of  Jehovah  were 
+exterminated.  His  power  could  no  longer  be  exercised  in  the 
+land,  and  she  would  at  the  same  time  crush  resistance  to  her 
+imperious  will,  and  finally  uproot  that  hated  religion  which 
+was  alike  the  charter  of  Israel's  spiritual  allegiance  and  of 
+civil  liberty.  Yet  neither  Ahab  nor  Jezebel  succeeded. 
+Though  Elijah  was  near  at  hand,  either  in  Ahab's  dominions 
+or  in  those  of  Jezebel's  father,  neither  messenger  nor  king 
+could  discover  his  place  of  retreat.  Nor  could  Jezebel  carry 
+out  her  bloody  design.  It  affords  most  significant  illustration 
+of  God's  purpose  in  raising  up  "prophets,"  and  also  of  the 
+more  wide  sense  in  which  we  are  here  to  understand  that 
+term,  that  such  was  their  number^  that,  however  many  the 
+queen  may  have  succeeded  in  slaying,  at  least  a  hundred  of 
+them  could  still  be  hid,  by  fifties,  in  the  limestone  caverns 
+with  which  the  land  is  burrowed.  And  this,  we  infer,  must 
+have  been  in  the  immediate  neighbourhood  of  tl-e  capital^  as 
+otherwise  Obadiah  (the  "servant  of  Jehovah"),  the  pious 
+governor  of  Ahab's  palace  (comp.  i  Kings  iv.  6  ;  2  Kings  xviii. 
+18;  Isa.  xxii.  15),  could  scarcely  have  supplied  their  wants 
+without  being  detected  (i  Kings  xviii.  4).  Nor  was  Obadiah 
+the  only  one  in  Israel  who  "  feared  Jehovah/'  though  his 
+position  may  have  been  more  trying  than  that  of  others.  As 
+we  know,  there  were  still  thousands  left  in  Israel  who  had  not 
+bowed  to  Baal  (i  Kings  xix.  18). 
+
+But  there  was  at  least  one  general  effect  throughout  the 
+land  of  this  terrible  period  of  drought.  Every  one  must  have 
+learned  that  it  had  followed  upon  the  announcement  of  Elijah ; 
+
+
+TJie  Famine  in  the  Land.  1 1 
+
+every  one  must  have  known  what  that  announcement  had 
+been,  with  all  concerning  Jehovah  and  His  prophet  that  it 
+implied ;  and,  lastly,  if  no  general  repentance  had  taken 
+place,  every  one  must  at  least  have  been  prepared  for  the 
+grand  decisive  trial  between  God  and  Baal,  which  was  so  soon 
+to  take  place.  And  still  the  weary  days  crept  on  as  before ; 
+the  sun  rose  and  sank  on  a  cloudless  sky  over  an  arid  land ; 
+and  there  was  no  sign  of  change,  nor  hope  of  relief  It  was 
+summer.  Jezebel  had  left  the  palace  of  Samaria,  and  was  in 
+her  delicious  cool  summer-residence  at  Jezreel,  to  which  more 
+full  reference  will  be  made  in  the  sequel  (comp.  i  Kings 
+xviii.  45,  46;  and  the  inference  from  i  Kings  xxi.  2).  But 
+Ahab  was  still  in  Samaria,  busy  with  cares,  caused  by  the 
+state  of  the  land.  This  temporary  absence  of  Jezebel  explains 
+not  only  Ahab's  conduct,  but  how  he  went  to  meet  Elijah, 
+attempted  no  violence^  and  even  appeared  in  person  on 
+Mount  Carmel.  So  great  was  the  strait  even  in  Samaria  itself, 
+that  the  king  was  in  danger  of  losing  every  horse  and  mule, 
+whether  for  the  public  or  his  own  service.  To  discover  if  any 
+fodder  were  left  in  the  country,  the  king  and  Obadiah  were 
+each  to  make  careful  survey  of  part  of  the  land.  Obadiah  had 
+not  proceeded  far  on  his  mission,  when  the  sight  least  ex- 
+pected— perhaps  least  desired — presented  itself  to  his  view. 
+It  was  none  other  than  Elijah,  who  had  been  Divinely  directed 
+to  leave  Sarepta  and  meet  x\hab.  As  there  is  not  anything  in 
+Holy  Scripture  without  meaning  and  teaching^  we  may  here 
+mark,  that,  when  this  is  assigned  by  the  Lord  as  the  reason 
+for  Elijah's  mission  :  "I  will  send  rain  upon  the  ground  " 
+(i  Kings  xviii.  1),  it  is  intended  to  teach  that,  although  it  was 
+Jehovah  Himself  (and  not  Elijah,  as  the  Rabbis  imagine)  who 
+held  "  the  keys  of  the  rain,"  yet  He  would  not  do  anything 
+except  through  His  chosen  messenger. 
+
+Obadiah  could  have  no  difficulty  in  immediately  recognising 
+Elijah,  even  if  he  had  not,  as  seems  most  likely,  met  him 
+before.  With  lowliest  reverence  he  saluted  the  prophet,  and 
+then  received  command  to  announce  his  presence  to  Ahab.    But 
+
+
+12  Ahab,  King  of  Israel. 
+
+timid  and  only  partially  enlightened,  although  God-fearing, 
+as  Obadiah  was,  this  was  no  welcome  message  to  him.  Ahab 
+had  so  long  and  so  systematically  sought  for  Elijah,  that 
+Obadiah  could  only  imagine  the  prophet  had  been  miraculously 
+removed  from  shelter  to  shelter,  just  in  time  to  save  him  from 
+being  detected  by  the  messengers  of  Ahab.  In  point  of  fact, 
+we  know  that  such  was  not  the  case  ;  but  those  who  have  lost 
+the  habit  of  seeing  God  in  the  ordinary  Providence  of  every- 
+day life — as  is  the  case  with  all  w^ho  are  conformed  to  the 
+world — are  too  often  in  the  habit  of  looking  for  things 
+strange,  or  for  miracles,  and  thus  become  at  the  same  time 
+superstitious  and  unbelieving.  What — so  argued  Obadiah — 
+if,  after  he  had  intimated  Elijah's  presence  to  the  king, 
+the  prophet  were  once  more  miraculously  removed  ?  Would 
+he  not  have  to  pay  with  his  life  for  Elijah's  escape ;  would 
+not  suspicious  Ahab  or  bloodthirsty  Jezebel  wTeak  their 
+vengeance  on  him  as  an  abettor  of  the  prophet  ?  Most  ground- 
+less fears  these,  as  all  which  are  prompted  by  the  faint-heart- 
+edness  of  partially  enlightened  piety  ;  and  so  Elijah  hastened 
+to  assure  him,  not,  as  it  seems  to  us,  without  a  touch  of 
+pitying  reproof. 
+
+The  meeting  which  followed  between  the  king  of  Israel  and 
+the  representative  of  Jehovah  was  characteristic  of  each.  It  is  a 
+mistake  to  suppose,  as  interpreters  generally  do,  that  the  words 
+with  which  Ahab  accosted  Elijah,  "Art  thou  the  one^  who 
+troubleth  Israel  ?  "  were  intended  to  frighten  the  prophet  by 
+a  display  of  authority.  Even  Ahab  could  not  have  imagined 
+that  such  v/ould  be  their  effect.  It  seems  rather  like  an  appeal. 
+See  what  thou  hast  done;  and  what  now?  In  truth^  a  man 
+such  as  Ahab  must  have  felt  it  difficult  to  know  how  to  address 
+the  prophet.  But  Elijah  was  not,  even  momentarily,  to  be 
+drawn  into  a  personal  controversy.  With  a  sharp  reproof, 
+which  pointed  out  that  it  was  not  he  but  the  sin  of  Ahab  and 
+of  his  house  which  had  brought  trouble  upon  Israel,  he  directed 
+
+^  I  have  given  this  the  primary  meaning  of  the  Hebrew  word  ("this," 
+"  that  one  "),  and  not,  as  interpreters  generally,  the  rare  derivation  "here." 
+
+
+The  Gathering  on  Mount  Carmel.  13 
+
+the  king  to  gather  unto  Mount  Carmel  the  representatives  of 
+all  Israel,  as  well  as  the  450  prophets  of  Baal  and  the  400 
+prophets  of  Astarte  who  enjoyed  the  special  favour  of  the 
+queen. 
+
+Putting  aside  for  the  moment  the  thought  of  the  overruling 
+guidance  of  God  in  the  matter,  it  is  not  difficult  to  under- 
+stand why  Ahab  complied  with  Elijah's  direction.  Naturally 
+he  could  not  have  anticipated  what  turn  matters  would  take. 
+Certain  it  was  that  the  land  was  in  a  terrible  strait  from  which, 
+if  any  one,  Elijah  alone  could  deliver  it.  Should  he  provoke 
+him  to  fresh  judgments  by  a  refusal?  What  was  there  to  fear 
+from  one  unarmed  man  in  presence  of  a  hostile  assembly? 
+If  Elijah  could  remove  the  curse,  it  was  worth  any  temporary 
+concession  ;  if  he  refused  or  failed,  the  controversy  with  him 
+would  be  easily  settled,  and  that  with  popular  approbation. 
+Besides  these,  there  may  have  been  other  secondary  reasons 
+for  Ahab's  compliance.  As  we  have  noticed,  Jezebel  was  not 
+then  in  Samaria  ;  and  Ahab  may  have  felt  that  secret  misgiving 
+which  is  often  the  outcome  of  superstition  rather  than  of  partial 
+belief.  Lastly,  he  may  at  the  moment  have  been  under  the 
+influence  of  the  overawing  power  of  Elijah,  It  could  scarcely 
+have  been  otherwise  in  the  circumstances. 
+
+That  day  Carmel  witnessed  one  of  the  grandest  scenes  in 
+the  history  of  Israel.  Three  such  scenes  on  mountain-tops 
+stand  out  before  the  mind  :  the  first  on  Mount  Sinai,  when  the 
+Covenant  was  made  by  the  ministry  of  Moses;  the  second 
+on  Mount  Carmel,  when  the  Covenant  was  restored  by  the 
+ministry  of  Elijah ;  the  third  on  ''  the  Mount  of  Transfigura- 
+tion," when  Moses  and  Elijah  bare  worshipful  witness  to  the 
+Christ  in  Whom  and  by  Whom  the  Covenant  was  completed, 
+transfigured,  and  transformed.  In  each  case  the  scene  on 
+the  Mount  formed  the  high  point  in  the  life  and  mission  of 
+the  agent  employed,  from  which  henceforth  there  was  a  descent, 
+save  in  the  history  of  Christ,  where  the  descent  to  Gethsemane 
+was  in  reality  the  commencement  of  the  ascent  to  the  Right 
+Hand  of  God.    Moses  died  and  was  buried  at  the  Hand  of  God , 
+
+
+14  Ahab,  King  of  Israel. 
+
+Elijah  went  up  with  chariot  of  fire ;  Jesus  died  on  the  cross. 
+Yet  whereas  from  the  mountain-top  Moses  and  EUjah  really 
+descended,  so  far  as  their  work  and  mission  were  concerned, 
+the  seeming  descent  of  Jesus  was  the  real  ascent  to  the  topmost 
+height  of  His  work  and  glory. 
+
+No  spot  in  Palestine  is  more  beautiful,  more  bracing,  or 
+healthful  than  Carmel,  "  the  Park-like."  Up  in  the  north- 
+west, it  juts  as  a  promontory  into  the  Mediterranean,  rising 
+to  a  height  of  five  hundred  feet.  Thence  it  stretches  about 
+twelve  miles  to  the  s.s.e.,  rising  into  two  other  peaks.  The 
+first  of  these,  about  four  miles  from  the  promontory,  is  not 
+less  than  1740  feet  high.  Still  further  to  the  south-east  is  a 
+third  peak,  1687  feet  high,i  which  to  this  day  bears  the  name 
+of  El-Mahrakah^  or  "  place  of  burning "  (sacrifice).  This, 
+there  can  scarcely  be  a  doubt,  was  the  place  of  Elijah's 
+sacrifice.  Let  us  try  to  realise  the  scene.  On  whichever 
+side  the  mountain  be  ascended,  the  scene  is  one  of  unsur- 
+passed beauty.  The  rich  red  soil,  where  not  cultivated,  is 
+covered  by  a  thick  brushwood  of  luxurious  evergreens.  Not 
+only  flowering  trees  and  delicious  fragrant  herbs,  but  all  the 
+flora  of  the  North  of  Palestine  seems  gathered  in  this  favoured 
+spot.  So  early  as  November,  the  crocus,  narcissus,  pink 
+cistus,  and  large  daisy  are  in  bloom,  and  the  hawthorn  in  bud. 
+In  spring,  wild  tulips,  dark  red  anemones,  pink  phlox,  cy- 
+clamen, purple  stocks,  marigolds,  geranium,  and  pink,  yellow, 
+and  white  rock-roses  make  it  bright  with  gay  colouring.  For 
+numerous  springs  trickle  along  the  foot  of  the  mountain  and 
+fertilise  the  soil.  Ascending  to  El-Mahrakah  we  catch 
+glimpses  of  cliffs,  which  in  some  places  descend  sheer  down 
+to  the  plain.  At  last  we  reach  a  plateau  where  at  the  edge 
+of  a  steep  slope  there  is  a  perennial  well,  filled  with  water 
+even  in  the  driest  season.     Yet  a  little  higher  rises  another 
+
+1  For  these  measurements  and  other  interesting  notices  I  am  indebted  to 
+Conder's  Tent-xvork  in  Palestine,  vol.  i.,  pp.  168,  etc.  See  also  Dean 
+Stanley's  description  in  his  Sinai  and  Palestine,  Mr.  Grove's  article  in 
+Smith's  Bible  Diet.,  and  other  accounts. 
+
+
+On  Mount  Carniel.  15 
+
+plateau  of  rich  soil,  shaded  by  olives ;  and  finally  we  reach 
+the  topmost  peak,  a  semi-isolated  knoll.  This  was  the  place 
+of  the  two  altars  :  that  of  Baal,  and  that  ruined  one  of  Je- 
+hovah restored  by  Elijah,  and  dating  from  before  the  building 
+of  the  Temple,  when  such  worship  was  lawful.  On  the 
+plateau  beneath,  under  the  shade  of  the  olives,  full  in  view 
+of  the  highest  altar-peak,  were  on  the  one  side  Elijah,  and 
+on  the  other  King  Ahab,  the  priests  of  Baal,  and  the  people. 
+Yet  a  little  lower  was  the  well  whence  the  water  for  Elijah's 
+sacrifice  was  drawn.  Some  1400  feet  beneath,  whsre  the 
+rapid  descent  is  close  to  steep  precipices  and  by  sharp  crags, 
+rolls  that  "  ancient  river "  Kishon,  where  the  wild  slaughter 
+of  the  priests  of  Baal  formed  the  closing  scene  in  the  drama 
+of  that  day.  But  up  on  the  topmost  altar-height  what  an 
+outlook  !  Westwards  over  Carmel  and  far  to  the  sandhills 
+around  Caesarea ;  northwards,  the  Galilean  hills,  Lebanon 
+and  Hermon  ;  eastwards,  across  the  plain  of  Esdraelon,  some 
+six  miles  off,  to  Jezreel, — further  away,  to  Shunem,  Endor,  Nain, 
+Tabor,  Nazareth,  and  even  distant  Gilead.  A  theatre  this 
+truly  befitting  what  was  to  be  enacted  on  it. 
+
+Among  those  who  on  that  day  had  gathered  under  the 
+olives  on  that  shady  plateau  just  beneath  the  topmost  peak, 
+the  four  hundred  priests  of  Astarte  were  not  found.  Whether 
+they  had  shrunk  from  the  encounter,  or  had  deemed  it  incon- 
+sistent with  the  wishes  of  their  spiritual  patroness,  the  queen, 
+to  appear  on  such  an  occasion,  certain  it  is  that  they  were  not 
+with  their  four  hundred  and  fifty  colleagues  of  the  priesthood 
+of  Baal.  These  must  have  been  conspicuous  amid  king, 
+courtiers,  and  the  motley  gathering  from  all  parts  of  the  land, 
+by  their  white  dresses  and  high  pointed  caps.  Over  against 
+them,  his  upper  garment  of  black  camel-hair  girt  with  a 
+leathern  girdle,  stood  the  stern  figure  of  the  prophet ;  in 
+the  foreground  was  King  Ahab.  It  was,  indeed,  a  unique 
+gathering,  a  wondrous  array  of  forces,  a  day  of  tremendous 
+import.  To  this  Elijah  had  bidden  king,  priests,  and  people, 
+and  he  left  them  not  long  in  doubt  of  his  object.     First,  he 
+
+
+1 6  Ahab,  King  of  Israel. 
+
+turned  to  the  people  with  these  words,  which  must  have  ahke 
+shown  them  their  real  condition  and  appealed  to  their  judg- 
+ment :  "  How  long  halt  ye  "  (pass  ye  from  one  to  the  other  ^) 
+"as  to  the  two  opinions  "  (divisions,  parties  2)  ?  If  Jehovah 
+be  the  Elohim — go  after  Him ;  but  if  the  Baal,  go  after  him  ! 
+To  an  appeal  so  trenchantly  true  there  could  in  the  then 
+condition  of  the  public  mind  be  no  answer.  Their  very  ap- 
+pearance on  Mount  Carmel  was  an  attestation  of  this  mental 
+passing  to  and  fro  on  the  part  of  Israel — irrational,  unsatis- 
+factory, and  self-condemnatory  (Deut.  vi.  4^  etc.).  But  the 
+question  of  Elijah  also  formed  a  most  apt  preparation  for 
+what  was  to  follow.  The  two  divided  opinions  were  now  to 
+be  brought  to  the  test  of  truth ;  the  two  parties  to  measure 
+their  strength.     Let  Israel  see  and  decide  ! 
+
+In  the  breathless  silence  that  ensued  upon  this  challenge 
+Elijah  now  stood  forward,  and  pointing  to  the  white-robed 
+crowd  of  priests  over  against  him,  he  recalled  to  king  and 
+people  that  he  and  he  only  remained — that  is,  in  active  office 
+and  open  profession  ^ — a  prophet  of  Jehovah.  Single-handed, 
+therefore,  he  would  go  to  the  contest,  if  contest  of  power  it 
+were  against  that  multitude.  Power  !  They  worshipped  as 
+God  the  powers  of  nature  :  ^  let  them  then  make  trial  on  whose 
+side  the  powers  which  are  in  nature  were  arrayed.  Let  this 
+be  the  test :  the  priests  of  Baal  on  their  side,  and  he  on  his, 
+would  each  choose  a  bullock  and  prepare  it  for  sacrifice,  but 
+
+1  The  word  is  used  in  verse  26  of  the  wild  dance  or  leaping  of  the  priests 
+of  Baal. 
+
+'  It  is  not  easy  to  render  the  Hebrew  word  exactly.  It  occurs  in  Psa. 
+cxix.  113  ("I  hate  divided  thoughts'''');  Isa.  ii.  21;  Ivii.  5  ("clefts"); 
+Ezek.  xxxi.  6  ("  boughs,"  divided  branches).  The  expression  was  probably 
+proverbial. 
+
+'  The  others  being  hid  in  caves,  were  for  all  practical  purposes  for  the 
+present  as  non-existing. 
+
+*  It  deserves  more  than  passing  notice,  that  the  modern  denial  of  God 
+may  be  reduced  to  the  same  ultimate  principle  as  the  worship  of  Baal.  For, 
+if  the  great  First  Cause — God  as  the  Creator— be  denied,  then  the  only 
+mode  of  accounting  for  the  origin  of  all  things  is  to  trace  it  to  the  operation 
+of  forces  in  matter.     And  what  really  is  this  but  a  deification  of  Nature  ? 
+
+
+TJie  Scene  at  the  Sacrifice.  17 
+
+not  kindle  the  fire  beneath,  "  and  it  shall  be  the  Elohim  who 
+shall  answer  by  fire,  He  is  the  Elohim."  A  shout  of  universal 
+assent  greeted  the  proposal.  In  the  circumstances  it  would 
+be  of  the  greatest  practical  importance  that  the  futility  of 
+Baal-worship  should  be  exhibited  in  the  fullest  manner.  This 
+explains  the  details  of  all  that  follows.  Besides,  after  a  whole 
+day's  vain  appliance  of  every  resource  of  their  superstition, 
+the  grandeur  of  Jehovah's  majestic  interposition  would  also 
+make  the  deeper  impression.  But  although  from  Elijah's 
+point  of  view  it  was  important  that  the  priests  of  Baal  should 
+first  offer  their  sacrifice,  the  proposition  was  one  to  which  no 
+objection  could  be  taken,  since  Elijah  not  only  gave  them  the 
+choice  of  the  sacrificial  animal,  but  they  were  many  as  against 
+one.  Nor  could  they  complain  so  far  as  regarded  the  test 
+proposed  by  Elijah,  since  their  Baal  was  also  the  god  of  fire, 
+the   very  Sun-god.^ 
+
+Now  commenced  a  scene  which  baffles  description.  Ancient 
+writers  have  left  us  accounts  of  the  great  Baal-festivals,  and 
+they  closely  agree  with  the  narrative  of  the  Bible,  only  furnish- 
+ing further  details.  First  rose  a  comparatively  moderate, 
+though  already  wild,  cry  to  Baal ;  followed  by  a  dance  around 
+the  altar,  beginning  with  a  swinging  motion  to  and  fro.^  The 
+howl  then  became  louder  and  louder,  and  the  dance  more 
+frantic.  They  whirled  round  and  round,  ran  wildly  through 
+each  other's  ranks,  always  keeping  up  a  circular  motion,  the 
+head  low  bent,  so  that  their  long  dishevelled  hair  swept  the 
+ground.  Ordinarily  the  madness  now  became  infectious,  and 
+the  onlookers  joined  in  the  frenzied  dance.  But  Elijah  knew 
+how  to  prevent  this.  It  was  noon — and  for  hours  they  had 
+kept  up  their  wild  rites.     With  cutting  taunts  and  bitter  irony 
+
+^  As  already  stated,  Baal  was  the  real  deity  of  Asia,  worshipped  under 
+different  forms  (hence  the  plural  :  Baalim).  Moloch  was  only  Baal  under 
+another  aspect,  that  of  destruction,  comp.  Jer.  xix.  5  ;  xxxii.  35. 
+
+-  In  the  original  the  word,  as  before  noted,  is  the  same  as  that  rendered 
+"halt"  (in  verse  21).  The  expression,  no  doubt,  refers  to  the  pantomimic 
+dances  around  the  altar. 
+
+
+1 8  Ahab,  King  of  Israel. 
+
+Elijah  now  reminded  them  that,  since  Baal  was  Elohim,  the 
+fault  must  lie  with  them.  He  might  be  otherwise  engaged, 
+and  they  must  cry  louder.  Stung  to  madness,  they  became 
+more  frantic  than  before,  and  what  we  know  as  the  second  and 
+third  acts  in  these  feasts  ensued.  The  wild  howl  passed  into 
+piercing  demoniacal  yells.  In  their  madness  the  priests  bit 
+their  arms  and  cut  themselves  with  the  two-edged  swords 
+which  they  carried  and  with  lances.-^  As  blood  began  to  flow 
+the  frenzy  reached  its  highest  pitch,  when  first  one,  then  others, 
+commenced  to  "prophesy,"  moaned  and  groaned,  then  burst 
+into  rhapsodic  cries,  accusing  themselves,  or  speaking  to  Baal, 
+or  uttering  incoherent  broken  sentences.  All  the  while  they 
+beat  themselves  with  heavy  scourges,  loaded  or  armed  with 
+sharp  points,  and  cut  themselves  with  swords  and  lances — 
+sometimes  even  mutilated  themselves — since  the  blood  of  the 
+priests  was  supposed  to  be  specially  propitiatory  with  Baal. 
+
+Two  more  hours  had  this  terrible  scene  lasted — and  their 
+powers  of  endurance  must  have  been  all  but  exhausted.  The 
+sun  had  long  passed  its  meridian,  and  the  time  of  the  regular 
+evening-sacrifice  in  the  Temple  of  Jehovah  at  Jerusalem  had 
+come.  From  the  accounts  of  Temple-times  left  us  we  know 
+that  the  evening  sacrifice  was  offered  "  between  the  evenings," 
+as  it  was  termed — that  is^  between  the  downgoing  of  the  sun  and 
+the  evening.2  In  point  of  fact  the  service  commenced  between 
+two  and  three  p.m.  It  must  have  been  about  the  same  time 
+when  Elijah  began  the  simple  yet  solemn  preparations  for  his 
+sacrifice.  Turning  from  the  frantic  priests  to  the  astonished 
+people,  he  bade  them  draw  nigh.  They  must  gather  around 
+him,  not  only  in  order  to  be  convinced  that  no  deception  was 
+practised,  but  to  take  part  with  him,  as  it  were,  in  the  service. 
+And  once  more  Israel  was  to  appear  as  the  Israel  of  old  in 
+
+^  This  is  the  correct  rendering  of  verse  28,  and  not  "knives  and  lancets," 
+as  in  the  Authorised  Version. 
+
+^  For  a  full  description  and  explanation  of  the  time  of  the  Evening 
+Sacrifice,  see  The  Temple^  its  Alinistry  and  Services  at  the  tivic  of  Jesus 
+Christ,  p.   116. 
+
+
+The  Sacrifice  to  JeJiovah.  19 
+
+happier  times,  undivided  in  nationality  as  in  allegiance  to 
+Jehovah.  This  was  the  meaning  of  his  restoring  the  broken 
+place  of  former  pious  worship  by  rolling  to  it  twelve  of  the 
+large  pieces  of  rock  that  strewed  the  ground,  according  to  the 
+number  of  the  tribes.  And  as  he  built  the  altar,  he  consecrated 
+it  by  prayer:  "in  the  name  of  Jehovah."  Next,  the  soft 
+crumbling  calcareous  soil  around  the  altar  was  dug  into  a  deep 
+and  wide  trench.  Then  the  wood,  and  upon  it  the  pieces  of 
+the  sacrifice  were  laid  in  due  order.  And  now,  at  the  prophet's 
+bidding,  willing  hands  filled  the  pitchers  from  the  well  close 
+by.^  Once,  twice,  thrice  he  poured  the  water  over  the  sacrifices, 
+till  it  ran  down  into  the  trench,  which  he  also  filled.  This,  as 
+we  suppose,  not  merely  to  show  the  more  clearly  that  the  fire, 
+which  consumed  the  sacrifice  in  such  circumstances,  was  sent 
+from  heaven,  but  also  for  symbolic  reasons,  as  if  to  indicate 
+that  Israel's  penitent  confession  was  poured  upon  the  offering. 
+
+And  now  a  solemn  silence  fell  on  the  assembly.  The  sun 
+was  going  down,  a  globe  of  fire,  behind  Carmel,  and  covered 
+it  with  purple  glow.  It  was  the  time  of  the  evening  sacrifice. 
+But  Jehovah,  not  Elijah,  would  do  the  miracle ;  the  Hand  of 
+the  living  God  Himself  must  be  stretched  out.  Once  more  it 
+was  prayer  which  moved  that  Hand.  Such  prayer  was  not 
+heard  before — so  calm,  so  earnest,  so  majestic,  so  assured,  so 
+strong.  Elijah  appeared  in  it  as  only  the  servant  of  Jehovah, 
+and  all  that  he  had  previously  done  as  only  at  His  Word  :  but 
+Jehovah  was  the  covenant-God,  the  God  of  Abraham,  of  Isaac, 
+and  of  Israel,  manifesting  Himself  as  of  old  as  the  Living  and 
+True,  as  Elohim  in  Israel :  the  conversion  of  Israel  to  Him  as 
+tlieir  God  being  the  great  object  sought  for.- 
+
+He  had  said  it,  and,  as  when  first  the  Tabernacle  was  con- 
+secrated (Lev.  ix.   24),  or  as  when  King  Solomon  (i   Chron. 
+
+■^  The  Rabbis  note  that,  each  time,  four  pitchers  of  water  were  poured,  or 
+twelve  in  all,  corresponding  to  the  twelve  stones  of  which  the  altar  was 
+built,  and  for  the  same  symbolic  reason. 
+
+2  I  Kings  xviii.  37  indicates  the  final  (moral)  purpose  not  only  of  tliis 
+but  of  every  miracle.  The  last  clause  of  the  verse  should  be  rendered  in 
+the  present  tense  :  "and  that  Thou  turnest  their  heart  back  again." 
+
+
+20  AJiab^  King  of  Israel. 
+
+xxi.  26 ;  2  Chron.  vii.  i)  brought  the  first  offering  in  the 
+Temple  which  he  had  reared  to  Jehovah,  so  now  the  fire  of 
+Jehovah  leaped  from  heaven,  consumed  the  sacrifice  and  the 
+wood,  enwrapped  and  burnt  up  the  limestone  rocks  of  which 
+the  altar  was  constructed,  and  with  burning  tongue  licked  up 
+even  the  water  that  was  in  the  trench.  One  moment  of  solemn 
+silence,  when  all  who  had  seen  it  fell  in  awe-stricken  worship 
+on  their  faces ;  then  a  shout  which  seemed  to  rend  the  very  air, 
+and  found  its  echo  far  and  wide  in  the  glens  and  clefts  of 
+Carmel :  "  Jehovah,  He  the  Elohim  !  Jehovah^  He  the 
+Elohim  ! " 
+
+And  so  Israel  was  once  more  converted  unto  God.  And 
+now,  in  accordance  with  the  Divine  command  in  the  Law  (Deut. 
+xiii.  13  ;  xvii.  2,  etc.),  stern  judgment  must  be  executed  on  the 
+idolaters  and  seducers,  the  idol-priests.  The  victory  that  day 
+must  be  complete;  the  renunciation  of  Baal-worship  beyond 
+recall.  Not  one  of  the  priests  of  Baal  must  escape.  Down 
+the  steep  mountain  sides  they  hurried  them,  cast  them  over 
+precipices,  those  fourteen  hundred  feet  to  the  river  Kishon, 
+which  was  reddened  with  their  blood.-^  But  up  on  the  moun- 
+tain-top lingered  King  Ahab,  astonished,  speechless,  himself 
+for  the  time  a  convert  to  Jehovah.  He  also  was  to  share  in 
+the  sacrifice ;  he  was  to  eat  the  sacrificial  meal.  But  it  must  be 
+in  haste,  for  already  Elijah  heard  the  sighing  and  low  moaning 
+of  the  wind  in  the  forest  of  Carmel.  Himself  took  no  part  in 
+the  feast.  He  had  other  bread  to  eat  whereof  they  wot  not. 
+He  had  climbed  the  topmost  height  of  Carmel  out  of  sight 
+of  the  king.  None  had  accompanied  him  save  his  servant, 
+whom  tradition  declares  to  have  been  that  son  of  the  widow  of 
+Sarepta  who  had  been  miraculously  restored  to  Ufe.  Most 
+fitting  minister,  indeed,  he  would  have  been  in  that  hour. 
+Once  more  it  was  agonising  prayer — not  once,  but  seven  times 
+repeated. 2     At  each  break  in  it  the  faithful  attendant  climbed 
+
+^  It  is  scarcely  credible,  in  view  of  the  words  of  our  Lord,  I.uke  ix.  55, 
+56  ;  and  yet  this  scene  has  been  adduced  as  a  precedent  for  the  persecution 
+of  so-called   "heretics."  ^  Seven — the  number  of  the  Covenant. 
+
+
+To  Jezreel,  in  the  Storm.  21 
+
+the  highest  knoll,  and  looked  earnestly  and  anxiously  over  the 
+broad  expanse  of  the  sea,  there  full  in  view.  At  last  it  had 
+come — a  cloud,  as  yet  not  bigger  than  a  man's  hand.  But 
+when  God  begins  to  hear  prayer,  He  will  hear  it  abundantly ; 
+when  He  gives  the  blessing,  it  will  be  without  stint.  Ahab 
+must  be  up,  and  quick  in  his  chariot,  or  the  rain,  which  will 
+descend  in  floods,  will  clog  the  hard  ground,  so  that  his  chariot 
+would  find  it  difficult  to  traverse  the  six  miles  across  the  plain 
+to  the  palace  of  Jezreel.  And  now  as  the  foot  of  the  mountain 
+was  reached,  the  heaven  was  black  with  clouds,  the  wind 
+moaned  fitfully,  and  the  rain  came  in  torrents.  But  the  power 
+of  Jehovah^  was  upon  the  Tishbite.  He  girded  up  his  loins 
+and  ran  before  the  chariot  of  Ahab.  On  such  a  day  he  hesi- 
+tated not  to  act  as  outrunner  to  the  convert-king;  nay,  he 
+would  himself  be  the  harbinger  of  the  news  to  Jezreel.  Up  to 
+the  entrance  of  Jezreel  he  heralded  them ;  to  the  very  gate  of 
+Jezebel's  palace  he  went  before  them,  like  the  warning  voice  of 
+God,  ere  Ahab  again  encountered  his  tempter.  But  there  the 
+two  must  part  company,  and  the  king  of  Israel  must  henceforth 
+decide  for  himself  to  whom  he  will  cleave,  whether  to  Jehovah 
+or  to  the  god  of  Jezebel. 
+
+^  The    Targum   renders:      *'And   the    spirit   of  strength   from   before 
+Jehovah." 
+
+
+CHAPTER     II. 
+
+Different  Standpoint  of  the  Old  and  tlie  New  Testament— Analogy  between 
+Elijah  and  John  the  Baptist— Jezebel  threatens  Elijah's  life— The 
+Prophet's  Flight— His  Miraculous  Provision— Analogy  between  Moses 
+and  Elijah— Elijah  at  Mount  Horeb—What  doest  thou  here,  Elijah? 
+—  The  Wind,  the  Earthquake,  the  Fire,  and  the  Still  Small  Voice— The 
+Divine  Message  and  Assurance  to  Elijah— Call  of  Elisha. 
+
+(i  Kings  xix,) 
+
+UNSPEAKABLY  grand  as  had  been  the  scene  on  Mount  Carmel, 
+we  instinctively  feel  that  it  was  the  outcome  of  the  Old 
+Testament.  We  cannot  conceive  it  possible  under  the  Nev/ 
+dispensation.  In  so  saying  we  do  not  so  much  refer  to  the 
+ironical  taunts  which  Elijah  had  addressed  to  the  priests  of 
+Baal,  when  compassion,  gentleness,  and  meekness  might  have 
+seemed  befitting,  since  it  was  necessary  effectually  to  expose 
+the  folly  as  well  as  the  sin  of  idolatry,  and  this  was  best  done 
+in  such  manner  (comp.  Isa.  xl.  i8,  etc. ;  xli.  7  ;  xliv.  8-22  ; 
+xlvi.  5-1 1  ;  Jer.  x.  7,  etc.).  Nor  do  we  allude  only  or  mainly 
+to  the  destruction  of  the  priests  of  Baal.  This  was  simply  in 
+obedience  to  the  Old  Testament  Law,  and  was  grounded  alike 
+on  its  economy  ^  and  on  the  circumstances  of  the  time.  Taking 
+the  lowest  view,  it  was  an  act  of  necessary  self-preservation, 
+since  the  two  religions  could  not  co-exist,  as  the  conduct  of 
+Jezebel  had  recently  proved.  But  there  is  a  higher  view  than 
+this  of  the  event.  For  the  fundamental  object  of  Israel's 
+calling  and  existence — the  whole  typical  import  and  prepara- 
+tory purpose  of  the  nation — was  incompatible  with  even  the 
+existence  of  idolatry  among  them.  Finally,  there  is  this 
+essential  difference  between  the  Old  and  the  New  Testament 
+
+1  I  use  the  term  "economy"  here  in  its  original  meaning,  as  denoting 
+the  household  arrangement,  the  household  legislation  and  order. 
+
+
+TJlc  Old  and  the  Nezv  Dispensation.  23 
+
+dispensation— that  under  the  latter,  religion  is  of  personal 
+choice,  heart-willingness  being  secured  by  the  persuasion  of 
+the  Holy  Ghost ;  while  under  the  Old  Testament  (from  its 
+nature)  religion  was  of  Law.  Religious  liberty  is  a  principle 
+which  necessarily  follows  from  a  religion  of  free  choice,  where 
+God  no  longer  addresses  Himself  to  man  merely,  or  mainly, 
+with  the  authority  of  a  general  Law,  but  appeals  to  the  in- 
+dividual conscience  with  the  persuasion  of  a  special  invitation. 
+Under  the  Old  Testament,  of  which  the  fundamental  principle 
+was  the  sole  Divine  authority  of  Jehovah  (Ex.  xx.  2,  3),  idolatry 
+was  not  only  a  crime,  but  a  revolt  against  the  Majesty  of 
+heaven,  Israel's  King,  which  involved  the  most  fatal  conse- 
+quences to  the  nation.  Yet  even  so,  we  repeat  it,  the  scene 
+on  Mount  Carmel  could  not  have  been  enacted  in  New  Testa- 
+ment times. 
+
+But  while  fully  admitting  this  distinctive  standpoint  of  the 
+preparatory  dispensation,  it  were  a  most  serious  mistake  to 
+forget  that  the  Old  Testament  itself  points  to  a  higher  and 
+fuller  manifestation  of  God,  and  never  more  distinctly  than  in 
+this  history  of  Elijah.  Attention  has  already  been  called  to 
+the  analogy  between  Elijah  and  John  the  Baptist.  At  this 
+stage  we  specially  recall  three  points  in  the  history  of  the 
+latter.  It  seems  as  if  the  Baptist  had  expected  that  his  warning 
+denunciations  would  be  immediately  followed  either  by  visible 
+reform,  or  else  by  visible  judgment.  But  instead  of  this  he 
+was  cast,  at  the  instigation  of  Herod's  wife,  into  a  dungeon 
+which  he  was  never  to  leave;  and  yet  judgment  seemed  to 
+slumber,  and  the  Christ  made  no  movement  either  for  the 
+deliverance  of  His  forerunner,  or  the  vindication  of  his  message. 
+And,  lastly,  in  consequence  of  this  disapix)intment,  spiritual 
+darkness  appears  to  have  gathered  around  the  soul  of  the 
+Baptist.  One  almost  feels  as  if  it  had  been  needful  for  such  a 
+messenger  of  judgment  to  become  consciously  weak,  that  so 
+in  the  depression  of  the  human  the  Divine  element  might 
+appear  the  more  clearly.  And  it  was  also  good  that  it  should 
+be  so,  since  it  led  to  the  inquiring  embassy  to  Christ,  and 
+
+
+24  Ahab,  King  of  Israel. 
+
+thus  to  a  fuller  revelation  of  the  Divine  character  of  the  king- 
+dom. The  same  expectation  and  the  same  disappointment 
+are  apparent  in  the  history  of  Elijah  on  the  morrow  of  the 
+victory  at  Carmel.  But  they  also  led  up  to  a  fuller  manifesta- 
+tion of  the  meaning  and  purpose  of  God.  Thus  we  see  how 
+the  Old  Testament  itself,  even  where  its  distinctive  character 
+most  clearly  appeared,  pointed  to  that  fuller  and  more  glorious 
+manifestation  of  God,  symbolised,  not  by  storm,  earthquake, 
+or  fire,  but  by  "  the  still  small  voice." 
+
+If  Elijah  had  lingered  in  Jezreel  in  the  hope  that  the  re- 
+formation proclaimed  on  Mount  Carmel  would  be  followed  up 
+by  the  king,  he  was  soon  to  experience  bitter  disappointment. 
+There  is,  however,  good  reason  for  inferring  that  the  impression 
+then  made  upon  the  mind  of  Ahab  was  never  wholly  effaced. 
+This  appears  not  only  from  the  subsequent  relations  between 
+the  king  and  prophets  of  the  Lord  (i   Kings  xx.),  but  even 
+from  his  tardy  repentance  after  the  commission  of  his  great 
+crime  (i   Kings  xxi.   27-29).     Indeed,  it  might  almost  seem 
+as  if,  but  for  the  influence  of  Jezebel  upon  the  weak  king, 
+matters  might  at  least  temporarily  have  taken  a  different  turn 
+in  Israel.     But  if  such  was  the   effect  produced  upon  Ahab 
+by  the  scene   on    Mount    Carmel,    we   can   understand   that 
+Jezebel's   first  wish  must  have  been  as  soon  as  possible  to 
+remove  Elijah  from  all  contact  with  the  king.    For  this  purpose 
+she  sent  a  message,  threatening  the  prophet  with  death  within 
+twenty-four  hours.     It  need  scarcely  be  said,  that,  if  she  had 
+been  so  bold  as  really  to  purpose  his  murder,  she  would  not 
+have  given  him  warning  of  it.  and  that  the  reference  to  twenty- 
+four  hours  as  the  limit  of  his  life  must  rather  have  been  in- 
+tended to  induce  Elijah  to  immediate  flight.     And  she  suc- 
+ceeded in  her  purpose — not,  indeed,  from  fear  on  the  part  of 
+the  prophet,^  but  from  deep  disappointment  and  depression, 
+for  which  we  may  in  some  measure  find  even  a  physical  cause 
+
+1  The  LXX.  (and  some  Codd.)  by  a  slight  change  alter  the  word  "saw  " 
+(i  Kings  xix.  3)  into  one  which  means  "  feared  :  "  it  need  scarcely  be  said, 
+erroneously. 
+
+
+The  Flight  of  Elijah.  25 
+
+in  the  reaction    that    must    have   followed  on  the  day  after 
+Carmel. 
+
+Strange  as  it  may  seem,  these  felt  weaknesses  of  men  like 
+Elijah  come  upon  us  with  almost  a  sense  of  relief.  It  is  not 
+only  that  we  realise  that  these  giants  of  faith  are  men  of  like 
+passions  with  ourselves,  but  that  the  Divine  in  their  work  is 
+thereby  the  more  prominently  brought  out.  It  deserves  special 
+notice  that  Elijah  proceeded  on  his  hasty  journey  without  any 
+Divine  direction  to  that  effect.  Attended  only  by  his  faithful 
+servant,  he  passed  without  pausing  to  the  farthest  boundary  of 
+the  neighbouring  kingdom  of  Judah.  But  even  that  was  not 
+his  final  destination,  nor  could  he  in  his  then  mood  brook  any 
+companionship.  Leaving  his  servant  behind,  he  went  into 
+the  wilderness  of  Paran.  In  its  awful  solitude  he  felt  himself 
+for  the  first  time  free  to  rest.  Utterly  broken  down  in  body 
+and  in  spirit,  he  cast  himself  under  one  of  those  wide-spreading 
+brooms,!  which  seemed  as  if  they  indicated  that  even  in  the 
+vast,  howling  wilderness,  the  hand  of  the  Great  Creator  had 
+provided  shelter  for  His  poor,  hardly  bestead  wanderers. 
+There  is  something  almost  awful  in  the  life-and-death  conflicts 
+of  great  souls.  We  witness  them  with  a  feeling  akin  to  rever- 
+ence. The  deep  despondency  of  Elijah's  soul  found  utterance 
+in  the  entreaty  to  be  released  from  work  and  suffering.  He 
+w^as  not  better  than  his  fathers ;  fike  them  he  had  vainly 
+toiled;  like  them  he  had  failed;  why  should  his  painful  mission 
+be  prolonged  ?  But  not  so  must  he  pass  away.  Like  Moses 
+of  old,  he  must  at  least  gain  distant  view  of  the  sweet  land  of 
+beauty  and  rest.  As  so  often,  God  in  His  tender  mercy  gave 
+His  beloved  the  precious  relief  of  sleep.  And  more  than  that— 
+he  was  to  have  evidence  that  even  there  he  was  not  forsaken. 
+An  angel  awakened  him  to  minister  to  his  wants.  God  careth 
+for  the  body ;  and  precious  in  His  sight  is  not  only  the  death, 
+but  also  the  felt  need  of  His  people.    The  same  great  Jehovah, 
+
+!  The  Rothem  is  not  a  juniper-tree  (as  in  the  Authorised  Version),  but 
+a  species  of  large,  wide-spreading  broom,  which  generally  grows  near 
+watercourses,  and  serves  as  protection  alike  from  the  sun  and  the  wind. 
+
+D 
+
+
+26  Ahab,  King  of  Israel. 
+
+Whose  manifestation  on  Carmel  had  been  so  awful  in  its 
+grandeur,  condescended  to  His  servant  in  the  hour  of  his 
+utmost  need,  and  with  unspeakable  tenderness,  like  a  mother, 
+tended  His  weary  child.  Once  more  a  season  of  sleep,  and 
+again  the  former  heaven-given  provision  for  the  journey  which 
+he  was  to  make — now  in  the  guidance  of  God.^ 
+
+The  analogy  between  Moses,  as  he  through  w^hom  the 
+Covenant  was  given,  and  Elijah,  as  he  through  whom  the 
+Covenant  was  restored,  has  already  been  indicated.  There  is, 
+however,  one  great  difference  between  the  two.  When  Israel 
+broke  the  Covenant  which  Moses  was  about  to  make,  he 
+pleaded  for  them  with  the  most  intense  agony  of  soul  (Ex. 
+xxxiii.-xxxiv.  9).  When  once  more  Israel  broke  the  Covenant 
+on  the  morrow  of  Carmel,  Elijah  fled  in  utter  despondency 
+of  spirit.  In  both  cases  God  granted  light  to  His  servants 
+by  such  manifestation  of  Himself  as  gave  deepest  insight  into 
+His  purposes  of  grace  and  anticipation  of  the  manner  in  which 
+they  would  be  ultimately  realised  in  all  their  fulness  through 
+Jesus  Christ.  And  hence  it  was  in  this  respect  also  fitting 
+that  Moses  and  Elijah  should  be  with  Jesus  on  the  Mount  of 
+Transfiguration.  But  Elijah  had  not  been  like  Moses  ;  rather 
+had  he  been  like  the  children  of  Israel.  And  therefore,  like 
+them,  must  he  wander  for  symbolic  forty  days  in  the  wilder- 
+ness, before  liberty  and  light  were  granted,^  to  learn  the  same 
+lesson  which  God  would  have  had  Israel  learn  during  their 
+forty  years  of  wandering.  And  so  he  came  ultimately  unto 
+"the  mount  of  God,"  to  "the  cave  "  ^ — perhaps  the  very 
+"clift  of  the  rock"  where  Moses  had  first  been  permitted  to 
+hear  the  glorious  revelation  of  what  Jehovah  was  and  of  what 
+He  purposed. 
+
+1  Kimchi  marks  that  the  second  meal  was  not  newly  brought,  but  must 
+have  been  the  remainder  of  the  old.  He  also  points  out  how  Elijah  was 
+led  in  the  wilderness  by  a  higher  direction  than  his  own. 
+
+"  The  journey  straight  to  Mount  Horeb  would  have  taken  scarcely  more 
+than  a  fourth  of  that  time. 
+
+^  The  Hebrew  has  the  definite  article,  to  mark  a  special,  well-known 
+cave. 
+
+
+ElijaJi  at  tJie  Mount  of  God.  27 
+
+It  was  a  wondrous  place  in  which  to  spend  the  night,  1  and 
+to  hear  amidst  its  silence  the  voice  of  Jehovah. 2  The  one 
+question — afterwards  repeated  in  different  circumstances  — 
+"  What  doest  thou  here,  Elijah  ?  "  ^  was  intended  to  bring  his 
+state  of  mind  clearly  to  the  consciousness  of  the  prophet.  In 
+tender  mercy,  no  reproach  was  uttered,  not  even  reproof  of  the 
+rash  request  for  release  from  seemingly  hopeless,  burdensome 
+toil.  But  was  it  really  hopeless  ?  Did  Elijah  rightly  apprehend 
+God's  final  purpose  in  it ;  did  he  even  know  what  in  God's  Provi- 
+dence would  follow  that  seeming  defeat  of  the  prophet  on  the 
+day  after  his  great  victory  :  how  God  would  vindicate  His 
+cause,  punish  the  rebellious,  and  take  care  of  His  own  ?  What 
+then  had  brought  Elijah  thither ;  what  was  his  purpose  in 
+coming  ?  Although  the  same  question  was  twice  asked  and 
+the  same  answer  twice  returned,  it  seems  in  each  case  to  bear 
+a  somewhat  different  meaning.  For  the  words  of  Elijah  (vv. 
+10,  14)  imply  two  things  :  an  accusation  against  the  children 
+of  Israel  and  a  vindication  of  his  own  conduct  in  fleeing  into 
+the  wilderness.  The  first  of  these  seems  to  have  been  the 
+meaning  of  his  reply  before  the  special  manifestation  of  God 
+(Rom.  xi.  2,  3);  the  second^  that  after  that  revelation  of  God 
+which  the  vision  conveyed.  This  manifestation,  so  deeply 
+symbolical,  appears  to  us  to  have  also  wrought  an  entire  change 
+in  the  prophet. 
+
+The  first  question  came  to  Elijah  while  still  in  the  cave. 
+As  already  stated,  it  elicited  from  him  an  accusation  of  His 
+people,  as  if  to  appeal  for  vengeance  to  the  Eord  (Rom.  xi. 
+2,  3) — "  It  is  time  for  Thee  to  work,  O  Lord,  for  men  have 
+made  void  Thy  Law"  (Psa.  cxix.  126)  !  Upon  this  Elijah  was 
+bidden  to  go  forth  out  of  the  dark,  narrow  cave,  and  behold,  as 
+
+1  This  is  the  meaning  of  the  word  "  lodge  "  in  verse  9. 
+
+^  Some  commentators  regard  the  first  part  of  what  is  related  as  having 
+been  a  vismi.     But  there  seems  no  indication  of  this  in  the  text. 
+
+^  The  question  bears  manifold  application.  By  recalling  it,  the  children 
+of  God  have  not  unfrequently  been  preserved  from  sin,  from  improper 
+association,  and  from  worldly  conformity. 
+
+
+28  A/iab,  King  of  Israel. 
+
+Jehovah  passed  by.^  Not  a  word  was  spoken.  But  first  burst 
+*'  wind  great  and  strong,  rending  mountains,  shivering  rocks 
+before  the  face  of  Jehovah — not  in  storm  Jehovah  !  And 
+after  the  wind  earthquake — not  in  earthquake  Jehovah  !  And 
+after  the  earthquake  fire — not  in  fire  Jehovah  !  And  after  the 
+fire  sound  of  soft  silencing  (audible  gentle  stilling  )  !  "  ^  Elijah 
+could  not  but  have  understood  the  meaning  of  this.  He  knew 
+it  when,  at  the  "  sound  of  soft  stilling,"  he  wrapped  his  face 
+in  the  mantle  and  came  forth  in  most  reverent  attitude  to  stand 
+before  Jehovah  (comp.  Ex.  iii.  6;  xxxiii.  20,  22;  Isa  vi.  2). 
+The  storm  which  rends,  the  earthquake  which  shakes  all  to 
+its  foundations,  the  fire  which  consumes — these  are  but  His 
+messengers  which  at  most  precede  His  coming.  But  Jehovah 
+Himself  is  not  in  them.  When  He  cometh  it  is  not  in  these, 
+but  in  the  gentle  stilling  of  them.  To  learn  this  was  a  real, 
+though  not  an  expressed,  answer  to  Elijah's  despondency  and 
+to  his  accusing  appeal  against  Israel,  the  more  touchingly 
+conveyed  that,  being  indirect,  like  the  answer  of  Jesus  to  the 
+inquiry  of  the  Baptist,  it  carried  instruction  but  not  rebuke. 
+The  mood  of  both  was  the  same,  their  doubts,  and  the  reply 
+given  to  them.  It  was  in  effect,  See  what  the  Lord  really  is, 
+purposes,  and  doeth ;  and  learn  reverently  to  bow  and  to 
+adore.  God  is  greater,  higher,  better  than  appears  only  in 
+judgment :  do  thy  work,  and  leave  the  result  to  Him — He  will 
+make  it  plain.  And  so,  we  suppose  that,  when  after  this 
+manifestation  the  samp  question  again  came  to  Elijah,  his 
+answer  was  no  longer  in  the  spirit  of  accusation,  but  rather  a 
+
+1  The  LXX.  seem  to  have  read  more  correctly  the  first  clauses  of  verse  11. 
+We  translate  :  "And  he  said,  Go  forth  and  stand  on  the  mount  before 
+Jehovah — and  behold,  Jehovah  passing  by  (passeth  by)."  The  narrative 
+portion  only  begins  after  this:  "And  wind,  great  and  strong,"  etc.  It 
+deserves  notice  that  the  expression  "pass  by  "is  only  used  here  and  in 
+Ex.  xxxiii.  and  xxxiv.  6  of  Jehovah.  Generally  the  opposite — that  of 
+dwelling  (whence  Shechinah) — is  connected  with  Him.  Of  these  glorious 
+manifestations  only  passing  glimpses  could  be  caught  under  the  Old  Tes- 
+tament. 
+
+2  So  literally. 
+
+
+The  Auswer  of  the  Lord.  29 
+
+statement  of  fact  in  vindication  or  explanation  of  his    own 
+presence  on  Mount  Horeb. 
+
+With  reverence  be  it  said  that^  in  the  mood  in  which  Ehjah 
+had  come,  no  more  fitting  answer  could  have  been  made  to 
+him  than  this  awful  and  glorious  self-manifestation  of  Jehovah. 
+If  the  Lord  Himself  had  not  been  in  the  desolating  messen- 
+gers of  terror,  why  should  Elijah  have  expected  it  in  the 
+judgments  which  he  was  commissioned  to  execute  ?  Nay,  if 
+Elijah  himself  had  come  forth  to  worship  not  in  the  storm,  the 
+earthquake,  nor  the  fire,  but  had  waited  for  the  Presence  of 
+the  Lord  in  the  soft,  gentle,  stilling  sound,  why  should  he 
+wonder  if  the  revival  of  Israel's  worship  awaited  a  similar 
+manifestation  ?  But  God  would  in  the  meantime  take  care  of 
+His  own  cause.  The  storm  must  burst  from  without  on  an 
+unrepentant  people  :  Hazael  was  to  be  anointed  king  of  Syria, 
+and  foreign  wars,  more  desolating  than  any  that  had  preceded, 
+would  sweep  over  Israel.  The  earthquake  would  shake  the 
+house  of  Ahab  to  its  foundations :  and  Jehu  was  to  be  ap- 
+pointed the  minister  of  vengeance.  That  fire  which  Elijah  had 
+kindled  would  burn  more  brightly  and  fiercely :  the  mission 
+of  Elijah  was  to  be  continued  in  Elisha.  To  prepare  all  ^  this 
+was  now  the  only  work  left  for  the  aged  and  weary  prophet. 
+And  in  each  case  he  did  prepare  it.^  Elisha  was  called  by  the 
+prophet  himself.  The  destruction  of  the  house  of  Ahab,  which 
+involved  the  elevation  of  Jehu,  through  whom  it  was  accom- 
+pHshed,  was  distinctly  announced  to  Ahab  by  Elijah  in  the 
+field 'of  Naboth  (i  Kings  xxi.  19,  21,  22);  while  the  future 
+power  of  Syria  over  Israel,  which  involved  the  elevation  of 
+
+^  The  expressions  in  i  Kings  xix.  15-17  must,  of  course,  not  be  pressed 
+in  a  literal  sense.  As  a  matter  of  fact,  only  Jehu  was  anointed,  and  that 
+neither  by  Elijah  nor  by  Elisha.  Similarly  the  expression  about  Elisha 
+slaying  those  who  had  escaped  the  sword  of  Jehu  must  lie  taken  in  its 
+obvious  figurative  meaning.  But  in  the  sight  of  God  these  three  were  from 
+that  moment  "  anointed  to  their  work  "  (comp.  2  Kings  viii.  13,  leaving  out 
+the  words  in  italics,  and  2  Kings  ix.  3). 
+
+-  It  is  strange  that  commentators  should  so  generally  have  failed  to  see 
+this, 
+
+
+30  Ahab,  King  of  Israel. 
+
+Hazael,  was  similarly  prophetically  intimated  (i  Kings  xx,  42) 
+— as  we  conjecture  from  the  expression  "  a  certain  man  of  the 
+sons  of  the  prophets"  (i  Kings  xx.  35) — by  direction  of 
+Elijah. 
+
+Yet  one  precious  assurance,  or  rather  visible  token  that 
+Jehovah  was  still  in  Israel,  in  the  voice  of  soft  stilling,  was 
+granted  to  the  prophet.  All  unknown  to  him  God  had  even  in 
+corrupt  Israel  His  own,  a  "  remnant  according  to  the  election 
+of  grace "  (Rom.  xi.  2-5),  a  sacred  covenant-number  which 
+could  be  counted  by  thousands  ^ — "  still  ones  "  in  the  land,  who 
+had  never  bent  the  knee  to  Baal  nor  kissed  in  worship  the 
+abominable  image. ^  And  yet  further  consolation  was  to  be 
+granted  to  the  weary  servant  of  the  Lord.  In  each  case  the 
+actual  judgment  was  to  be  only  intimated,  not  executed,  through 
+Elijah  himself,  or  in  his  lifetime.  But  this  comfort  would  he 
+have,  that,  even  in  his  lifetime,  and  while  engaged  in  his  mis- 
+sion, a  yoke-fellow  true  in  sympathy,  ministry,  and  likeness  of 
+spirit,  should  attend  him  to  make  the  burden  seem  easier  to 
+bear. 
+
+It  was  as  had  been  told  him.     With  a  sense  that  his  mission 
+
+■""^U-nigh  completed,  and  that  what  remained  was  chiefly 
+
+,     ,      J     r  Elisha  for  his  work,"the  prophet  turned  aeain  towards 
+the  land  of  1.        .       .     .  ^,    .^        ,  .  *    ^        .^    .  . 
+
+,  ^ael.     As  he  proceeded  on  his  way,  nature  itself 
+
+must  have  seem  n     /,i       17  w-        c  .-n 
+
+,  •  I  -"d  to  reflect  the  gladsome  revelation  of  stillness 
+
+.       1  •  1   -u  had  been  vouchsafed  on  Horeb.     The  abun- 
+dant ram  which  haa  r.       J   .1      1 
+
+1    J  i^  ij        ^\^    descended  must  have   soitened  the  long- 
+parched  fields.     The  v  .1,         i      r 
+^    .         T-           1        , 1  country  was  putting  on  the  srarb  of  a  new 
+spring.    Everywhere  the          /    r.i     u     1      j  j 
+,       ,        J  /3     1              U'  work  of  the  husbandman  was  resumed  ; 
+herds  and  flocks  were  d.         .       .                                         ,       , 
+. ,,            .       .     .rowsino;  in  the  meadows ;  busy  hands 
+were  rapidly  putting  in  ti           ^                   j    u    /      ^^  a    ^ 
+,        •  1    T     J           11        be  seed.     Upwards  he  travelled  along 
+the  rich  Jordan  valley,  t                     ^                      rx^i     1 
+
+11,   past  the  borders   of  Judah,  he 
+
+1  The  term  7000  must  not  be 
+number  of  the  faithful.      Sez^cn  i^-^ressed  literally,   as  if  it  were  the  exact 
+1  the  well-known    sacred  and  covenant- 
+
+'^  To  kiss  the  idol— its  feet,  bean  _       _ 
+
+heathen  worship.  ''    etc.-was  the  common  practice  in 
+
+
+The  Calling  of  ElisJia.  31 
+
+reached  the  ancient  possession  of  Issachar.  No  more  liappy 
+scene  than  on  the  fields  oi  Abel Meholah,  the  ''meadow  of  the 
+dance,"  of  which  the  very  name  seems  to  suggest  the  joyous 
+time  of  rich  harvest  and  the  merry  dances  of  the  reapers.  These 
+fields,  far  as  the  eye  could  reach,  were  the  possession  of  one 
+Shaphat,  and  he  was  of  those  seven  thousand  who  had  not 
+bent  to  Baal,  as  we  infer  even  from  the  name  which  he  had 
+given  to  his  son  :  Elisha,  "the  God  of  salvation,"  or  better, 
+"  my  God  salvation."  And  now  twelve  yoke  of  oxen  were 
+ploughing  up  the  land — eleven  guided  by  the  hands  of  servants, 
+the  twelfth,  in  good  old  Hebrew  simple  fashion,  by  the  son  of 
+the  owner  of  those  lands. 
+
+With  characteristic  sparingness  of  detail  the  sacred  text  does 
+not  inform  us  whether  Elijah  had  before  known  his  successor, 
+nor  how  he  came  now  to  recognize  him.  Suffice  it,  that  he  knew 
+and  called  him,  not  in  words,  indeed,  but  by  the  unmistakable 
+symbolic  action  of  casting  over  him  his  prophet's  mantle,  as  he 
+passed.  This'was  Elisha's  first  test.  There  was  no  absolute  need 
+for  responding,  nor  yet  for  showing  that  he  had  understood 
+an  unspoken  call,  which  could  have  offered  so  little  to  attract 
+even  one  whose  lot  had  been  cast  in  circumstances  much 
+less  happy  than  those  of  Elisha.  But  Elisha  showedjiis  inward 
+and  spiritual  preparedness  by  at  once  responding  to  Elijah's 
+call,  with  only  this  one  request  :  to  be  allowed  to  take  leave 
+of  his  father  and  mother.^  It  was  not  stern  rebuke  nor  reproof 
+which  prompted  the  reply  of  Elijah  :  "  Go  back,  for  what 
+have  I  done  to  thee?  "  Precisely  because  he  understood  the 
+greatness  of  the  sacrifice  which  immediate  obedience  implied, 
+would  he  leave  Elisha  entirely  unswayed  and  free,  and  his  ser- 
+vice the  outcome  of  his   own  heart's   conviction  and  choice. ^ 
+
+1  Matthew  Henry  quaintly  remarks,  "to  takel&ONe,  not  to  ask  leave  of 
+them." 
+
+^  However  reasonable  and  evident  these  details,  we  could  scarcely 
+conceive  them  possible  in  a  narrative  that  was  not  based  upon  historical 
+facts.  .Their  invention  would  be  almost  inconceivable.  Hence  all  these 
+details  furnish  evidence  of  the  reality  of  these  events  and  of  the  truth  of 
+the  Scriptural  narrative. 
+
+
+32  Ahab,  King  of  Israel. 
+
+Tims  only  could  he  be  fitted  for  a  calling  which  required  such 
+entire  self-denial  and  self-sacrifice. 
+
+This  further  test  also,  which  reminds  us  how  our  Lord  set 
+before  intending  followers  the  difficulties  of  their  choice  (Matt, 
+viii.  20)  and  before  His  disciples  the  absolute  necessity  of 
+willing  self-denial  (Luke  xiv.  26),  did  Elisha  endure,  as  must 
+every  one  who  is  to  do  service  for  God.  It  seems  almost 
+symbolic  that  the  oxen  with  which  he  had  been  working,  the 
+yoke  which  bound  them,  and  the  wooden  ploughshare  which 
+they  had  drawn,  were  now  used  to  prepare  the  farewell-feast 
+of  Elisha.  To  forsake  and  give  up  all  for  the  service  of  the 
+Lord  is  only  one  lesson,  which  must  be  complemented,  not 
+so  much  by  abandoning  all  of  the  past,  as  by  consecrating  to 
+our  new  life-work  all  that  we  formerly  had  or  did.  Nor  let  us 
+forget  two  other  considerations,  suggested  by  the  history  of 
+Elisha's  call.  All  personal  decision  for  God,  and  all  work 
+undertaken  for  Him,  implies  a  leave-taking  and  a  forsaking  of 
+the  old,  which  must  "  pass  away  ''  w^hen  "  all  things  become 
+new"  (2  Cor.  v.  17),  But  this  forsaking,  though  necessarily 
+involving  pain  and  loss,  should  not  be  sad — rather  joyous,  as 
+leading  through  pain  to  real  joy,  and  through  seeming  loss  to 
+real  gain  :  ^  a  *'  feast,"  such  as  was  the  parting  of  Elisha  from 
+his  home,  and  that  of  St.  Matthew  from  his  calling  and  friends. 
+Thus  the  end  of  the  old  wuU  at  the  same  time  be  the  beginning 
+of  the  new;  the  giving  up  of  the  former  calling  the  first  act  of 
+the  new  ministry.  And  however  humble  that  ministry,  or  how- 
+ever indirectly  it  may  seem  to  bear  upon  the  Lord,  it  is  really 
+ministry  of  Him.  Then,  and  for  many  years  afterwards,  Elisha 
+did  but  "pour  water  on  the  hands  of  Elijah"  (2  Kings  iii.  11) 
+• — yet  from  the  moment  that  ^'he  arose  and  went  after  Elijah" 
+he  was  really,  and  in  the  judgment  of  God,  "anointed  to  be 
+prophet;  "nor  had  he,  nor  needed  he,  other  earthly  consecration. 
+
+^  It  is  probably  in  this  that  the  difference  lies  between  the  case  of  Elisha 
+and  tliat  in  which  our  Lord  returned  so  different  an  answer  to  a  request, 
+which  to  a  superficial  reader  might  seem  substantially  the  same  as  that  of 
+the  son  of  Shaphat  (comp.  Luke  ix.  59-62). 
+
+
+CHAPTER      III. 
+
+General  effect  of  Elijah's  Mission— The  Two  Expeditions  of  Syria  and  the 
+Twofold  Victory  of  Israel— A hab  releases  Ben-hadad—The  Prophet's 
+Denunciation  and  Message. 
+
+(i  Kings  xx.) 
+
+BUT  the  mission  of  Elijah  must  also  have  had  other  and, 
+in  some  respects,  even  more  deep-reaching  results  than 
+those  with  which  God  had  comforted  His  servant  in  his  deep 
+dejection  of  spirit.  Thus  the  "  seven  thousand  "  who  had 
+never  bent  the  knee  to  Baal,  must  have  been  greatly  quickened 
+and  encouraged  by  what  had  taken  place  on  Carmel.  Nay, 
+it  could  not  but  have  made  lasting  impression  on  King  Ahab 
+himself.  Too  self-indulgent  to  decide  for  Jehovah,  too  weak 
+to  resist  Jezebel,  even  when  his  conscience  misgave  him,  or 
+directed  him  to  the  better  way,  the  impression  of  what  he 
+had  witnessed  could  never  have  wholly  passed  from  his  mind. 
+Even  if,  as  in  the  case  of  Israel  after  the  exile,  it  ultimately 
+issued  only  in  pride  of  nationality,  yet  this  feeling  must  ever 
+afterwards  have  been  in  his  heart,  that  Jehovah  He  was 
+God— "the  God  of  Gods'" — and  that  Jehovah  was  in  Israel, 
+and  the  God  of  Israel. 
+
+It  is  this  which  explains  the  bearing  of  Ahab  in  the  first 
+wars  with  Ben-hadad  of  Syria.  ^  It  need  scarcely  be  said 
+that  this  monarch  was  not  the  same,  but  the  son  of  him  who 
+during  the  reigns  of  Baasha  (i  Kings  xv.  20)  and  Omri 
+had  possessed  himself  of  so  many  cities,  both  east  and  west 
+
+^  Although  this  special  Psalm  (cxxxvi.)  may  not  be  David's,  we  must 
+remember  that  a  considerable  portion  of  the  Psalter  must  have  been  in 
+existence,  and,  at  least  in  part,  known  to  Ahab. 
+
+-  Ben-hadad,  "the  Son  of  the  Sun."  Hadad  was  the  official  title  of 
+the  kings  of  Syria.  On  the  monarchs  of  that  name,  see  Vol.  V.  pp.  114, 
+168,  iSi. 
+
+
+34  Ahab,  King  of  Israel. 
+
+of  the  Jordan,  and  whose  sovereignty  had,  in  a  sense,  been 
+owned  within  the  semi-independent  Syrian  bazaars  and 
+streets  of  Samaria  itself  (i  Kings  xx.  34).  To  judge  from 
+various  notices,  both  BibHcal  and  on  Assyrian  monuments, 
+this  Ben-hadad  had  inherited  the  restless  ambition,  although 
+not  the  sterner  qualities  of  his  father.  The  motives  of  his 
+warfare  against  Ahab  are  not  difficult  to  understand.  It 
+was  the  settled  policy  of  Syria  to  isolate  and  weaken  the 
+neighbouring  kingdom  of  Israel.  With  this  object  in  view, 
+Ben-hadad  IV.  (the  father  of  this  king  of  Syria)  had 
+readily  broken  his  league  with  Baasha,  and  combined  with 
+Asa  against  Israel.  ^  But  since  the  days  of  Omri  the  policy 
+of  both  Israel  and  Judah  had  changed.  Their  former  in- 
+ternecine wars  had  given  place,  first  to  peace,  and  then  to 
+actual  alliance  between  the  two  kingdoms,  cemented  at  last 
+by  the  marriage  of  the  son  of  Jehoshaphat  with  the  daughter 
+of  Ahab  (2  Chron.  xviii.  i  ;  2  Kings  viii.  18).  To  this  cause 
+for  uneasiness  to  Syria  must  be  added  the  close  alliance 
+between  Israel  and  Tyre^  indicated,  if  not  brought  about,  by 
+the  marriage  of  Ahab  with  Jezebel.  Thus  the  kingdom  of 
+Israel  was  secure  both  on  its  southern  and  western  boundaries, 
+and  only  threatened  on  that  towards  Syria.  And  the  in 
+creasing  prosperity  and  wealth  of  the  land  appear  not  only 
+from  the  internal  tranquillity  that  obtained  during  the  thirty-six 
+years  of  the  reign  of  Ahab  and  his  two  descendants,  but  also 
+from  the  circumstance  that  Ahab  built  so  many  cities,  and 
+adorned  his  capital  by  a  magnificent  palace  made  of  ivory 
+(i  Kings  xxii.  39).  Lastly^  the  jealousy  and  enmity  of  Ben- 
+hadad  must  have  been  increased  by  his  own  relations  to 
+the  great  neighbouring  power  of  Assyria,  which  (as  we  shall 
+see)  were  such  as  to  make  a  dangerous  alliance  between  the 
+latter  and  Israel  an  event  of  political  probability. 
+
+In  these  circumstances,  Ben-hadad  resolved  to  strike  such 
+a  blow  at  Samaria  as  would  reduce  it  to  permanent  impotence. 
+At  the  head  of  all  his  army,  and  followed  by  thirty-two  vassal 
+^  Compare  Vol.  V.  p.  170, 
+
+
+The  First  Expedition  of  Syria.  35 
+
+kings,  or  probably  rather  chieftains,  who  ruled  over  towns 
+with  adjoining  districts  within  the  territory  between  the 
+Euphrates  and  the  northern  boundary  of  Israel  he  invaded 
+Samaria.  He  met  with  no  opposition,  for,  as  Josephus  notes 
+{Ant.  viii.  14,  i),  Ahab  was  not  prepared  for  the  attack.  But 
+even  if  it  had  been  otherwise,  sound  policy  would  have 
+dictated  a  retreat,  and  the  concentration  of  the  Israelitish 
+forces  behind  the  strong  walls  of  the  capital.  This  proved 
+a  serious  check  to  the  plans  of  Ben-hadad.  The  Syrian  army 
+laid,  indeed,  siege  to  Samaria,  but  the  heat  of  the  summer 
+season,-  the  character  and  habits  of  his  allies,  and  even 
+the  circumstance  that  his  own  country  seems  to  have  been 
+divided  among  a  number  of  semi-savage  chiefs,  must  have 
+proved  unfavourable  to  a  prolonged  warfare.  Ben-hadad  might 
+have  succeeded  if  at  the  first  onset  he  could  have  crushed 
+the  small,  hastily-raised  forces  of  Ahab  by  sheer  weight  of 
+numbers.  But  the  slow  systematic  siege  of  a  well-defended 
+city,  into  which  Ahab  had  evidently  gathered  all  the  leading 
+personages  in  his  realm  and  all  their  wealth, ^  must  have  ap- 
+peared even  to  a  boastful  Oriental  a  doubtful  undertaking, 
+which  might  at  any  time  be  converted  into  a  disaster  by 
+the  sudden  appearance  of  allies  to  Israel  from  Judah,  Tyre, 
+or  perhaps  even  from  Assyria. 
+
+It  was  probably  shortly  after  the  commencement  of  the 
+siege  of  Samaria,   that  Ben-hadad  sent  envoys  to  demand  in 
+
+^  Josephus  erroneously  represents  them  as  from  "  beyond  the  Euphi-ates." 
+But  from  Assyrian  inscriptions  we  know  that  at  that  period  the  country 
+between  the  Euphrates  and  the  northern  border  of  Jordan,  was  parcelled 
+out  among  a  number  of  states,  such  as  those  of  the  Hittites,  the  Hamathites, 
+and  others  (comp.  Schrader^  d.  Keilinschriften  u.  d.  A.  Test.,  2nd  ed.,  pp. 
+200-204).  This  affords  undesigned,  but  most  important,  confirmation  of  the 
+Biblical  narrative.  So  does  the  mention  of  "the  chariots."  (ver.  i)  which, 
+according  to  the  Assyrian  inscriptions,  formed  a  very  important  part  of 
+the  Syrian  forces  (Comp.  Schi-ader,  ti.  s.). 
+
+^  This  seems  implied  in  the  term  "booths"  {stikkoih),  ver.  12 — not 
+*'  pavilions,"  as  in  the  Authorised  Version. 
+
+^  The  former  seems  implied  by  the  presence  in  Samaria  of  "all  the 
+elders  of  the  land,"  (ver.  7)  ;  the  latter  by  the  demand  of  Ben-hadad  in  ver.  6. 
+
+
+36  A  J  tab,  King  of  Israel. 
+
+imperious  terms  the  absolute  submission  of  Ahab  (i  Kings 
+XX.  2).  At  least  so  the  latter  seems  to  have  understood  it, 
+when  he  declared  his  readiness  to  agree  to  his  enemy's  terms. 
+But  whether  Ben-hadad  had  from  the  first  meant  more,  or  his 
+insolence  had  grown  with  what  he  regarded  as  the  necessities 
+and  fears  of  Ahab,  the  next  day  other  heralds  came  from 
+Ben-hadad,  requiring  in  terms  of  extreme  and  wanton 
+insult,  not  only  the  surrender  of  Ahab,  but  that  of  Samaria  ; 
+and  especially  of  the  palaces  of  its  nobility,  for  the  avowed 
+purpose  of  plunder.  It  was  evident  that  Ben-hadad  intended, 
+not  the  surrender  of  Ahab,  but  the  destruction  ("evil")  of  the 
+capital,  and  the  ruin  of  the  whole  land  (ver.  7).  Possibly  the 
+apparently  strange  demand  of  Ben-hadad  (ver.  6)  may  indicate 
+a  deeper  scheme.  To  oblige  Ahab  formally  to  submit,  would 
+be  of  comparatively  small,  at  most,  of  only  temporary  use.  On 
+the  withdrawal  of  Ben-hadad  the  hostility  of  Israel  would,  as 
+experience  had  shown,  once  more  break  forth  under  Ahab,  or 
+some  new  military  leader,  and  threaten  Syria  with  the  same  or 
+even  graver  danger  than  before.  But  if  the  spirit  of  the 
+leaders  could  be  crushed  by  having  their  substance  taken  from 
+them,  then  the  chiefs  of  the  people  would  not  only  be  detached 
+from  their  native  monarchy,  which  had  proved  poAverless  to 
+protect  them,  but  in  future  rendered  dependent  on  Syria,  and 
+hence  led  to  seek  the  favour  of  Ben-hadad,  instead  of  giving 
+their  allegiance  to  their  own  Israelitish  rulers. 
+
+But  the  scheme  was  foiled  by  the  clumsy  frankness  of  its 
+avowal.  Ahab  summoned  to  his  council  the  elders  of  Israel. 
+He  told  them  how  on  the  previous  day  he  had  expressed  to 
+Ben-hadad  his  willingness  to  make  absolute  personal  sub- 
+mission and  surrender  of  all  that  he  possessed — as  Josephus, 
+no  doubt,  correctly  puts  into  his  mouth — for  the  sake  of  their 
+preservation  and  peace.  But  the  new  terms  which  Ben-hadad 
+proposed  involved  the  leaders  of  the  people  as  well  as  himself, 
+and  meant  ruin  equally  to  them  all.  In  these  circumstances, 
+^'  the  elders  "  counselled  the  absolute  rejection  of  the  terms  de- 
+manded.     Their  advice  was  ratified   by  a  popular   assembly 
+
+
+AJiab's  Reply  to  Syria.  37 
+
+(ver.  8).  These  measures  of  Ahab  were  wise.  Besides,  the 
+bearing  of  Ben-hadad  must  have  indicated  even  to  a  ruler  less 
+astute  than  Ahab,  the  weakness  and  folly  of  his  opponent.  And, 
+instead  of  attacking  the  city,  on  the  refusal  of  his  terms,  as  he 
+would  have  done  had  he  been  sure  of  his  army,  Ben-hadad  now 
+only  sent  a  message  of  ridiculously  boastful  threatening,^  to 
+which  Ahab  replied  with  calm  dignity  (vv.  10^  11). 
+
+Thus,  for  a  time  at  least,  Ahab  seems  in  the  school  of  adver- 
+sity to  have  learned  some  of  the  lessons  which  his  contact  with 
+Elijah  might  have  taught  him.  Besides,  it  is  only  reasonable 
+to  suppose  that  both  the  composition  of  the  force  outside 
+the  city,  and  the  utter  demoralization  of  its  leaders,  were 
+known  in  Samaria.  A  summer  campaign  in  Palestine  would 
+have  tried  even  the  best  disciplined  troops.  But  the  Syrian 
+host  contained  a  motley  following  of  thirty-two  Eastern  chiefs, 
+who  probably  had  little  other  interest  in  the  campaign  than 
+the  hope  of  plunder.  It  was  an  army  incoherent  in  its  com- 
+position, and  unwieldy  from  its  very  numbers.  Hitherto  their 
+advance  had  been  unchecked,  and  its  progress,  no  doubt, 
+marked  by  the  desolation  of  the  country  along  their  straggling 
+line  of  march.  Their  easy  success  would  make  them  not  only 
+more  reckless,  but  also  unwilling  to  engage  in  serious  fighting, 
+especially  in  those  hot  and  enervating  days,  when  their  leaders 
+lay  in  the  cool  shadow  of  their  booths,  indulging  in  drunken 
+orgies.     It  was  a  dissipated  rabble,  rather  than  an  army. 
+
+Ben-hadad  and  his  allies  were  engaged  in  a  midday  bout 
+when  the  reply  of  Ahab  to  the  Syrian  challenge  arrived. 
+Received  under  such  circumstances,  we  scarcely  wonder  that  it 
+provoked  the  order  of  Ben-hadad  to  make  immediate  prepara- 
+
+1  The  words  of  Ben-hadad  (ver.  10)  are  generally  regarded  as  meaning 
+that  "  the  dust  of  Samaria,"  about  to  be  reduced  to  ashes  and  ruins,  would 
+not  "suffice  for  the  hollow  hands"  of  all  the  people  that  were  in  his 
+following.  But  it  may  have  been  only  a  general  boast  as  against  the 
+popular  assembly  in  Samaria  that  had  ratified  the  resistance  to  him,  that 
+if  all  Samaria  were  reduced  to  dust  there  were  more  people  in  his  following 
+than  could  fill  their  hands  with  it. 
+
+
+38  Ahab,  King  of  Israel. 
+
+tion  for  an  assault  on  the  city.  But  in  whatever  these 
+preparations  consisted, — whether  in  the  advance  of  siege 
+engines,  or  a  massing  of  the  troops,^  they  could  scarcely 
+have  been  very  effective,  since  all  the  Syrian  chiefs  con- 
+tinued at  their  orgies,  so  that  the  hour  of  battle  surprised 
+them  while  incapacitated  by  intoxication  (ver.  i6). 
+
+Matters  were  very  different  within  Samaria.  There  a  prophet 
+appeared,^  to  announce  not  only  deliverance  from  the  Lord, 
+but  to  point  its  lesson  in  the  contrast  between  the  great  multi- 
+tude of  the  enemy,  and  the  small  number  of  Israel's  host,  by 
+which  they  were  to  be  defeated.  This,  with  the  view  of  showing 
+to  Ahab  and  to  Israel  that  He  was  Jehovah,  the  living  Cove- 
+nant God,  Who  gave  the  victory.  Thus  the  teaching  of  Elijah 
+on  Mount  Carmel  was  now  to  find  its  confirmation  and  appli- 
+cation in  national  blessing.  And  that  the  influence  of  that 
+scene  had  not  been,  as  Elijah  had  feared,  only  temporary  and 
+transient,  appears  even  from  the  presence  of  a  prophet  in 
+Samaria,^  and  from  the  whole  bearing  of  Ahab.  He  is  neither 
+doubtful  nor  boastful,  but,  as  having  learned  the  prophetic 
+lesson,  anxious  to  receive  plain  Divine  direction,  and  to  follow 
+it  implicitly.  Apparently  the  land  was  parcelled  out  among 
+"princes  of  the  shires,"  either  hereditary  chieftains  of  districts, 
+or  governors  appointed  by  the  king :  an  arrangement  which 
+throws  further  light  on  Ben-hadad's  previously  expressed  pur- 
+pose permanently  to  break  the  power  of  these  leaders  of  Israel. 
+These  "  princes  of  the  shires "  seem  to  have  been  each  sur- 
+rounded by  a  small  armed  retinue  :  ''  the  young  men  "  (comp. 
+2  Sam.  xviii.  15).  By  these,  numbering  in  all  only  232  men, 
+the  victory  over  the  great  Syrian  host  was  to  be  achieved.  It 
+only  remained  for  Ahab  to   inquire,   "Who   shall   commence 
+
+'^  The  former  seems  the  more  likely  meaning  of  verse  12. 
+
+2  According  to  the  Rabbis.  Micaiah,  the  son  of  Imlah  (xxii.  8;  see 
+Rashi  and  Kimchi  ad  loc.)     But  this  seems  a  mere  guess. 
+
+^  This  is  the  real  meaning  of  the  presence  of  the  prophet  in  Samaria, 
+and  there  is  not,  rightly  understood,  any  inconsistency  between  this  and 
+I  Kings  xviii.  4,  22 ;  xix.  10,  as  negative  critics  assert. 
+
+
+Defeat  of  Ben-Jiadael.  39 
+
+the  warfare  ? "  ^  For  in  such  a  victory  the  main  condition 
+would  be  exact  conformity  to  all  Divine  directions,  in  order 
+to  show  that  all  was  of  God,  and  to  give'  evidence  of  the 
+principle  of  faith  on  the  part  of  the  combatants. 
+
+Having  received  the  direction  that  he  was  to  begin  the 
+battle,  Ahab  lost  no  time.  At  midday — probably  of  the 
+following  day — when,  as  no  doubt  Avas  well-known  in  Samaria, 
+Ben-hadad  and  his  thirty-two  confederates  were  "drinking" 
+themselves  ''drunk"  in  the  boo'J.is,  the  232  of  the  body-guard 
+of  the  princes  marched  forth,  followed  by  the  7000  men  which 
+formed  the  army  of  Israel.  Although  this  number  naturally 
+reminds  us  of  the  7000  who  had  not  bent  the  knee  to  Baal, 
+there  is  no  need  to  regard  it  as  referring  to  them,  or  (with  the 
+Rabbis)  to  "the  true  children  of  Israel."  The  precise  number 
+(232)  of  the  body-guard  points  to  an  exact  numeration,  nor 
+need  we  perhaps  wonder  if  in  the  wonder-working  Providence 
+of  God  there  was  a  striking  coincidence  between  the  number 
+of  the  faithful  and  that  of  Israel's  victorious  host.^ 
+
+The  same  wonder-workmg  Providence  appears  in  the  manner 
+in  which  victory  was  granted.  As  so  often,  we  mark  the 
+accomplishment  of  a  result,  miraculous  when  viewed  by  itself, 
+yet,  as  regards  the  means,  brought  about  in  the  order  of  natural 
+causation.  And  thus  we  ever  learn  anew  that^  although  too 
+frequently  we  do  not  perceive  it,  we  are  constantly  surrounded 
+by  miracles,  since  Jehovah  is  the  living  God  ;  and  that  hence 
+ours  should  be  the  faith  of  a  constant  expectancy.  It  reads 
+as  we  might  have  expected  in  the  circumstances,  that,  when 
+Ben-hadad  was  informed  that  men  had  come  out  from 
+Samaria,  he  commanded  in  his  drunken  conceit  and  boast- 
+fulness,  they  should  not  be  attacked,  but  made  captives 
+and  brought  to  him.     It  may  have  been  that  those  who  were 
+
+1  Or  "  battle."  This,  and  not  ''order  the  battle,"  as  in  the  A.V.  The 
+same  expression  occurs  in  2  Chron.  xiii.  3,  and  corresponds  to  the  French 
+entammer. 
+
+-  On  the  other  hand,  the  7000  may  represent  only  what  is  called  a 
+"  round  number." 
+
+
+40  Ahab,  King  of  Israel. 
+
+sent  to  execute  this  command  went  not  fully  armed.  At  any 
+rate  they  seem  to  have  been  quite  unprepared  for  resistance ; 
+and  when  these  232  Israelitish  soldiers  cut  down  each  a  man, 
+no  doubt  following  it  up  by  further  onslaught,  the  Syrians 
+might  naturally  imagine  that  this  was  only  an  advanced  guard, 
+which  was  intended  to  precede  a  sortie  of  the  whole  garrison 
+of  Samaria.  A  panic,  not  uncommon  among  Orientals,  seized 
+the  unprepared  and  unmarshalled  masses,  whose  officers  the 
+while  lay  drunken  in  the  booths.  The  very  number  of  the 
+Syrians  would  make  a  formation  or  rally  more  difficult, 
+while  it  would  afterwards  increase  the  confusion  of  what  soon 
+became  an  indiscriminate  flight.  At  this  moment  King  Ahab 
+issued  from  Samaria  with  his  whole  army.  Whether,  as  our 
+present  Hebrew  text  bears,  the  king  struck  at  the  war-horses 
+and  war-chariots  of  the  enemy,  with  the  view  of  capturing  them, 
+or,  as  the  ancient  Greek  translators  (the  lxx.)  seem  to  have 
+read,  he  "took"  them, — implying  that  there  had  not  been 
+time  to  harness  the  war-chariots  when  the  Israelitish  host  was 
+among  them — the  result  "  would  be  the  same.  Ben-hadad, 
+followed  by  a  few  horsemen,  escaped  by  hasty  flight,  as  the 
+word  used  in  the  original  conveys,  on  a  '^chariot-horse," 
+showing  how  sore  was  the  stress  when  the  king  was  obliged 
+hastily  to  escape  on  the  first  horse  to  hand. 
+
+If  it  were  necessary  to  demonstrate  the  compatibility  of  direct 
+Divine  help,  and  of  reliance  upon  it,  with  the  most  diligent 
+use  of  the  best  means,  the  narrative  which  follows  would  show 
+it.  After  this  great  victory  the  king  and  people  might  have 
+indulged  in  outward,  or  still  worse,  in  professedly  religious 
+security,  to  the  neglect  of  what  was  plain  duty.  But  the  same 
+prophet  who  before  had  announced  Divine  deliverance,  now 
+warned  Ahab  to  gather  all  his  forces,  and  prepare,  for  that — 
+"  at  the  turn  of  the  year,"  that  is,  in  the  spring  (comp.  2  Sam.* 
+xi.  i),  he  might  expect  another  attack  from  Syria.  And 
+to  make  best  preparation  for  the  coming  danger,  in  obedience 
+to  the  Divine  word,  would  not  supersede  but  presuppose 
+faith,  even  as  we  shall   work   best   when  we  feel  that  we  have 
+
+
+The  Second  Syrian  Expedition.  41 
+
+the  Divine  direction  in,  and  the  Divine  blessing  on,  our  under- 
+takings. 
+
+It  was  as  the  prophet  had  told.  It  seems  quite  natural  that 
+the  courtiers  of  Ben-hadad  should  have  ascribed  the  almost 
+incredible  defeat  of  such  an  army  to  supernatural  causes,  rather 
+than  to  the  dissipation  and  folly  of  their  king.  They  suggested 
+that  the  gods  of  Israel  were  mountain-deities,  and  that  the  rout  of 
+Syria  around  mountainous  Samaria  had  been  due  to  this  cause. 
+But  the  result  would  be  far  different  if  the  battle  were  waged 
+in  the  plains,  man  against  man,  and  not  gods  against  men, 
+("but,  on  the  other  hand,  we  shall  fight  with  them  in  the  plain 
+[see,]  if  we  shall  not  be  stronger  than  they  !  ")  The  grounds  of 
+this  strange  suggestion  must  be  sought  partly  in  the  notions  of  the 
+heathen  world,  but  also  partly  in  the  sin  of  Israel.  The  ancient 
+heathen  world  worshipped  not  only  gods  on  the  heights^  but 
+gods  of  the  heights,^  and  the  sin  of  Israel  in  rearing  altars  and 
+chapels  on  "  the  high  places  "  must  have  led  to  the  inference 
+that  the  national  worship  was  that  of  mountain-deities.  Thus 
+did  Israel's  disobedience  bring  also  its  temporal  punishment. 
+But  to  their  general  advice  the  courtiers  of  Ben-hadad  added 
+certain  practical  suggestions,  to  avoid  the  secondary  causes  to 
+which  they  attributed  their  late  defeat.  The  tributary  "  kings  " 
+were  to  be  dismissed,  and  their  places  filled  by  governors. 
+This  would  give  not  only  unity  to  the  army  (comp.  i  Kings 
+xxii.  31),  but  these  officers,  appointed  by  Ben-hadad  himself, 
+would  naturally  take  a  more  personal  interest  in  the  cause  of 
+their  king.  And,  instead  of  the  former  army,  Ben-hadad  was 
+to  raise  one  equal  in  numbers,  but — as  the  text  has  it — "  from 
+those  with  thee  "  ^  (thine  own  subjects). 
+
+In  these  well-conceived  measures  there  was  only  one,  but 
+that  a  fatal,  flaw.  They  proceeded  on  the  supposition  that  the 
+God  of  Israel  was  like  one  of  the  heathen  deities.  And  this 
+point  was  emphasized  in  the  defeat  of  the  Syrians,  which  was 
+
+1  The  curious  reader  may  find  the  whole  subject  fully  treated  of  in  Sam 
+Deyling's  Observ.  Sacr.     Pars,  iii.,  (ed.  1726)  pp.  123-127. 
+^  Our  English  version  does  not  express  this. 
+
+E 
+
+
+42  A  hub,  King  of  Israel. 
+
+announced  to  Ahab  by  "a  man  of  God,"  probably  another 
+than  "■  the  propliet "  who  had  formerly  been  commissioned  to 
+him.  But  it  deserves  special  notice  that  this  message  only 
+came  after  the  invasion  of  the  Syrian  host.  Thus  would  the 
+temptation  be  avoided  of  neglecting  all  ordinary  preparations  : 
+faith  would  be  tried,  and  also  called  forth ;  while,  by  this  pre- 
+diction, and  from  the  disparity  between  Israel  and  the  host  of 
+Syria,  Israel  would  once  more  learn  to  recognise  in  this  deliver- 
+ance that  Jehovah  He  was  God. 
+
+The  winter  rains  had  ceased,  and  the  spring  wind  and  sun 
+had  dried  the  land.  There  was  a  fresh  crispness  in  the  air^ 
+and  a  bright  light  over  the  scene,  when  the  immense  Syrian 
+host  swarmed  down  into  that  historic  battlefield  of  Israel,  the 
+great  plain  of  Jezreel.  We  are  carried  back  in  imagination  to 
+the  scene  of  Saul's  last  fatal  defeat  (i  Sam.  xxix.  i),i  and 
+beyond  it  to  that  of  Gideon's  glorious  victory.  Once  more 
+the  foe  lay  at  Aphek,  with  his  back  against  the  hill  on  which 
+probably  the  fortified  city  of  that  name  stood,  and  facing  the 
+plain  where  it  is  broadest.  As  in  imagination  we  travel  south- 
+wards to  the  highlands,  and  to  those  mountains  among  which 
+Samaria  lies  embosomed,  we  feel  how  literally  Ben-hadad  had 
+acted  on  the  suggestion  of  his  servants  to  avoid  a  contest  with 
+the  mountain-deities  of  Israel.  It  was  the  very  time  and  place 
+for  Jehovah  to  show  forth  that  great  lesson  which  underlies 
+and  sums  up  all  revelation.  Of  the  Israelitish  host  we  know 
+not  the  numbers — only  that,  as  they  camped  in  two  divisions 
+on  the  opposite  side  of  the  valley,  perhaps  beneath  the  two 
+spurs  of  the  ridge  that  juts  into  the  plain  from  the  south-east, 
+they  seemed  like  two  little  flocks  of  kids — so  small  and  weak, 
+as   compared    with   their  enemies.     For  seven   days   the  two 
+
+^  See  the  description  of  the  scene  in  Vol.  iv.  of  the  Bible  History,  pp. 
+138,  139.  This  Aphek — for  the  name  is  not  an  uncommon  one — could 
+not  have  been  the  Aphek  at  the  foot  of  Lebanon,  since  the  battle  was  to 
+be  in  "the  plain,"  nor  yet  the  Aphek  on  the  other  side  Jordan  (as  com- 
+mentators generally  suppose),  since  Ahab  would  not  have  marched  across 
+Jordan  to  meet  the  Syrians,  nor  they  encamped  there  to  subdue  Samaria. 
+
+
+TJie  Battle  of  ApJiek.  43 
+
+armies  lay  observing  each  other.  From  the  circumstance 
+specially  mentioned  in  the  text,  that  the  Israelites  had  gone  out 
+"provisioned"  (ver.  27,  margin),  and  even  from  their  camping 
+in  two  divisions,  we  infer  that  the  object  of  Ahab  was  to  remain 
+on  the  defensive,  which,  indeed,  the  inferiority  of  numbers 
+rendered  imperative.  Besides,  the  Jewish  position  was  most 
+happily  chosen.  It  barred  the  advance  of  the  enemy,  who 
+could  not  move  forward  without  first  giving  battle  to  Israel. 
+The  Syrians  must  have  perceived  the  advantage  of  Ahab's 
+position,  with  his  back  to  the  base  of  his  operations,  while  the 
+division  of  Israel  into  two  camps  might  enable  them  to  envelop 
+their  enemies  if  they  attempted  an  advance,  in  which  case  the 
+very  size  of  the  Syrian  army  would,  from  its  unwieldiness, 
+prove  a  serious  difficulty.  But  the  danger  of  idle  delay  in  a 
+hostile  country,  and  in  an  Eastern  warfare,  was  nearly  as  great. 
+And  so  on  the  seventh  day  the  attack  was  made— as  we 
+judge,  by  the  Syrians.  Their  defeat  was  crushing.  The  great 
+Syrian  host  of  100,000  was  destroyed, ^  and  the  men  who  either 
+made  their  way  from  the  battle-field  to  Aphek,  or  who  had 
+been  left  there  as  a  garrison,  experienced  another  and  even  more 
+terrible  calamity.  While  crowding  into  the  gates,  or  else  while 
+occupying  the  ramparts,  which  had  probably  been  hastily  thrown 
+up  or  strengthened,  a  wall  fell  upon  27,000  of  their  number.^ 
+
+Further  defence  being  thus  rendered  impossible,  the  previous 
+confidence  of  Ben-hadad  gave  place  to  abject  fear.  He  fled 
+from  room  to  room — into  the  innermost  chamber.  His 
+servants,  who  had  formerly  given  such  warlike  counsel,  now 
+advised  him  to  sue  in  most  humble  manner  for  his  life, 
+holding  out  the  hope  of  the  mercifulness  of  the  kings  of  Israel 
+of  which  they  had  heard.     There  is  an  ominous  sound  in  this. 
+
+1  The  word,  rendered  in  our  A.V.  (ver.  29)  "slew,"  should  rather  be 
+translated  by  the  general  term  "smote."  Certainly  it  does  not  imply  the 
+absolute  killing  of  100,000  men.  Thus  the  same  word  is  used  in  verses 
+35>  37>  ("  Smite  me  ")  in  a  sense  which  forbids  the  idea  of  killing. 
+
+2  There  is  no  need  to  ascribe  it  (with  Keil)  to  a  miraculous  interposition, 
+and  still  less  (with  Thenius)  to  the  wall  having  been  previously  undermined 
+(by  whom  ?). 
+
+
+44  AJiah,  King  of  Israel. 
+
+The  kings  of  Israel  had  never  been  distinguished  for  mercy. 
+But  they  had  only  too  often  shown  their  sympathy  with  the 
+heathen  kingdoms  around,  and  manifested  a  desire  to  make 
+alliance  with  them,  and  to  conform  to  their  ways.  Yet,  even 
+so,  it  is  not  easy  to  explain  the  conduct  of  Ahab  when  the 
+Syrian  envoys  of  Ben-hadad  appeared  before  him,  in  true 
+Eastern  manner,  with  sackcloth  on  their  loins  and  ropes 
+round  their  necks,  suing  only  for  the  life  of  him  who  now 
+ostentatiously  styled  himself  Ahab's  '^  slave."  It  could 
+scarcely  have  been  due  to  weakness  of  character  when  Ahab 
+broke  into  the  almost  joyous  exclamation,  "Is  he  yet  ahve?" 
+Nor  could  it  have  been  merely  from  kindness  of  disposition 
+that  he  ostentatiously  substituted  :  ^'  he  is  my  brother "  for 
+the  designation,  "thy  slave  Ben-hadad,"  used  by  the  Syrian 
+envoys.  They  were  not  slow  to  perceive  the  altered  tone  of  the 
+king.  They  favourably  interpreted  and  laid  hold  on  that 
+which  had  come  from  him ;  and  they  said :  "  Thy  brother 
+Ben-hadad."  ^  Presently,  at  Ahab's  invitation,  Ben-hadad 
+himself  was  brought,  and  made  to  stand  by  the  side  of  the 
+king  in  his  chariot — both  in  token  of  companionship  and 
+for  more  private  conversation.  In  truth,  nothing  less  than 
+a  treaty  of  alliance  was  in  hand  between  them.  Ben-hadad 
+undertook  to  restore  the  towns  which  his  father  had  taken 
+from  Ahab's  father  (in  a  warfare  of  which  we  have  no  other 
+record)  and  to  allow  to  Ahab  the  same  rights  and  privileges 
+as  to  having  "  streets,"  or  rather  "  bazaars  " — what  in  modern 
+language  would  be  called  an  Israelitish  "  factory " — in  the 
+Syrian  capital,  which  Ben-hadad's  father  had  possessed  in 
+Samaria ;  and  with  this  covenant  Ahab  dismissed  the  Syrian 
+king. 
+
+We  have  said  that  it  is  not  easy  to  understand  what  motives 
+could  have  prompted  an  act  which,  even  politically,  was  a 
+grave  mistake.  Was  it  flattered  vanity  on  the  part  of  Ahab, 
+or  sympathy  with  the  heathen  king,  or  part  of  his  statecraft  to 
+
+^  This  represents  the  true  meaning  of  the  original. 
+
+
+Prophetic  Message  to  Ahab.  45 
+
+secure,  not  only  an  ally,  but  a  vassal  on  the  northern  flank  of 
+his  kingdom,  or  all  these  combined  ?  In  any  case  he  must 
+have  looked  upon  the  victory  over  the  Syrians  in  a  manner 
+far  different  from  that  in  which  it  had  been  announced  to  him 
+by  the  God  who  had  wrought  it.  Ahab  no  longer  thought 
+of  Jehovah ;  he  inquired  not  as  to  His  purpose  or  will. 
+There  was  an  ominous  similarity  between  his  conduct  and 
+that  of  Saul  in  regard  to  Agag  (i  Sam.  xv.)  Evidently,  Ahab 
+claimed  to  have  himself  gained  the  victory,  and  felt  sure  that 
+in  like  circumstances — should  Ben-hadad  rebel — he  would 
+equally  gain  it  once  more.  It  was  he,  and  not  the  Lord,  who 
+would  shape  and  direct  the  destinies  of  Israel.  Jehovah  was 
+only  the  national  deity  of  that  Israel  of  which  Ahab  was  the 
+king.  And  so  the  error  of  the  Syrians  was  substantially 
+repeated  by  Ahab,  and  the  lesson  which  Jehovah  would  have 
+taught  by  their  defeat  had  to  be  learned  anew  by  Israel  and 
+its  king — this  time  in  judgment. 
+
+This  explains  the  commission  with  which  God  now  charged 
+one  of  "the  sons  of  the  prophets."  We  mark  that  the  ex- 
+pression here  occurs  for  the  first  time.^  It  referred  to  those 
+associations  ^^  under  the  leadership  of  some  prophet  (hence 
+sons  of  the  prophets)  which,  in  the  decay  of  religious  life  in 
+Israel;  served  such  important  purposes,  alike  for  the  preserva- 
+tion of  religion,  and  in  the  execution  of  the  Divine  behests. 
+In  fact,  they  would  recall  to  Israel,  what,  as  a  nation,  Israel 
+had  been  destined  to  be,  and  ever  keep  it  before  them. 
+Thus  they  represented,  so  to  speak,  ideal  Israel  in  the  midst 
+of  apostate  Israel.  To  a  member  of  this  community  it  came 
+^'  by  the  word  of  Jehovah  " — that  is,  by  direct  command  from 
+Him — to  confront  Ahab  with  such  a  symbolic  (or  parabolic) 
+presentation  of  his  late  conduct  as  would  show  it  in  its  true 
+hght,  and  lead  the  king  to  pronounce  sentence  on  himself. 
+Thus  only  could  a  man  like  Ahab  be  convicted,  if  not  con- 
+vinced, of  sin. 
+
+1  In  I  Sam.  x.  5  ;  xix.  20,  they  are  designated  pimply  as  "  prophets." 
+-  Not  necessarily  of  young  or  unmarried  men.     See  2  Kings  iv.  i. 
+
+
+46  A/iab,  King  of  Israel. 
+
+In  the  execution  of  this  commission  the  "  son  of  the 
+prophet "  went  to  one  of  his  colleagues/  and,  teUing  him  that 
+it  was  "by  the  word  of  Jehovah,"  bade  him  "smite"  him. 
+It  was  conduct  not  unlike  that  of  Ahab  when  this  behest  was 
+resisted  by  the  prophet.  Remembering  these  two  things : 
+that  the  person  addressed  was  also  a  "  son  of  the  prophets," 
+and  that  he  had  been  informed  that  it  was  ^'  by  the  word  of 
+Jehovah,"  we  can  understand  the  Divine  judgment  which  so 
+speedily  [overtook  him  when  he  was  torn  by  a  lion.  For 
+the  fundamental  idea,  the  very  law,  of  prophetism  was  absolute, 
+unquestioning  obedience  to  the  command  of  God.  This  was 
+the  lesson  to  be  taught  by  these  associations  and  their  leaders, 
+and  it  explains  how  sometimes  exceeding  strange  things  were 
+given  them  to  do  in  public,  that  so  in  the  absoluteness  of 
+their  obedience  they  might  exhibit  the  absoluteness  of  God's 
+authority.  Hence  not  to  have  visited  with  signal  judgment 
+the  disobedience  of  the  prophet  would  have  been  not  only  to 
+contravene  the  principle  on  which  the  whole  prophetic  institu- 
+tion rested,  but  also  the  very  lesson  and  message  which  was 
+to  be  conveyed  to  Ahab.  But  what  one  "  son  of  the  prophets  " 
+had  refused,  another  soon  afterwards  did.  Then  the  "son 
+of  the  prophets,"  now  smitten  till  he  was  wounded,  "  disguised 
+himself  with  a  bandage  upon  his  eyes,"  ^  and  waited  for  the 
+king  by  the  way.  The  reason  of  his  appearing  as  a  wounded 
+man  was  that  he  might  appeal  to  the  king  with  the  more 
+show  of  truth,  and  of  claim  upon  his  interference,  as 
+wounded  in  the  fight.  And  a  symbolism  may  also  have  been 
+designed.  For,  as  the  prophet's  conduct  was  intended  to 
+represent  that  of  the  king,  it  might  be  wished  to  anticipate 
+this  possible  excuse  of  Ahab  that  the  difficulty  of  his  circum- 
+stances had  rendered  it  not  easy  to  retain  Ben-hadad  by  the 
+analogous  case  of  a  wounded  man,  who  might  have  fair 
+ground  of  excuse  if  he  allowed  his  prisoner  to  escape. 
+
+^  The  expression" neighbour"  or  "fellow"  (ver.  35)  means  that  he  was 
+also  one  of  "the  sons  of  the  prophets." 
+2  So,  and  not  as  in  the  A.  V. 
+
+
+Jitdgmcnt  Jipon  AJiab.  47 
+
+The  story  which  the  wounded  prophet  told  the  king  was 
+to  the  effect  that,  while  in  the  battle — and  this  is  an  im- 
+portant point,  as  intended  to  indicate  that  Ahab  was  only  like 
+a  soldier  engaged  in  a  warfare  in  which  God,  and  not  the 
+king  of  Israel,  was  the  commander — one  had  turned  aside 
+and  bidden  him  have  safe  custody  of  a  captive,  with  this 
+injunction:  "If  he  be  missed  [viz.,  when  the  prisoners  are 
+mustered],  thy  life  shall  be  for  his  life,  or  else  thou  shalt 
+pay  a  talent  of  silver."^  From  the  language  we  infer  that  the 
+person  who  handed  over  the  prisoner  was  represented  as  a 
+superior  officer ;  that  the  battle  itself  was  ended,  and  that 
+the  captive  was  a  very  valuable  prisoner,  since  such  a  price 
+was  set  upon  him.  But  while  the  pretended  soldier  "  was 
+busy  here  and  there  " — or,  as  it  has  been  proposed  to  be 
+read  :  *'  looked  here  and  there  " — the  prisoner  escaped.  In 
+these  circumstances  he  appealed  to  the  king  that  he  might 
+not  be  punished  as  threatened  by  his  leader.  The  king  had 
+no  hesitation  how  to  decide.  He  told  him  that  in  recounting 
+his  story  he  had  already  pronounced  sentence  upon  himself 
+Then  the  prophet,  having  removed  the  bandage  from  his  eyes, 
+so  that  the  king  recognised  him,  announced  the  application  of 
+the  Divine  parable.  The  war  had  been  Jehovah's,  not  Ahab's, 
+and  Ben-hadad  had  been  the  "  banned "  of  the  Lord. 
+"  Because  thou  hast  let  go  forth  out  of  thine  hand  (custody) 
+the  man  of  my  ban  (compare  Lev.  xxvii.  29),  therefore  thy 
+life  shall  be  for  his  life,  and  thy  people  for  his  people." 
+
+The  judgment  pronounced  was  not  only  righteous,  but  alike 
+the  necessary  sequence  of  God's  dealings  throughout  this 
+history,  and  of  Ahab's  bearing  in  it.  And  in  the  judgment 
+the  people  as  a  whole  must  also  share.  For  even  if  theirs  had 
+not  been  the  same  spirit  as  that  which  had  prompted  the  conduct 
+of  Ahab,  yet  the  public  acts  of  rulers  are  those  of  the  nation, 
+and  national  sins  are  followed  by  national  judgments.  Ahab 
+had  been  on  his  triumphant  return  to  Samaria,  tliere  to  receive 
+
+^  Nearly  ^400  of  our  money. 
+
+
+48  Ahaby  King  of  Israel. 
+
+the  popular  applause  for  his  achievements,  when,  in  presence  of 
+all  his  retinue,  he  was  thus  publicly  confronted  by  the  prophet's 
+message.  He  now  "  went  to  his  house  much  excited  and 
+angry."!  ^^d  this  also  casts  further  light  both  on  what 
+Ahab  had  done,  and  on  what  he  was  about  to  do. 
+
+
+— «-»vS>-.^^t«N>^,s— . 
+
+
+CHAPTER     IV. 
+
+The  Vineyard  of  Naboth— Murder  of  Nabotli—The    Divine  Message   by 
+Elijah— Almb's  Repentance. 
+
+(i  Kings  xxi.) 
+
+IT  is  significant  that  the  words  describing  Ahab's  state  of 
+mind  on  returning  from  Jezreel  to  Samaria  after  his  un- 
+successful negotiation  with  Naboth  for  his  vineyard,  are  precisely 
+the  same  as  those  formerly  used  in  regard  to  the  impression 
+made  on  him  by  the  prophet's  message  (i  Kings  xx.  43).  On 
+both  occasions  he  "was  much  [and  rebelliously]  excited  and 
+angry."  The  identity  of  terms  indicates  identity  of  feelings. 
+The  same  self-assertion,  independence  of  God,  and  want  of 
+submissiveness  which  had  led  to  his  release  of,  and  covenant 
+with,  Ben-hadad,  and  inspired  feelings  of  rebellion  and  anger 
+on  hearing  the  Divine  message,  now  prompted  his  resent- 
+ment of  Naboth's  conduct. 
+
+The  summer  palace  of  Jezreel  was  the  favourite  retreat  of 
+King  Ahab  and  Jezebel.  The  present  somewhat  marshy  plain 
+of  Esdraelon,  the  almost  bare  mountains  of  Gilboa,  and  the 
+miserable  village  which  now  occupies  the  site  of  Jezreel,  and 
+overlooks  the  ruins  of  Bethshan,  can  aiTord  no  adequate  idea 
+of  what  the  place  was  in  the  days  of  Ahab  and  Jezebel  and 
+
+
+^  So  literally ;  the  first  of  the  two  terms  is  derived  from  a  root  which 
+signifies  "to  rebel,"  and  indicates  heart-rebellion  against  God. 
+
+
+Jezreel.  49 
+
+of  their  immediate  successors.  Then  the  mountains  of  Gilboa 
+were  richly  wooded,  and  sweet  springs  brought  freshness  to  the 
+air  and  luxurious  beauty  to  the  vegetation  of  Jezreel,  even 
+as  they  carried  -fertility  down  into  the  great  plain  beneath, 
+which  in  the  summer  light  shimmered  and  trembled  like  a  sea 
+of  golden  corn.  At  the  northern  declivity  of  Gilboa,  where 
+it  descends,  steep  and  rocky,  on  a  knoll  about  500  feet  high, 
+stood  Jezreel.  Protected  from  the  fierce  southern  sun  by  the 
+delicious  shade  of  Gilboa,  that  rises  up  behind,  it  looked — as 
+suited  to  a  summer-residence  in  the  East — northwards,  across 
+the  plain  to  the  mountains  of  Galilee,  to  Tabor,  and  in  the 
+distance  to  snow-capped  Hermon.  The  height  descended 
+into  the  valley  of  Jezreel,  where  a  sweet  spring  rippled,  and 
+close  by  gathered  into  a  pool.  Eastwards,  you  would 
+look  down  on  Bethshan,  and,  across  the  deep  depression  of 
+the  Jordan  valley,  to  the  mountains  on  the  other  sidCj  on  which 
+rested  the  blue  and  purple  light.  To  the  west  you  might 
+sweep  those  fifteen  miles  to  Mount  Carmel,  and  perchance  the 
+westerly  breeze  might  carry  up  the  plain  the  fresh  scent  of  the 
+sea.  Such  was  the  Jezreel  of  Ahab  and  Jezebel — the  nearest, 
+the  safest,  the  sweetest  summer- retreat  from  Samaria. 
+
+On  the  east  and  south-east,  where  the  hot  Hmestone  rock 
+shelves  into  the  valley  beneath,  are  to  this  day  wine-presses. 
+They  mark  the  neighbourhood  of  where  the  vineyards  of 
+Jezreel  must  have  been,  among  them  that  of  Naboth.  Right 
+above  was  the  royal  palace^  narrowed  and  cramped  within  the 
+city  walls,  of  which  indeed  it  seems  to  have  formed  part. 
+Manifestly  it  would  be  object  of  desire  to  acquire  the  land 
+nearest  to  the  palace,  with  the  view  of  converting  it  into  a 
+garden.  What  such  a  garden  might  bear,  and  what  sweet 
+outlook  on  it  could  be  enjoyed  from  the  windows  of  the 
+palace,  may  be  judged  from  the  lemon-groves  still  existing  in 
+the  near  neighbourhood.  But  Naboth,  the  owner  of  the 
+coveted  piece  of  land,  could  not  be  tempted  to  part  with  it  by 
+the  king's  offer  of  either  a  better  vineyard  or  an  equivalent  in 
+money.    It  was  the  ancestral  possession  of  the  family  of  Naboth, 
+
+
+so  A/iab,  King  of  Israel. 
+
+and  piety  towards  God  combined  with  reverence  for  the 
+memory  of  his  fathers  to  forbid  the  unholy  bargain.  It  is  a 
+healthy  sign  to  find  such  stern  assertion  of  principle  so  fear- 
+lessly uttered.  Israel  could  not  be  wholly  sunken  in  corrup- 
+tion and  idolatry,  so  long  as  it  numbered  among  its  peasant- 
+proprietors  men  like  Naboth,  nor  could  the  service  of  Jehovah 
+have  left  its  households  when  even  in  Jezreel  a  burgher 
+could  appeal  from  the  demands  of  an  Ahab  to  the  authority 
+and  law  of  his  God.  And  it  affords  happy  evidence  of  what 
+the  legislation  of  the  Pentateuch  had  secured  for  Israel,  that 
+even  in  the  worst  times  an  Ahab  dared  not,  like  a  heathen 
+monarch,  lay  hands  on  Naboth,  nor  force  him  to  surrender 
+the  inheritance  of  his  fathers. 
+
+It  is  another  mark  of  that  self-willed  and  uncontrolled 
+frame  of  mind  which  had  determined  the  bearing  of  Ahab 
+towards  Ben-hadad,  and  then  towards  the  prophet  sent  to 
+rebuke  him,  that  he  could  not  brook  the  refusal  of  Naboth. 
+It  was  utter  and  childish  petulance,  as  well  as  unbridled 
+selfishness,  to  act  as  he  did  on  his  return  to  Samaria.  He 
+turned  his  face  to  the  wall  and  refused  to  eat  bread.  In 
+Samaria  at  least  all  was  submissive  to  his  will — thanks  to  the 
+strong  hand  of  Jezebel.  But,  outside  her  sway,  he  was  always 
+encountered  and  opposed  by  Jehovah  :  now  by  His  prophets, 
+then  by  His  worshippers.  Here  was  a  power  which  he  dared 
+not  resist,  yet  to  which  he  would  not  submit.  But  Jezebel  shared 
+neither  the  feelings  nor  the  scruples  of  her  husband.  She 
+dared  what  she  would,  and  she  would  what  she  dared.  She 
+now  spoke  to  the  king  as  a  strong  unscrupulous  woman  to  a 
+weak  and  unprincipled  man.  She  must  have  known  what  had 
+prompted  the  refusal  of  Naboth — although  it  deserves  notice 
+that,  in  his  account  of  what  had  passed,  the  king  had  studiously 
+omitted  all  reference  to  it  (ver.  6).  Similarly,  Ahab  must  have 
+known  that  when  Jezebel  demanded  the  royal  signet,  with 
+which  official  documents  coming  directly  from  the  king  were 
+stamped,  she  must  have  had  in  view  some  scheme  of  violence. 
+And  often  does  it  seem  more  convenient — certainly  more  easy 
+
+
+NabotJi  and  the  Elders  of  Jezj^eel.  5 1 
+
+— to  remain  in  wilful  ignorance,  than  to  learn  what  would  call 
+for  our  active  resistance,  or,  in  the  absence  of  it,  fill  our  con- 
+science with  uneasiness.  And  while  remaining  in  wilful  ig- 
+norance, Ahab  may  have  flattered  himself  that  he  had  not 
+incurred  responsibility  in  the  murder  of  Naboth. 
+
+The  measures  of  Jezebel  were  at  least  plain  and  straight- 
+forward. The  old  Mosaic  civil  order  still  continued  in  Israel 
+by  which  jurisdiction,  even  in  matters  of  life  and  death,  lay 
+in  the  first  instance  with  the  ^'judges  and  officers"  of  a  place 
+(Deut.  xvi.  18).  This  local  "senate,"  consisting  partly  of 
+elected  life-members,  partly  of  what  may  be  designated  a 
+hereditary  aristocracy,  might  in  times  of  corruption  become 
+subject  to  court  influence,  especially  in  a  small  royal  borough 
+such  as  Jezreel.  Jezebel  knew  this  only  too  well,  and  with  a 
+terrible  frankness  wrote  to  each  member  of  that  senate 
+what  would  seem  the  king's  directions.  By  these  each  re- 
+cipient of  the  letter  would  become  a  fellow-conspirator,  and 
+each  feel  bound  to  keep  the  horrible  secret.  As  if  some  great 
+sin  rested  upon  the  city  (comp.  i  Sam.  vii.  6),  and,  in  con- 
+sequence of  it,  some  heavy  judgment  were  to  be  averted, 
+(2  Chron.  xx.  2-4  ;  Jer.  xxxvi.  6,  9),  the  eldership  of  Israel 
+gathered  the  people  to  a  solemn  fast.  If  it  had  been  so,  and 
+some  great  sin  had  been  committed  or  were  even  suspected,  it 
+would  have  been  the  duty  of  the  city  thus  to  purge  itself  of  guilt 
+or  complicity.  For  according  to  the  deep  and  true  idea  which 
+underlay  all  the  institutions  of  the  Old  Testament^  there  is 
+solidarity  (as  it  is  called  in  modern  language)  between  those 
+whom  God  has  placed  side  by  side.  There  is  solidarity  between 
+all  the  members  of  the  human  family — solidarity  of  curse  and 
+of  blessing,  of  judgment  and  of  promise,  because  all  have 
+sprung  from  a  common  stock.  There  is  solidarity  also  in  a  city, 
+since  ten  righteous  men  might  have  preserved  Sodom  from 
+destruction  ;  solidarity  in  a  nation,  since  the  sins  or  the  piety 
+of  its  rulers  were  returned  in  blessing  or  in  judgment  on  the 
+people — a  solidarity  which  as  it  pointed  back  to  a  common 
+ancestry,    also    pointed    forward  to  the    full  and  final  realiza- 
+
+
+52  Ahab,  King  of  Israel. 
+
+tion  of  its  inmost  meaning  in  that  great  brotherhood  of  believers 
+which  Christ  came  to  found.  x\nd  hence  it  was  that,  when  blood 
+had  been  shed  and  the  doer  of  the  crime  remained  unknown, 
+the  elders  of  the  district  had  by  a  solemn  act  to  clear  them- 
+selves of  the  guilt  (Lev.  iv.  13,  etc.  ;  Deut.  xxi.  1-9),  and 
+that,  as  here,  when  a  great  crime  was  supposed  to  have  been 
+committed,  all  would  humble  themselves  in  fasting  before 
+they  put  away  the  evil-doer  from  among  them. 
+
+In  the  assembly  thus  called  Naboth  was  to  be  ''set  on 
+high,"  not  in  order  to  assign  him  an  honourable  place,  so  as 
+the  more  effectually  to  rouse  public  indignation  when  one  so 
+honoured  was  convicted  of  such  crime,  nor  yet  to  give  the 
+appearance  [of  impartiality  to  the  proceedings  that  were  to 
+follow.  Evidently  the  fast  had  been  appointed  in  humiliation 
+for  a  sin  as  yet  unknown  to  the  people,  and  the  assembly  was 
+called  to  set  before  them  the  nature  of  this  crime.  For  this 
+purpose  Naboth  was  "  set  on  high,"  as  one  incriminated  before 
+the  elders,  against  whom  witnesses  were  to  rise^  and  on  whom 
+judgment  was  to  be  pronounced  by  the  people  of  his  own 
+city.  This  explains  (ver.  10)  how  these  "  two  sons  of  Belial"^ 
+who  w^ere  to  bear  false  testimony  against  Naboth  were  "set 
+before  him."  The  sacred  text  only  informs  us  that  the  two 
+witnesses  (comp.  Deut.  xvii.  6,  etc.  ;  xix.  15  ;  Numb.  xxxv.  30) 
+testified  that  Naboth  had  "  blasphemed  " — uttered  blasphemous 
+language  against  "  God  and  the  king."  It  is  scarcely  con- 
+ceivable that  Naboth  should  not  have  made  some  defence,  nor 
+that  the  people  would  have  given  so  ready  credence  to  such 
+a  charge  against  one  so  well  known,  if  some  colourable 
+confirmation  could  not  have  been  found  for  it.  May  it  not 
+have  been  that  the  refusal  of  the  vineyard  to  Ahab  had 
+become  known  to  the  townsmen  of  Naboth,  and  that  these  two 
+sons  of  Belial  were  suborned  to  say  that  Naboth  had  at  the 
+same  time  pronounced  in  their  hearing  a  curse  upon  Ahab — 
+perhaps  also  that  he  had  uttered  threats  of  resistance  ?    Such 
+
+^  The  derivation  of  the  word  "  Bcliyaal"  has  been  differently  explained, 
+but  all  are  agreed  that  its  primary  meaning  is  equivalent  to  wickedness. 
+
+
+The  Stoning  of  NabotJi.  53 
+
+a  solemn  curse  would  be  regarded  as  an  act  of  blasphemy,  not 
+only  against  the  kmg.  but  primarily  against  God,  Whose 
+authorized  representative  the  king  was  (comp.  Ex.  xxii.  28). 
+But  blasphemy  against  God  was  to  be  punished  by  stoning 
+(Deut.  xiii.  10;  xvii.  5).^ 
+
+As  in  all  such  cases,  the  punishment  was  immediately  carried 
+out,  and  apparently  in  Naboth's  own  vineyard,^  where  the 
+witnesses  would,  according  to  our  suggestion,  have  located  the 
+"  blasphemy  "  spoken  in  reply  to  the  request  of  the  king.  It 
+is  not  necessary  to  suppose  (as  some  commentators  have  done) 
+that  the  property  of  a  man  stoned  for  such  a  crime  was 
+treated  like  that  of  one  on  whom  the  ban  was  pronounced, 
+since  in  that  case  it  would  have  been  laid  waste,  not  given 
+to  the  king  (Deut.  xiii.  16).  But  it  was  quite  natural  that 
+the  property  of  one  who  had  been  found  guilty  of  high  treason 
+should  be  forfeited  to  the  Crown.  And  so^  when  the  elders  of 
+Jezreel  informed  Jezebel  that  Naboth  was  stoned,  she  could 
+tell  her  royal  husband  to  go  and  take  possession  of  the  vine- 
+yard that  had  been  refused  him  for  purchase  by  "the  Jez- 
+reelite,"  since  Naboth  was  dead. 
+
+There  was  bitter  as  well  as  haughty  irony  in  the  words  of 
+Jezebel,  as  if  she  had  felt  herself  a  queen  whose  wishes  and 
+commands  were  above  all  law,  human  or  Divine,  and  could 
+not  be  resisted  by  God  or  man  (ver.  15).  The  text  gives  no 
+indication  that  she  had  informed  Ahab  of  the  manner  of 
+Naboth's  death  ;  nor  did  the  king  make  inquiry.  But  there 
+was  far  more  terrible  irony  of  fact  in  what  followed  the  words 
+of  Jezebel.  On  receiving  the  welcome  tidings  of  Naboth's 
+death,  Ahab  "  rose  up"  to  go  and  take  possession  of  the  coveted 
+vineyard, — perhaps  the  very  day  after  the  judicial  murder 
+(comp.  2  Kings  ix.  26).  But  on  that  day  Jehovah  had  bidden 
+Elijah  arise  and  meet  Ahab  with  the  Divine  message,  just  as  the 
+king  thought  himself  in  secure  possession  of  the  fruit  of  his  crime, 
+
+^  Blasphemy  would  come  under  the  category  of  seducing  to  idolatry,  or 
+committing  it. 
+
+2  Comp.  I  Kings  xxi.  19 ;  2  Kings  ix.  25,  26. 
+
+
+54  AJiab,  King  of  Israel. 
+
+as  if  there  were  no  living  God  in  Israel.  We  can  picture  to 
+ourselves  the  scene.  Ahab  has  come  in  his  chariot  from 
+Samaria,  apparently  attended  by  his  chief  officers  (2  Kings 
+ix.  25).  Before  entering  his  palace  at  Jezreel — on  the  way 
+to  it — he  has  reached  the  vineyard  of  Naboth.  He  is  sur- 
+veying with  satisfaction  his  new  possession,  perhaps  giving 
+directions  how  it  should  be  transformed  into  "  a  garden," 
+when  of  a  sudden  there  stands  before  him  not  one  of  the 
+sons  of  the  prophets,  nor  an  ordinary  .seer,  but  the  terrible 
+figure  of  the  Gileadite,  with  his  burning  eyes,  .clad  in  the 
+rough  cloak  of  black  camel's  hair,  girt  about  with  a  leathern 
+girdle.  It  must  have  recalled  to  Ahab  his  first  apparition 
+in  the  midst  of  Samaria,  when  the  prophet  had  announced 
+to  his  startled  hearers  the  three  years'  drought,  and  then 
+so  suddenly  and  tracelessly  vanished  from  sight.^  And  the 
+last  time  he  met  the  prophet  had  been  on  Mount  Carmel ; 
+the  last  glimpse  had  been  when  through  the  blinding  rain 
+he  saw  the  dark  figure  running  before  his  chariot  to  the 
+very  gate  of  Jezreel,  as  if  he  had  come  to  herald  the  triumph 
+of  Jehovah,  and  to  bring  back  a  new  God-devoted  king. 
+That  had  been  a  weird  sight  of  the  prophet,  through  the  storm ; 
+and  it  had  been  a  short  dim  dream  of  Ahab's  to  make  the 
+scene  on  Mount  Carmel  a  reality  in  Israel.  With  Jezebel  came 
+back  to  him  the  evil  spirit  of  his  "  madness  ;  "  nay,  it  had  even 
+sought,  or  consented  to,  the  destruction  of  him  who  but  yester- 
+day had  visibly  brought  God's  fire  on  the  broken  altar,  and 
+God's  rain  on  the  parched  land. 
+
+And  now  he  stood  once  more  before  him — Ahab  knew  only 
+too  well  why.  It  was  for  briefest  but  unmistakable  message. 
+Its  first  sentence  swept  away  all  self-deception.  It  had  not 
+been  Jezebel  but  Ahab  who  had  killed.  And  now  he  had 
+taken  possession,  as  if  there  were  not  Jehovah  in  heaven, 
+nor  yet  the  eternal  reflection  of  His  Being,  and  the  permanent 
+echo  of  His  speaking,  in  right  and  truth  upon  earth.  Having 
+thus  not  only  wakened  the  conscience  of  Ahab,  but  vindicated 
+1  See  Vol.  V.  of  this  Bible  History,  pp.  184-189. 
+
+
+Jiidguicnt  on  Aliab.  55 
+
+the  authority  of  Him  in  Whose  Name  he  spoke,  the  next 
+sentence  of  EHjah's  message  announced  stern,  strict,  even  Hteral 
+retribution.  The  retort  of  Ahab  we  regard  as  a  childish 
+lament  to  the  effect  that  EUjah,  who  had  always  been  his  per- 
+sonal enemy,  had  now  at  last  "  found  him  "  in  some  actual  sin, 
+on  which  he  might  invoke  Divine  punishment.^  It  was  an 
+admission,  indeed,  in  that  moment  of  surprise,  of  his  guilt 
+and  apprehension  of  the  Divine  punishment  announced. 
+But  it  conjoined  with  it  this — if  not  in  excuse,  yet  as  a  counter- 
+charge— that  Elijah  was  his  personal  enemy,  and  had  lain  in 
+wait  for  the  occasion  to  call  down  Divine  judgment  upon 
+him.  It  was  against  this  attempt  to  make  it  a  merely  personal 
+controversy  that  Elijah's  answer  was  directed  (ver.  20).  "  I  have 
+found  (not  ^thee'),  because  thou  hast  sold  thyself  to  work  evil 
+in  the  sight  of  Jehovah."  What  the  prophet  had  spoken  was  not 
+the  outcome  of  personal  enmity,  nor  was  what  had  occurred 
+the  result  of  a  sudden  temptation  or  rash  mood  of  the  king, 
+but  of  the  whole  direction  of  life  which  Ahab  had  deliberately 
+chosen.  And  in  this  two  elements  were  closely  marked  :  that 
+he  had  sold  himself  as  a  slave  (Rom.  vii.  14)^  so  that  he  had 
+no  longer  freedom  of  action,  but  had,  a5  it  were,  to  obey 
+his  master's  behests;  and  that  he  had  so  sold  himself,  consciously 
+or  unconsciously,  "to  do  the  evil  in  the  sight  of  Jehovah." 
+Accordingly,  the  judgment  which  Elijah  announced  was  not 
+merely  personal  to  Ahab,  as  what  he  said  about  the  dogs  licking 
+his  blood  ;  but  it  also  struck  his  dynasty  and  doomed  it  to  exter- 
+mination for  this  twofold  reason:  "on  account  of  the  wrath 
+which  thou  hast  caused  to  go  forth, ^  and  hast  made  Israel  to 
+sin."     On  the  other  hand,  this  general  judgment  should  not 
+
+1  The  common  interpretations  of  these  words  seem  unsatisfactory.  They 
+are,  "  Hast  thou  ever  found  me  thine  enemy  ?  "  or,  "  Hast  thou  found  this 
+in  me?"  or,  "  Art  thou  again  meeting  me  as  my  enemy?"  Some  see  in 
+the  words  only  the  surprise  of  Ahab  at  the  sudden  appearance  of  Elijah 
+(Ewald),  or  else  the  language  of  defiance  (Thenius). 
+
+2  The  words  properly  mean  :  "  the  wrath  which  thou  hast  caused  to  be 
+wrathful." 
+
+
+56  Ahab,  King  of  Israel. 
+
+take  the  place  of  personal  punishment  upon  the  doers  of  such 
+a  crime  as  the  judicial  murder  ^  of  Naboth.  The  dogs  would 
+''  eat  Jezebel  at  the  wall  of  Jezreel,"  while  a  similar  fate  would 
+overtake  all  the  posterity  of  Ahab  in  the  city  (viz.,  of  Samaria) 
+or  in  the  field.  These  must  be  regarded  as  personal  judg- 
+ments denounced  on  personal  sins.  This  is  also  indicated  by  the 
+intercalated  remarks  of  the  writer  of  the  narrative  (in  verses 
+25,  26).^  But  the  actual  punishment  might  be  averted  or 
+modified  by  personal  repentance,  although  not  as  regarded  that 
+pronounced  on  the  national  guilt  in  which  the  rule  of  Ahab 
+had  involved  Israel. 
+
+If  evidence  of  the  truth  of  this  narrative — and,  as  connected 
+with  it,  of  this  whole  history — were  required,  what  is  told  in 
+conclusion  would  furnish  it.  For  a  legendary  story  would  not 
+have  represented  Ahab  as  repenting  and  yet  not  renouncing 
+his  former  courses.  But  this  also  is  true  to  life.  As  formerly 
+what  he  witnessed  on  Carniel,  so  now  the  words  of  Elijah 
+went  straight  to  Ahab's  heart.  He  no  longer  disguised  the 
+truth  from  himself,  nor  sought  to  divert  his  mind  by  thoughts  of 
+personal  animosity  on  the  part  of  the  prophet.  It  was  against 
+Jehovah  that  he  had  sinned,  and  before  Jehovah  he  humbled 
+himself.  As  a  mourner  he  rent  his  clothes ;  as  a  penitent  he 
+wore  sackcloth ;  as  guilty  he  fasted  ;  and  as  one  staggering 
+under  a  heavy  load  of  grief  and  sin,  he  walked  softly.^ 
+And  all  this  publicly — in  the  sight  of  all  men.  It  was  fitting,  if 
+we  may  venture  on  the  expression,  and  in  accordance  with 
+
+^  In  the  murder  of  Naboth  the  two  elements  of  personal  provocation 
+and  of  causing  Israel  to  sin  were  also  combined. 
+
+2  This  intercalated  notice  of  the  writer  is  very]  interesting.  It  traces 
+Ahab's  slavish  surrender  to  the  service  of  sin  to  the  incitement  of  Jezebel, 
+and  it  likens  the  state  of  public  idolatry  then  in  the  land  to  that  of  "the 
+Amorites,"  that  is,  the  Canaanites  (comp.  Gen.  xv.  16)  whom  God  had 
+destroyed.  Surely  no  less  punishment  could  follow  the  like  abominations 
+on  the  part  of  Israel. 
+
+*  The  word  rendered  "softly"  might  denote  the  gentle,  noiseless  step 
+of  sorrow  or  humiliation  ;  but  it  has  also  been  rendered  by  "barefooted," 
+as  in  mourning. 
+
+
+Allah's  Repentance.  57 
+
+God's  previous  declaration  of  judgment,  that  the  living  God 
+Who  had  seen  and  avenged  the  crime  done  in  secret  should 
+also  acknowledge  the  repentance  shown  in  public.  Accordingly 
+the  word  of  Jehovah  came  once  more  to  Elijah  to  declare 
+that  the  personal  repentance  of  the  personal  sin  had  brought 
+remission  of  the  personal  punishment,  though  not  of  that 
+denounced  on  the  dynasty.  The  visible  judgment,  by  which 
+all  were  to  perceive  the  retribution  of  God's  justice,  was  delayed 
+to  the  time  of  his  son,  and  would  have  been  delayed  still 
+further  had  he  shown  like  repentance.  But  only  delayed 
+— for  retribution  must  follow  such  open  sin.  And  so  the 
+remembrance  of  it  was  kept  up ;  and  even  this,  in  mer- 
+ciful warning  to  Ahab's  son.  But  when  the  dogs  licked  up 
+the  blood  of  Ahab,  as  they  washed  the  chariot  stained  with 
+his  gore,  they  recalled  the  yet  unfulfilled  judgment  that  hung 
+like  a  dark  cloud  over  the  house  of  Ahab  (i  Kings  xxii.  t^Z). 
+But  this  was  in  Samaria,  not  in  Jezreel,  nor  in  the  portion 
+of  Naboth,  for,  as  the  prophet  had  foretold,  God  brought  not 
+"the  evil"  itself,  only  its  warning  remembrance^,  in  the  days  of 
+Ahab.  But  on  Jezebel  would  it  descend  with  the  terrible 
+reahty  of  a  literal  fulfilment. ^ 
+
+^  The  judgment  on  Jezebel  was  to  be  executed  "by  the  wall  of  Jezreel " 
+(xxi.  23).  The  expression  means  properly  :  on  the  free  space  by  the  wall. 
+And,  as  we  remember  that  the  window  from  which  Jezebel  looked  down 
+upon  Jehu  must  have  been  in  the  city  wall,  since  she  addressed  him  as  he 
+entered  in  at  the  gate  (2  Kings  ix.  30,  31),  we  can  understand  how  literally 
+the  prediction  was  fulfilled. 
+
+
+CHAPTER     V. 
+
+JVhab  itnb  S^h-Azmh,  ((Biglttk  anb  £im\h)  Sings  of  Israel. 
+Jehoshaphnt,  (Jfoiirth)  Sing  oi  Jniiah. 
+
+The  Visit  of  Jelioshaphat  to  Almb—Tlie  projected  Expedition  against  Ramotli- 
+Gilead— Flattering  Predictions  of  False  Prophets— Micaiah— The  Battle 
+of  Ramoth-G Head— Death  of  Ahab. 
+
+(i  Kings  xxii.  ;  2  Chron.  xviii.) 
+
+^->HE  events  told  in  the  previous  chapter  were  followed  by 
+i  a  period  of  rest.  Religiously,  it  might  be  described 
+as  one  of  approximation  to  the  worship  of  Jehovah.  But  it 
+might  prove  only  the  more  dangerous  on  that  account,  as 
+being  the  outcome  of  an  attempted  compromise  where  com- 
+promise was  impossible.  Evidence  of  this  occurs  to  us  alike 
+from  the  summons  and  the  bearing  of  those  four  hundred 
+prophets  whom  Ahab  called  together,  when  requested  by 
+Jehoshaphat  to  inquire  at  "  the  word  of  Jehovah  "  as  to  the 
+projected  expedition  against  Ramoth-Gilead.  Those  four 
+hundred  could  not  have  been  ''prophets  of  Baal,"  since  the 
+latter  had  been  destroyed  on  Mount  Carmel.  Their  bearing 
+also  widely  differs  from  that  of  the  prophets  of  Baal.  Nor 
+could  they  have  been  the  four  hundred  "prophets  of 
+Asherah"  [Astarte] — specially  supported  by  Jezebel — who  had 
+been  summoned  to  (i  Kings  xviii.  19),  but  did  not  appear  at, 
+the  decisive  contest  on  Carmel  (vers.  22,  26,  40).  For,  first, 
+they  were  now  summoned  as  professedly  bringing  "  the  word 
+of  Jehovah,"  that  is,  as  prophesying  in  His  Name.  Further, 
+although  they  spoke  at  first  of  Adonai  (the  Lord,  ver.  6  ^),  yet 
+afterwards    (vers.   11,    12)  they  professed    to    announce    what 
+
+'  At  the  same  time  all  the  ancient  Versions  and  many  Codd.  read  Jehovah. 
+
+
+State  of  Religion,  59 
+
+"Jehovah"  would  do,  while  Zedekiah  their  leader  expressly 
+referred  to  "  the  Spirit  of  Jehovah  "  as  having  gone  from  him- 
+self to  Micaiah  (ver.  24).  On  the  other  hand,  they  must  not  be 
+regarded  as  either  true  "prophets  of  Jehovah,"  or  as  "  sons  of  the 
+prophets."  For  from  the  first  Jehoshaphat  appears  unwilling  to 
+recognize  their  authority.  They  were  evidently  not  those  whose 
+guiding  message  he  had  originally  wished  (ver.  5),  and  in  con- 
+trast to  them  he  continued  to  ask  for  "  a  prophet  of  Jehovah  " 
+(ver.  7),  upon  which  Ahab  mentioned  Micaiah  (not  one  of  those 
+four  hundred  prophets)  as  one  by  whom  "  to  inquire  of 
+Jehovah."  Lastly,  the  four  hundred  false  prophets  are  after- 
+wards expressly  designated,  first,  by  the  evil  spirit,  and  then 
+by  Micaiah,  not  as  those  of  Jehovah,  but  as  those  of  Ahab 
+(vers.   22,   23). 
+
+These  considerations  lead  us  to  characterise  the  religious 
+condition  prevailing  at  the  time  as  a  debasement  of  the  worship 
+of  Jehovah.  Apparently  these  prophets  professed  to  bring 
+the  word  of  Jehovah  :  yet  they  were  only  the  lying  prophets 
+of  Ahab.  It  seems  not  unlikely  that  Ahab  may  have  restored 
+the  ancient  rites  instituted  by  Jeroboam,  when  Jehovah  was 
+professedly  worshipped  under  the  symbol  of  the  golden  calf 
+that  had  brought  Israel  out  of  Egypt.  This  transformation  of 
+the  religion  of  Israel  has  been  fully  described  in  another  place. 
+Such  a  form  of  worship  would  have  the  twofold  recommenda- 
+tion, that,  while  it  seemed  a  return  from  the  service  of  Baal 
+to  that  of  Jehovah,  it  still  left  to  Ahab,  as  king,  the  office  and 
+control  of  chief  pontiff  of  the  new  religion  (com p.  i  Kings 
+xii.  32,  33).  1  Indeed,  it  may  have  been  in  this  sense  also  that 
+the  four  hundred  prophets  were  designated  those  of  Ahab, 
+just  as  they  of  Astarte  may  have  been  called  those  of  Jezebel, 
+because  in  her  character  as  queen  she  was  their  high-priestess. 
+And  if  these  prophets  were  really  priests  of  the  worship 
+originally  instituted  by  Jeroboam,  and  now  restored^  it  is  only 
+natural  to  suppose  that  they  may  have  been  formed  into  a 
+prophetic  association,  after  the  mode  and  in  imitation  of  the 
+^  Comp.  Volume  V.  of  this  History,  pp.  137-139. 
+
+
+6o  Ahab,  King  of  Israel. 
+
+institution  of  the  "  sons  of  the  prophets."  Whether  any  con- 
+nection between  the  two  really  existed  at  the  time  can 
+scarcely  be  determined,  although  the  angry  speech  of  Zedekiah 
+(ver.  24),  the  leader  of  the  prophets  of  Ahab,  seems  to  imply  it. 
+And  we  can  readily  believe  that  in  those  degenerate  days  many 
+of  the  "sons  of  the  prophets" — perhaps  even  an  association  of 
+them — may  have  lent  themselves  to  this  spurious  worship  of 
+Jehovah. 
+
+We  can  now  realize  the  scene  enacted  before  Ahab  and 
+Jehoshaphat.  It  is  related  in  almost  identical  terms  in  the 
+Books  of  Kings  and  of  Chronicles  (2  Chron  xviii.  2-34).  In 
+the  latter  it  is  introduced,  by  an  account  of  the  circumstances 
+which  led  up  to  the  ill-fated  expedition  against  Syria.  We 
+remember  ^  that  eight  or  nine  years  previously,  Jehoram,  the 
+son  of  Jehoshaphat,  then  a  youth  of  about  fifteen  or  sixteen, 
+had  been  married  to  Athaliah,  the  daughter  of  Ahab  and 
+Jezebel.  So  far  as  we  know,  the  two  monarchs  had  not  per- 
+sonally met  after  that  event.  But  when  Israel,  after  the  defeat 
+of  Ben-hadad,  enjoyed  a  long  period  of  peace,  while  Judah 
+was  in  an  equally  prosperous  condition  (2  Chron.  xviii.  i),  it 
+was  both  natural  and  easy  for  the  two  monarchs  whose  families 
+and  kingdoms  were  so  closely  connected  to  arrange  a  personal 
+interview.  We  may  conjecture  that  the  proposal  had  come 
+from  Ahab,  nor  are  we  probably  mistaken  in  supposing  that  in 
+this  the  Israelitish  king  had  the  scheme  of  an  alliance  against 
+Syria  in  his  mind.  At  any  rate  this  would  accord  with  that 
+systematic  intriguing  and  desire  to  form  alliances  which  we  have 
+repeatedly  noticed  as  characteristic  of  Ahab. 
+
+Jehoshaphat  and  his  retinue  were  right  royally  received  and 
+entertained  at  Samaria.  It  was,  surely,  a  strange  thing  to  see 
+a  Davidic  king  of  Judah  on  a  visit  to  the  capital  of  the  rebel 
+provinces,  yet  not  more  strange  than  that  one  of  the  decided 
+religiousness  of  Jehoshaphat  should  consort  with  an  Ahab. 
+The  consequences  appeared   only  too    soon.     The    Book  of 
+
+1  Conip,  Volume  V.,  pp.  182,  183. 
+
+
+The  Projected  Expedition.  61 
+
+Chronicles  uses  the  expression  that  Ahab  ''enticed"^  Jeho- 
+shaphat  (2  Chron.  xviii.  2),  while  the  Book  of  Kings  only 
+relates  the  circumstances  that  led  to  the  formal  alliance  between 
+them.  Similarly  we  are  not  quite  sure  whether  this  "  entice- 
+ment "  had  preceded  or  followed  the  appeal  of  Ahab  to  "  his 
+servants,"  recorded  in  the  Book  of  Kings  (xxii.  3).  But  in  all 
+hkelihood  Ahab,  who  may  have  planned  everything  with  a 
+view  to  the  project  he  had  at  hearty  may  have  availed  himself 
+of  the  presence  of  all  his  chieftains  to  do  honour  to  the  king 
+of  Judah,  to  bring  before  them  on  some  public  occasion — per- 
+haps at  a  banquet — the  great  grievance  which  Israel  had 
+against  Syria.  If  our  conjecture  be  correct,  it  would  account 
+both  for  Jehoshaphat's  immediate  and  strange  consent,  and 
+then  for  his  hesitation  and  desire  to  ascertain  the  will  of  God 
+in  the  matter. 
+
+The  appeal  which  Ahab  made,  in  the  first  place  to  his  own 
+officers,  was  about  Ravioth-Gilead.  Situated  on  the  eastern 
+bank  of  the  Jordan — perhaps  represented  by  the  modern  Es- 
+Salt,  and  in  that  case  pitched  on  a  mountain-spur  which  far 
+overlooks  the  country — it  was  a  threatening  outpost  for  Syria 
+to  occupy,  whence  they  might  not  only  watch  Israel,  but  swoop 
+across  Jordan  and  up  the  valley  to  Jezreel,  before  even  certain 
+information  of  their  advance  could  be  brought  to  IsraeUtish 
+headquarters.  This  city  Ben-hadad  had,  under  one  or  another 
+pretext,  not  given  up  to  Ahab,  as  by  his  treaty  he  had  bound 
+himself  to  do  (i  Kings  xx.  34).  We  cannot  wonder  that  Ahab 
+should  have  desired  to  regain  a  place  so  important,  and  which, 
+while  in  the  possession  of  Syria,  was  a  constant  menace  to 
+him.  But  he  should  have  remembered  not  only  that  the  real 
+blame  rested  with  himself,  but  what  the  prophet  had  predicted 
+as  the  punishment  of  his  guilty  folly  in  allowing  Ben-hadad  to 
+escape  (i  Kings  xx.  42).  Accordingly  he  should  not  have 
+taken  such  an  expedition  in  hand  without  some  express  warrant 
+
+1  This,  and  not  "persuaded,"  as  in  the  A.V.  The  term  is  often  used 
+of  inciting  to  evil  (comp.  Deut.  xiii.  6  ;  Judges  iii.  14  ;  Job  ii,  3  ;  i  Chron. 
+xxi.  i). 
+
+
+62  AJiab,  King  of  IsraeL 
+
+from  God.  We  are  not  told  how  the  appeal  to  their  patriotism 
+was  received  by  the  officers  of  Ahab,  but  it  was  responded  to 
+by  Jehoshaphat,  to  whom  Ahab  next  addressed  himself,  in 
+terms  which  sound  terribly  ominous,  as  we  recall  the  word  of 
+the  Lord  in  regard  to  the  fate  of  any  expedition  of  Ahab  against 
+Syria. 
+
+But,  as  already  noted,  other  thoughts  soon  came  to  the  king 
+of  Judah.  He  must  have  felt  that  he  himself  would  never 
+have  entered  on  such  an  undertaking  without  the  sanction  of 
+Jehovah.  And  in  the  present  instance  this  seemed  doubly 
+needful  Yet,  except  as  the  expression  of  Jehoshaphat's  tardy 
+repentance,  the  proposal  which  he  made  to  Ahab  to  "inquire 
+at  the  word  of  Jehovah,"  seemed  singularly  inconsistent.  He 
+had  entered  into  an  alliance  as  regarded  this  special  compaign  ; 
+perhaps  his  hearty  concurrence  had  decided  the  officers  of 
+Ahab  ;  at  any  rate,  it  was — as  the  event  proved — too  late  now 
+to  withdraw,  whatever  the  word  of  Jehovah  might  be.  In  truth, 
+it  was  only  what  may  always  be  expected  when  those  who  serve 
+and  love  the  Lord  allow  themselves  to  be  entangled  in  alliances 
+with  ungodly  men,  where  one  step  leads  to  another,  and  one 
+inconsistency  involves  the  next,  till  at  last  we  recoil  when  it  is 
+too  late  to  withdraw,  and  the  only  thing  consistent  is  to  be 
+inconsistent  ni  owning  God  where  His  will  can  no  longer  be 
+obeyed.  But  even  this  is  good,  for  it  is  the  first  step  to  re- 
+pentance. And  though  we  must  suffer  the  punishment  of  our 
+folly,  yet  God  will  hear  a  Jehoshaphat  in  the  disastrous  battle, 
+when  he  crieth  to  Him,  and  give  gracious  deliverance  (2  Chron. 
+xviii.   31). 
+
+We  are  ^'  in  the  void  place  in  the  entrance  of  the  gate  of 
+Samaria"  (i  Kings  xxii.  10) — that  is,  in  the  open  square 
+before  the  gate.  Two  thrones  have  been  set  for  the  two 
+kings,  who  appear  arrayed  in  their  royal  robes. ^  Before  them 
+is  gathered  the  motley  multitude  of  prophets.     Ahab  puts  the 
+
+^  The  word  "  royal  "  is  not  in  the  original.  The  Hebrew  offers  some 
+difficulties  ;  but,  as  the  issue  is  not  of  any  practical  importance,  it  is  useless 
+to  burden  these  pages  with  the  discussion. 
+
+
+The  Prop  J  lets  of  Ahab.  6^ 
+
+question,  whether  or  not  he  (in  Chron.  "  we  ")  should  go  up  to 
+Ramoth-Gilead.  And  now  the  prophets — concerning  whom 
+we  must  not  forget  that  they  knew  what  saying  of  theirs  would 
+be  '^good"  in  the  king's  ears  (i  Kings  xxii.  13) — sway  about 
+in  frenzied  excitement.  Here,  there,  everywhere  rises  the  cry, 
+^'  Go  up,  for  the  Lord  will  give  it  into  the  hand  of  the  king." 
+It  was  not  only  the  unanimity  of  these  four  hundred  men,  but, 
+no  doubt,  their  appearance  and  bearing  which  made  Jehoshaphat 
+inquire  whether,  besides  all  these,  there  was  not  a  prophet  of 
+Jehovah  to  be  found  in  Samaria.  From  the  answer  of  Ahab 
+when  mentioning  the  name  of  Micaiah  :  "^  I  hate  him,  for  he 
+does  not  prophecy  concerning  me  good,  but  only  evil,"  and 
+from  the  later  direction  to  "  one  of  the  chamberlains,"  it  has 
+been  inferred  that  Micaiah  had  lately  been  "  prophesying " 
+evil  to  the  king — whether  in  answer  to  his  inquiry,  or  directly 
+commissioned  of  God — and  that  the  prophet  was  at  that 
+moment  a  prisoner  of  Ahab.  The  latter  point,  indeed,  seems 
+quite  established  by  verse  26,  where  Micaiah  is  ordered  to  be 
+"  taken  back,"  or  "returned"  to  custody. 
+
+Some  points  of  interest  for  the  understanding  of  this  history 
+may  here  be  noted.  It  appears  that  the  prophets  of  God 
+delivered  many  more  "  prophecies  "  than  are  recorded  in  the 
+Scriptures — and  more  especially,  that  Ahab  was  not  left  without 
+warning.  Further,  it  casts  light  on  the  true  and  the  false 
+prophets,  that  the  latter  were  wont  to  declare  what  was 
+pleasing  to  their  employers  (^'good");  while  the  prophets  of 
+God  faithfully  deHvered  their  message,  whatever  the  con- 
+sequences might  be.  And,  lastly,  it  appears  that  the  king 
+regarded  such  message  as  the  outcome  of  personal  enmity 
+towards  himself.  This  is  most  instructive,  as  showing  that 
+men  like  Ahab  took  a  purely  heathen  view  of  prophetism.  As 
+Balak  had  sought  to  influence  Balaam,  apparently  in  the 
+belief  that  the  soothsayer  had  power  with  God,  and  could  at 
+will  direct  or  control  His  action,  so  Ahab  imagined  that  what 
+he  called  "  good  "  or  "  evil "  in  the  message  was  the  result  of 
+either  personal  friendship  or  enmity.     It  was  against  this  that 
+
+
+64  A  hah,  King  of  Israel. 
+
+Jehoshaphat  protested  (ver.  8,  last  clause),  and  not  merely 
+against  the  notion  that  Micaiah  hated  the  king.  Ahab  yielded  to 
+Jehoshaphat,^  but  the  view  which  he  had  in  advance  presented 
+of  the  motives  and  conduct  of  Micaiah  must  have  blunted  the 
+edge  of  his  words,  alike  to  Ahab  and  to  the  people.  This 
+explains  the  otherwise  strange  fact  that  his  emphatic  warning 
+remained  so  entirely  unheeded.  It  was,  as  we  imagine,  during 
+the  interval  while  Micaiah  was  being  brought  from  his  prison, 
+that  the  leader  of  the  false  prophets  indulged  in  a  symbolical 
+action.  We  can  scarcely  be  mistaken  in  supposing  that  when 
+Zedekiah  rushed  forward  holding  against  his  forehead  two 
+pointed  pieces  of  iron,  and  exclaiming  :  "  With  these  shalt  thou 
+push  the  Syrians,  until  they  be  consumed,"  he  referred  to  the 
+Divine  promise  by  Moses  in  regard  to  Joseph  (Deut.  xxxiii.  17). 
+"  His  horns,  the  horns  of  buffaloes  :  with  them  shall  he  push 
+down  the  nations."  Here  was  the  kingdom  of  Ephraim — the 
+son  of  Joseph — and  Ahab  was  the  representative  of  that 
+promise  which  was  now  about  to  have  its  fulfilment.  Deeply 
+interesting  as  this  reference  is,  as  showing  the  mixture  of 
+Old  Testament  religion  and  acknowledgment  of  God  which,  as 
+we  have  seen,  was  combined  in  these  prophets  with  that  which 
+was  false,  and  opposed  to  Jehovah,  it  is  also  instructive  as 
+implying  that  the  Book  of  Deuteronomy  was  not  only 
+existent  at  the  time  this  history  was  originally  recorded,  but 
+that  its  sayings — specially  so  far  as  they  referred  to  Israel — 
+must  have  thoroughly  permeated  the  people. 
+
+If,  as  seems  likely,  the  object  of  Zedekiah's  symbolic  action 
+had  been  to  impress  on  all  present  the  certainty  of  his  pre- 
+diction, the  arrival  of  Micaiah  speedily  changed  the  aspect  of 
+things.  On  the  way,  the  official  charged  with  bringing  him 
+from  the  prison  had  told  Micaiah  of  the  unanimous  prediction 
+of  success  by  the  four  hundred  prophets,  and  asked  him  to 
+confirm  it.     We  do  not  wonder  at  the  emphatic  reply  which 
+
+1  The  Lxx.  seem  to  have  pointed  the  word  *'  Hasten  hither,  Micaiah," 
+otherwise  than  in  our  text,  and  to  have  read  :  "  Quick  !  Micaiah  !  "  which 
+would  be  quite  characteristic  in  Ahab. 
+
+
+Micaiah.  65 
+
+this  elicited.  If  the  prophetic  office  was  to  fulfil  its  Divine  object, 
+or,  indeed,  to  be  continued  in  Israel,  it  was  needful  to  state 
+distinctly  that  the  prophet  would,  without  fear  or  favour,  simply 
+deliver  the  message  of  Jehovah.  And  this,  rather  than  irony, 
+seems  to  have  been  also  the  reason  why,  in  answer  to  Ahab's 
+inquiry,  Micaiah  at  first  spoke  in  the  same  terms  as  the  false 
+prophets.  Such  a  mechanical  outward  conformity  to  them 
+could  not  have  been  misunderstood.  It  meant  that  Ahab  did 
+not  really  wish  to  have  a  message  from  Jehovah  ;  that  he  had 
+chosen  his  own  path  and  his  own  guides  in  it.  Ahab  evidently 
+understood  him  so,  and,Tendered  bold  by  the  scene  which  had 
+been  enacted,  and  by  the  apparent  unwillingness,  or,  it  might 
+be,  inability  of  Micaiah  to  interpose,  he  adjured  him  to  speak 
+only  the  truth  in  the  name  of  Jehovah.  Thus  challenged, 
+Micaiah  could  no  longer  hesitate.  Indeed,  after  his  first 
+apparent  confirmation  of  what  the  prophets  had  declared,  as  it 
+were  in  chorus,  his  message  would  come  with  the  more  startling 
+effect.  We  may  also  mark  that  it  affords  us  yet  further  insight 
+into  the  nature  and  origin  of  prophecy.  When  Micaiah  said  : 
+"  I  saw  all  Israel  scattered  on  the  mountains,  as  sheep  that 
+have  no  shepherd ;  and  Jehovah  said,  These  have  no  masters, 
+let  them  return  every  man  to  his  house  in  peace," — the 
+words  represent,  evidently,  a  vision ;  and  that,  not  of  some- 
+thing literally  real,  but  as  we  might  term  it  a  parabolic  vision. 
+
+It  is  in  the  same  manner  that  we  regard  the  next  part  of 
+Micaiah's  message.  It  must  not  be  understood  as  declaring 
+what  really  took  place  in  heaven,  but  as  a  vision  in  which  the 
+prophet  saw  before  him,  as  in  a  parable,^  the  explanation  and 
+the  higher  Divine  meaning  of  the  scene  that  had  just  been 
+enacted  before  the  two  kings,  and  the  final  sequence  of  it 
+which  he  had  just  announced.     The  points  to  be  kept  in  view 
+
+^  It  was  a  real,  external  vision,  God-directed,  which  the  prophet  describes; 
+not  a  vision  of  what  really  occurred  in  heaven,  but  that  which  really  oc- 
+curred, the  seduction  of  Ahab  by  his  false  prophets  as  the  I'esult  of  Divine 
+judgment,  was  thus  presented  in  a  parable,  as  it  were,  from  the  heavenly  point 
+of  view.     In  ver.  21,  "a  spirit"  should  be  rendered  "the  spirit." 
+
+
+66  A/ial?,  King  of  Israel. 
+
+are  :  that  the  final  judgment  which  would  come  to  Ahab  in  his 
+self-chosen  campaign  against  Syria  was  of  the  Lord  ;  nay, 
+.  that  the  seductive  influence  of  the  prophets  was  part  of  the 
+Divine  judgment,  and  therefore  of  the  Divine  appointment — at 
+least,  in  its  permissive  sense.  Yet  in  all  this  Ahab's  destruction 
+would  come  through  his  own  sin  :  being  led  to  his  ruin  by  those 
+false  prophets  whom  he  had  chosen,  and  by  his  unwillingness 
+to  hear  the  word  of  Jehovah,  which  he  regarded  as  the  out- 
+come of  personal  hostility.  Thus  his  destruction  would  be 
+really  due  to  his  deliberate  choice  of  a  course  in  direct  opposi- 
+tion to  the  Will  of  God.  For  these  two  elements  are  always 
+combined  in  manner  to  us  inexplicable,  yet  very  really  :  the 
+appointment  of  God  and  the  free  choice  of  man.  And  it  was 
+all  the  more  necessary  for  Micaiah  to  state  all  this  fully  and 
+fearlessly,  since  his  first  message  had  been  interrupted  by  the 
+peevish  and  false  complaint  of  Ahab  to  Jehoshaphat,  that  it 
+had  happened  as  he  had  expected,  since  Micaiah  would  never 
+prophesy  aught  but  evil  of  him. 
+
+Thus  viewed,  there  is  a  peculiar  depth  of  meaning  and 
+a  grandeur  in  the  parabolic  vision  which  Micaiah  so  vividly 
+described.  It  would  have  carried  conviction  to  all,  if  they  had 
+been  open  to  it.  The  scene  enacted  in  the  open  market-place 
+of  Samaria  had  its  counterpart — its  true  spiritual  reflex — in 
+the  great  court  of  heaven.  Instead  of  Ahab  sitting  on  his 
+throne  surrounded  by  his  own  flattering  prophets,  and  antici- 
+pating his  victorious  march  upon  Ramoth-Gilead,  it  was  Jehovah, 
+the  God  of  truth,  surrounded  by  all  His  host,  who  sat  on  His 
+judgment-seat  decreeing  the  destruction  of  the  infatuated  king. 
+But  as  Ahab  shall  prepare  his  own  destruction,  so  shall  he  also 
+compass  it.  And  this  is  quite  in  accordance  with  all  God's 
+dealings  in  mercy  and  judgment  with  Ahab.  Ahab  has  dis- 
+owned the  Lord  ;  he  has  now  surrounded  himself  by  these 
+400  prophets  of  falsehood  to  encourage  himself  and  those  with 
+him  in  his  undertaking.  Be  it,  as  he  has  chosen  for  himself; 
+these  prophets  shall  prophesy — yea,  lies — and  he  will  believe 
+their  smooth  prophecy  to  the  disregard  of  the  Divine  Will  and 
+
+
+TJie    Vision  of  MicaiaJi.  6 J 
+
+warning,  and  so  perish  in  his  folly  and  rebellion.  All  this  was 
+so  truthfully  presented  in  the  parabolic  vision,  and  so  pictorially 
+set  before  those  assembled,  that  at  least  Zedekiah,  the  leader 
+of  the  false  prophets,  could  have  no  doubt  in  the  matter. 
+However  we  may  explain  his  ebullition  of  personal  resentment 
+in  striking  Micaiah,  whether  as  a  punishment  or  to  put  upon 
+him  a  public  affront,  we  can  have  no  difficulty  in  understanding 
+his  words  (ver.  24).  If  they  sounded  like  a  satirical  reproof  of 
+Micaiah's  presumption  in  arrogating  to  himself  that  he  alone 
+had  really  the  Spirit  of  Jehovah,  while  all  the  others  had  not 
+that  inspiration — as  if  the  Spirit  of  Jehovah  had  gone  from  him 
+to  Micaiah — they  also  convey  to  us  yet  another  meaning. 
+Zedekiah  must  have  known  that  he  had  not  a  message  from 
+Jehovah,^  and  he  had  imagined  that  Micaiah's  prophecy  would 
+be  as  self-originated  as  had  been  his  own.  But  the  words  which 
+he  heard  left  on  him  no  doubt  that  Micaiah  had  truly  spoken 
+from  Jehovah,  and  the  resentment  at  feeling  that  this  was  so, 
+and  that  Micaiah,  not  himself,  was  the  organ  chosen  by  God, 
+awakened  within  him  feelings  which  found  expression  in  angry 
+words  and  still  angrier  deed.  It  was  a  spirit  like  that  of 
+Simon  Magus — only  intensified  and  manifested  in  manner  con- 
+gruous to  Old  Testament  times.  And  this  also  explains  the 
+reply  of  Micaiah,  which  was  directed  against  the  words  of 
+Zedekiah.  He  should  "see,"  quite  perceive,  the  real  difference 
+between  the  true  and  the  false  prophet,  when  he  would  experi- 
+ence its  results.  Then,  when  his  prediction  would  not  only 
+remain  unfulfilled,  but  appear  by  the  side  of  the  warning  of  the 
+true  prophet,  as  having  been  false  and  misleading,  would  he 
+in  utter  disgrace  seek  to  hide  himself  from  the  sight  of  all  men, 
+and  to  escape  that  punishment  of  his  crime  which  the  survivors 
+from  the  battle  would  no  doubt  inflict. 
+
+^  Josephus  has  the  curious  idea  that  the  blow  was  intended  to  test  whether 
+Micaiah  was  a  true  prophet,  in  accordance  with  I  Kings  xiii.  4.  Thenius 
+treats  the  question  of  Zedekiah  as  a  sneer.  Bahr  regards  it  as  implying 
+that  Zedekiah  did  not  purposely  and  consciously  prophesy  falsely,  and  that 
+it  meant  :  How  dare  you  say  that  the  Spirit  has  gone  from  me  to  you  ? 
+
+
+68  AJiab,  King  of  Israel. 
+
+Not  a  few  in  that  assembly  must  have  understood  the  real 
+meaning  of  the  words  of  Zedekiah.  But  the  majority  would  prefer 
+to  give  them  an  interpretation  more  consonant  with  their  mood, 
+or  at  least  more  convenient.  It  might  seem  to  them — to  adopt 
+the  language  of  many  among  ourselves  when  inconvenient 
+truth  is  in  question — that  the  whole  matter  had  now  degen- 
+erated into  a  wrangle  between  opposing  and  rival  theologians. 
+At  any  rate^  the  time  for  all  such  talk  had  passed,  and  that  for 
+action  come.  Ramoth-Gilead  was  theirs ;  truly  and  fairly,  by 
+the  law  of  God  and  of  man,  let  theologians  say  what  they 
+pleased  in  exaltation  of  their  respective  schools  and  dogmas. 
+And  the  two  kings  were  united  in  an  alliance  against  the 
+Syrians  that  could  not  be  unsuccessful :  all  was  propitious,  let 
+them  go  up — make  a  sudden  raid  upon  the  stronghold,  and 
+take  what  was  their  own.  And  to  mark  how  deeply  he  resented, 
+and  was  able  to  punish  what  he  regarded  as  an  act  of  rebellion, 
+Ahab  ordered  Micaiah  to  be  taken  back  to  the  custody  of 
+Amon,  the  governor  of  the  city.  With  him  the  name  of  Joash, 
+the  king's  son,  perhaps  only  a  royal  prince,  was  combined, 
+probably  in  order  to  indicate  that  Micaiah  was  a  state 
+prisoner.  And  as  such  he  was  to  be  treated  with  special  severity. 
+Thus  far  Ahab  possessed  the  requisite  power;  but  when  he 
+added  :  "  Until  I  come  in  peace,"  he  uttered  a  distinct  chal- 
+lenge. To  this,  by  whomsoever  made — be  he  prince  or  private 
+person,  and  howsoever  made,  whether  in  public  or  in  private, 
+or  even  in  inward  opposition  to  God's  revealed  truth,  there  is 
+only  this  answer  :  "  He  that  sitteth  in  'the  heavens  shall  laugh  ; 
+the  Lord  shall  have  them  in  derision."  But  Micaiah  could  not 
+allow  it  to  pass  unnoticed.  The  honour  of  Jehovah,  Whose 
+prophet  he  was,  required  the  reply  :  "  If  thou  comest  at  all  in 
+peace,  Jehovah  hath  not  spoken  by  me."  And  then,  turning 
+to  the  multitude  around,  he  summoned  tliem  as  witnesses 
+between  himself  and  the  king. 
+
+We  are  not  told  what  impression  the  scene  had  made  upon 
+Jehoshaphat.  But  we  cannot  help  feeling  that,  in  spite  of  his 
+boastful  language,  it  must  have  had  a  deep  effect  even  upon 
+
+
+Effect  of  the  Prophecy.  69 
+
+Ahab.  The  expedition  against  Ramoth-Gilead  would  naturally 
+follow  as  soon  as  possible  after  the  popular  assembly  in 
+Samaria.  From  the  circumstance,  that  Jehu  the  prophet  of 
+the  Lord  delivered  the  Divine  reproof  against  the  alliance  of 
+Jehoshaphat  with  Ahab  only  after  the  return  of  the  former 
+from  the  Syrian  campaign  (2  Chron.  xix.),  we  are  inclined 
+to  infer  that  the  king  of  Judah  had  not  gone  back  to 
+his  own  dominions  before  the  joint  march  upon  Ramoth- 
+Gilead.  With  this  accords  another  impression  derived  from 
+the  narrative.  The  whole  account  of  the  battle,  the  apparently 
+very  subordinate  part  which  Jehoshaphat  played  in  it,  as  well 
+as  the  absence  of  any  reference  to  the  army  of  Judah,  and  the 
+solitary  notice  that  Jehoshaphat  returned  to  Jerusalem  in  peace 
+(2  Chron.  xix.  i),  without  any  reference  to  his  people — all 
+convey  the  impression  that  Jehoshaphat  had,  without  returning 
+to  Jerusalem,  merely  summoned  a  small  Judaean  contingent,  so 
+that  his  presence  and  aid — if  known  at  all  to  the  Syrians- 
+were  regarded  as  a  very  secondary  element  in  the  campaign. 
+And  when  we  compare  this  with  the  language  of  Jehoshaphat 
+on  entering  into  alliance  with  Ahab  (i  Kings  xxii.  4),  and 
+before  he  had  heard  the  words  of  Micaiah,  we  feel  that  the 
+contrast  between  his  promises  and  performance  must  have 
+been  due  to  the  prophetic  warning  which  he  had  heard. 
+
+And  as  regards  Ahab  and  his  people  we  have  similar  in- 
+dications of  inward  misgivings.^  It  was  the  common  practice 
+for  kings  and  leaders  to  go  into  battle  in  full  array  (comp. 
+2  Sam.  i.  10).  When  Ahab,  therefore,  made  the  strange 
+proposal  that  Jehoshaphat  alone  should  go  in  his  royal  robes, 
+while  he  disguised  himself,  this  must  have  been  caused  by 
+apprehension  of  the  Divinely  threatened  judgment^  which 
+after  his  usual  manner  he  hoped  to  foil  by  astuteness.  And 
+if  it  be  asked  why  in   such  case  Jehoshaphat  did   not   also 
+
+^  Josephus  states — though  without  support  from  the  sacred  text — that 
+Ahab  and  the  people  had  at  first  been  afraid  at  the  words  of  Micaiah,  but 
+that  they  took  courage  when  Divine  judgment  did  not  immediately  follow 
+on  the  blow  which  Zedekiah  gave  to  the  prophet. 
+
+
+70  Ahabj  King  of  Israel. 
+
+disguise  himself,  the  obvious  answer  is,  that  the  Divine 
+message  had  not  threatened  death  to  the  king  of  Judah,  and 
+that,  if  both  monarchs  had  so  disguised  themselves,  it  would 
+have  been  virtually  an  announcement  to  their  followers  that 
+they  expected  defeat,  and  the  fulfilment  of  Micaiah's  prophecy. 
+This  is  one  side  of  the  picture  \  the  other  is  that  pre- 
+sented from  the  Syrian  camp.  The  military  organization, 
+introduced  in  the  former  campaign  (i  Kings  xx.  24),  now 
+proved  its  efficiency.  The  •'  thirty  and  two  captains "  who 
+commanded  "  the  chariots  "  evidently  formed  the  first  line  of 
+attack.  To  them  Ben-hadad  gave  special  orders  to  direct 
+their  movements  exclusively  against  the  king  of  Israel,^  in  the 
+hope  that,  with  his  capture  or  death,  alike  the  battle  and  the 
+campaign  would  be  ended.  The  disguise  of  Ahab  had  almost 
+defeated  this  plan.  P'or  when  the  Syrians  pressed  around  the 
+only  chariot  which  bore  one  in  royal  apparel,  in  the  belief 
+that  they  fought  with  Ahab — and  this  also  seems  to  imply  that 
+they  were  not  aware  of  the  presence  of  the  king  of  Judah — 
+Jehoshaphat  "  cried  out,"  on  which  the  Syrians,  recognising 
+that  it  was  not  the  voice  of  Ahab,  desisted  from  the  pursuit.^ 
+It  is  impossible  to  determine  whether  Jehoshaphat  had  appealed 
+to  his  pursuers,  or  called  for  the  support  of  his  men.  But  the 
+fact  itself  is  of  sufficient  importance  to  be  recorded  alike  in 
+the  Book  of  Kings  and  in  that  of  Chronicles  (2  Chron.  xviii. 
+31),  and  in  precisely  the  same  terms.  But  the  writer  of  the 
+Book  of  Chronicles,  who  tells  this  history  from  the  standpoint 
+of  Judah,  as  in  the  Book  of  Kings  it  is  related  from  that 
+of  Israel,  adds  that  the  providential  deliverance  which  Jehosha- 
+phat experienced  was  from  Jehovah.  It  is  scarcely  necessary 
+to  add  that  this  reflection  is  not  in  any  way  inconsistent  with 
+the  briefer  Israelitish  record,  nor  implies  divergent  sources  of 
+information. 
+
+1  There  is  no  indication  that  this  was  known  to  Ahab,   and  that   his 
+disguise  was  due  to  it. 
+
+2  Pi-obably  they  thought  some  one  had  been  arrayed  as  a  king  for  the 
+purpose  of  misleading  ihem. 
+
+
+Death  of  AJiah.  71 
+
+But  the  disguise  of  Ahab,  so  far  from  frustrating  the  judg- 
+ment predicted,  only  served  the  more  clearly  to  show  the  Divine 
+agency  in  his  destruction.  As  the  battle  continued,  a  man 
+''  drew  a  bow  in  his  simplicity  " — that  is,  without  taking  aim 
+at  any  definite  person — when  the  arrow  struck  the  king  of 
+Israel  "  between  the  joints  and  the  breastplate,"  that  is,  where 
+the  cuirass  which  covered  the  breast  met  the  jointed 
+armour  that  protected  the  lower  part  of  the  body.  Such  a 
+wound  would^  of  necessity,  be  mortal,  and  the  king  directed 
+the  driver  of  the  chariot  to  take  him  away  from  the  fight. 
+But  the  Syrians  were  unaware  that  the  king  of  Israel  had 
+received  his  fatal  wound.  Thicker  and  hotter  grew'  the  fight, 
+and  the  command  of  Ahab  could  not  be  obeyed.  And  all 
+day  long  had  he  to  be  stayed  in  his  chariot  while  his  life  was 
+slowly  ebbing  away.  It  was  a  ghastly  spectacle,  the  disguised 
+king,  mortally  struck  despite  his  disguise,  now  held  up  in  his 
+chariot,  to  continue  against  his  will  in  the  battle.  Rarely  has 
+history  so  visibly  and  in  every  detail  taught  its  Divine  lessons. 
+The  sun  was  going  down,  and  his  slanting  rays  fell  on  the 
+dying  Ahab — more  royal  now  than  in  his  life.^  Presently  the 
+sound  of  battle  was  stilled,  and  the  rest  of  darkness  fell  on  the 
+combatants.  But  as  the  tidings  spread  of  the  death  of  their 
+king,  the  people  must  have  recalled  the  prophecy  of  Micaiah. 
+And  the  very  remembrance  of  it  led  to  its  literal  fulfilment. 
+For  through  the  host  ran  the  proclamation  which  scattered 
+them  as  sheep  that  have  not  a  shepherd  :  "Every  man  to  his 
+city,  and  every  man  to  his  own  country." 
+
+While  one  prophecy  was  thus  translated  into  fact,  the  knell 
+of  yet  another  was  sounding  in  the  hearing  of  the  house  of 
+Ahab,  had  they  but  had  ears  to  hear  it.  Through  the  darkness 
+speeded  the  chariot  that  bore  the  dead  body  of  Ahab,  lying 
+on  its  bloody  bed.     They  reached  Samaria,  and  there   they 
+
+1  The  Targum  and  some  interpreters  have  regarded  the  "staying "as 
+an  act  of  Ahab's,  that,  in  order  to  sustain  the  courage  of  his  sokiiers,  and 
+to  continue  the  battle,  he  had  borne  his  pain  and  hurt,  and  kept  up  in  his 
+chariot. 
+
+
+72  A  hub,  King  of  Israel. 
+
+buried  their  king.  But  the  chariot  full  of  his  gore  they  took 
+outside,  to  wash  in  the  pool  by  the  city.  And,  horrible  to 
+behold,  in  the  pale  moonlight  the  wild  masterless  dogs,  which 
+in  the  East  prowl  at  night  about  the  city-walls,  lapped  up  the 
+water  mingled  with  gore  which  flowed  out  of  the  blood-dyed 
+chariot  as  they  washed  it.  And  stranger  and  still  more  horrible, 
+the  red  flood  in  large  eddying  circles  mingled  wnth  the  waters 
+of  the  pool — that  pool  where  "  the  harlots  washed,"  ^ — no 
+doubt  where  Jezebel's  priestesses  of  Astarte,  the  ministers  of 
+the  worship  of  debauchery^  nightly  performed  their  semi-religious 
+ablutions  in  that  sacred  fishpond,^  which  here,  as  in  all  other 
+places  where  the  Syrian  Astarte  was  worshipped,  had  been 
+constructed  and  consecrated  to  the  goddess.  What  a  coinci- 
+dence, and  how  full  of  deepest  significance  !  But  did  Ahab's 
+successor  not  think  of  the  blood  of  Naboth,  and  the  curse 
+which  rested  on  Ahab,  not  only  as  the  murderer  of  Naboth, 
+but  as  he  who  had  seduced  Israel  into  idolatry  and  all  sin? 
+And  did  Jezebel  not  see  in  this  red  flood,  in  which  her  priest- 
+esses of  the  worship  of  impurity  performed  their  sacred  ablu- 
+tions, a  warning  token  of  that  judgment  which  was  gathering, 
+like  a  dark  cloud,  over  her  own  head  ? 
+
+But  as  yet  these  judgments  of  the  Lord  slumbered.  "  So 
+Ahab  slept  with  his  fathers,  and  Ahaziah  his  son  reigned  in 
+his  stead." 
+
+1  The  rendering  in  the  A.V.  ( i' Kings  xxii.  38),  "and  they  washed  his 
+armour,"  is  untenable.  The  words  mean,  "And  the  harlots  bathed,"  and 
+the  terrible  significance  of  the  event  lies  in  this  :  that  the  blood  of  Ahab, 
+who  had  erected  altars  in  Israel  to  Baal  and  Astarte  (see  Vol.  V.,  p.  179), 
+was  not  only  licked  by  dogs — which  would  remind  of  the  prophecy  of 
+Elijah  ( I  Kings  xxi.  19),  and  its  threatened  transference  to  his  successor 
+(ver.  29) —  but  that  it  also  mingled  with  that  pool  which  served  for  lus- 
+tration to  those  abandoned  women  whose  life  of  debauchery  was  part  of  the 
+worship  of  Astarte,  introduced  by  Ahab  and  Jezebel.  And  this  fulfilled 
+the  prediction  of  Elijah  upon  AhM^  public  sins  (i  Kings  xxi.  21-23). 
+
+2  The  existence  of  this  "sacred  fishpond  "  not  only  explains  the  narra- 
+tive, but  seems  to  me  a  remarkable  confirmation  of  it.  Such  sacred  "ponds," 
+dedicated  to  Atergatis,  Astarte,  the  Venus  that  rose  from  the  sea,  are  found 
+in  all  places  where  the  goddess  was  adored  according  to  ancient  Hittite 
+and  Phucnician  rites  (comp.  Conder,  Heth  and  Moab,  p.  64). 
+
+
+CHAPTER    VI. 
+
+Jehoshitphat,  (Jfoxtrth)  fling  of  Jubith. 
+
+The  Reproof  and  Prophecy  of  Jehu— Resumption  of  the  Reformation  in 
+Judah— Institution  of  Judges  and  of  a  Supreme  Court  in  Jerusalem- 
+Incursion  of  the  Moabites  and  their  Confederates— National  Fast  and 
+the  Prayer  of  the  Kin^— Prophecy  of  Victory— The  March  to  Tekoa— 
+Destruction  of  the  Enemy— The  Valley  of  Beralihah— Return  to  Jeru- 
+salem and  to  the  Temple. 
+
+(s  Chron.  XIX,  XX.  1-34.) 
+
+T3EF0RE  continuing  the  history  of  Israel,  we  turn  aside  to 
+^  complete  that  of  Jehoshaphat,  king  of  Judah.  It  will  be 
+remembered  ^  that  he  had  succeeded  his  father  Asa  in  the 
+fourth  year  of  King  Ahab's  reign.  At  that  time  Jehoshaphat 
+was  thirty-five  years  old ;  and  as  his  reign  lasted  for  twenty-five 
+years,2  it  follows  that  he  died  at  the  age  of  sixty,  which,  when 
+we  consider  the  annals  of  the  royal  houses  of  Judah  and 
+Israel,  must  be  considered  a  protracted  Hfe.  A  few  other 
+particulars  are  given  us  connected  with  Jehoshaphat's  acces- 
+sion. Thus  we  learn  that  his  mother's  name  was  Aziibhah,^ 
+the  daughter  of  Shilchi.  Again,  we  gather  how  energetically 
+he  took  in  hand  at  the  beginning  of  his  reign  the  religious 
+reformation  commenced  by  his  father  Asa.*  But  the  want  of 
+true  sympathy  on  the  part  of  his  subjects  prevented  the  full 
+success  of  his  measures.  The  idol-groves  and  heights,  dedi- 
+cated to  Baal  and  Astarte,  were  indeed  destroyed  (2  Chron. 
+xvii.  6),  but  it  was  found  impossible  to  abolish  the  corrupt 
+worship  of  Jehovah  celebrated  on  "the  high  places"  (i  Kings 
+xxii.  43  -y   2  Chron.  xx.  33).     Beyond  these  brief  notices,  the 
+
+^  See  Vol,  V.  p.  178.  *  i  Kings  xxii.  42  ;  2  Chron.  xx.  31. 
+
+^  Thenius  renders  the  name  by  *'  the  Uberated  "  =  our  Francisca. 
+
+^  See  Vol.  V.  p.   180. 
+
+G 
+
+
+74  JeJioshapJiat,  King  of  Jndah. 
+
+narrative  in  the  Book  of  Kings  only  indicates  that  at  that 
+period  there  was  no  king  in  Edom,  but  that  the  country  was 
+ruled  by  a  governor.  This  is  manifestly  stated  in  order  to 
+explain  how  the  maritime  expedition  to  Ophir  could  have 
+been  undertaken  without  provoking  resistance  on  the  part  of 
+Edom,  in  whose  territory  Ezion-Geber  was  situate.  But  the 
+sacred  text  affords  no  information  to  account  for  this  state  of 
+matters  in  Edom.^ 
+
+The  scanty  details  about  the  reign  of  Jehoshaphat  furnished 
+in  the  Book  of  Kings — which  deals  mainly  with  the  history  of 
+the  northern  kingdom — are  supplemented  in  the  Book  of 
+Chronicles.  The  compilers  of  the  latter  had  evidently  before 
+them^  amongst  other  sources  of  information,  a  prophetic  history 
+of  that  reign  :  "  The  Chronicles  [or,  the  words]  of  Jehu,  the 
+son  of  Hanani,  which  are  inserted  in  the  book  of  the  Kings 
+of  Israel  "2  (2  Chron.  xx.  34,  comp.  i  Kings  xxii.  45).  It 
+was  this  Jehu,  who,  on  the  return  of  Jehoshaphat  from  the 
+expedition  against  Ramoth-Gilead,  announced  to  the  king  the 
+Divine  displeasure.  Better  than  any  other  would  he  be  ac- 
+quainted with  the  spiritual  declension  in  the  northern  kingdom, 
+since  it  was  he  who  had  been  sent  to  pronounce  on  Baasho, 
+king  of  Israel,  the  judgment  that  should  overtake  him  and 
+his  people  for  their  apostacy  (i  Kings  xvi.  i,  etc.).  And 
+who  so  fit    to  speak  fearlessly  to  Jehoshaphat  as  the  son  of 
+
+^  Keil  and  Ewald  suggest  that  the  Edomites  had  taken  part  in  the 
+expedition  of  Amnion  and  Moab  against  Judah  (2  Chron.  xx.);  Thenius 
+supposes  that  the  reigning  family  of  Edom  had  died  out,  and  that 
+Jehoshaphat  had  taken  advantage  of  the  disputes  for  the  succession,  to 
+re-assert  the  supremacy  of  Judah.     But  all  these  are  mere  conjectures. 
+
+^  Thus  correctly,  and  not  as  in  our  A.  V.  There  seems  to  have  been 
+"a  hook  "  or  "  chronicles  "  **of  the  kings  of  Judah  and  Israel,"  which  is 
+frequently  referred  to  either  by  that  name  (2  Chron.  xvi.  11  ;  xxv.  26  ; 
+xxviii.  26),  or  as  "the  book  of  the  kings  of  Israel  and  Judah"  (2  Chron. 
+xxvii.  7  ;  XXXV.  27  ;  xxxvi.  8),  or  as  "  the  book  of  the  kings  of  Israel  " 
+(2  Chron.  xx.  34)  or  "  the  words  ["acts  "  ?]  of  the  kings  of  Israel  "  (2  Chron. 
+xxxiii.  18.)  The  term  Israel  in  the  last  two  cases  is  taken  in  the  wider  sense 
+as  embracing  Judah  and  Israel.  All  these  names  represent  one  work,  into 
+which,  among  others,  "the  words"  or  "chronicles"  of  Jehu,  the  son  of 
+Ilanani,  were  incorporated. 
+
+
+The  Prophecy  of  Jehi.  75 
+
+him  who  had  formerly  suffered  imprisonment  at  the  hands  of 
+Asa,  the  father  of  Jehoshaphat,  for  faithfully  delivering  his 
+commission  from  God  (2  Chron.  xvi.  7-10)?  The  message 
+which  he  now  brought  was  intended  to  point  out  the  in- 
+congruity of  Jehoshaphat's  alliance  with  Ahab.  The  punish- 
+ment which  the  prophet  announced  as  its  sequence,  came 
+when  the  king  experienced  the  effects  of  that  other  unholy 
+alliance,  in  which  Ammon  and  Moab  combined  against  Judah 
+(2  Chron.  xx.).  Again  had  Jehoshaphat  to  learn  in  the  de- 
+struction of  his  fleet  at  Ezion-Geber  (2  Chron.  xx.  37)  that 
+undertakings,  however  well-planned  and  apparently  unattended 
+by  outward  danger,  can  only  end  in  disappointment  and  failure, 
+when  they  who  are  the  children  of  God  combine  with  those 
+who  walk  in  the  ways  of  sin. 
+
+■  But  in  Jehoshaphat  the  warning  of  the  prophet  wrought 
+that  godly  repentance  which  has  not_  to  be  repented  of. 
+Jehu  had  declared  how  God,  in  His  condescension,  ac- 
+knowledged that  "  nevertheless  there  are  good  things  found 
+in  thee  " — and  this,  not  merely  as  regarded  his  public  acts  in 
+the  abolition  of  open  idolatry  in  his  country,  but  also  that 
+personal  piety  which  showed  itself  in  preparing  his  own  heart 
+to  seek  after  God.  And  now  the  sense  of  his  late  inconsistency 
+led  him  all  the  more  earnestly  to  show  that  he  did  not  regard 
+the  religious  condition  of  his  late  aUies  as  a  light  matter. 
+Once  again  he  took  in  hand  the  religious  reformation  begun 
+at  the  commencement  of  his  reign. ^  The  account  of  the 
+present  movement  is  the  more  interesting  that  it  furnishes 
+proof  of  the  existence  of  the  Book  of  Deuteronomy  at  that 
+time,  long  before  the  memoirs  were  written  on  which  the 
+Books  of  Chronicles  are  based.  For,  as  we  shall  presently 
+see,  there  are  here  constant  references  to  the  legislation  in 
+the  Book  of  Deuteronomy,  and  that  not  pointedly  and  with 
+a  show  of  emphasis — such  as  we  would  have  expected  if 
+Deuteronomy  had  been  only  lately  invented  or  introduced — 
+but  in  a  manner  which  indicates  a  long  admitted  authority, 
+^  2  Chron.  xvii.  7-10.    See  Vol.  V.,  p.  180. 
+
+
+'j6  yehoshaphat,  King  oj    Jiidah, 
+
+so  that  its  legislation  had  permeated  the  people,  and  its 
+principles  required  only  to  be  alluded  to  as  something 
+universally  acknowledged, — not  vindicated  as  something 
+recently  introduced.  This  line  of  argument,  bringing  out 
+the  undesigned  evidences  of  the  antiquity  of  the  Mosaic 
+legislation,  seems  to  us  to  possess  far  more  convincing  force 
+than  much  of  the  specious  reasoning  on  the  other  side,  which 
+has  of  late  been  so  confidently  advanced.  And  while  on  this 
+ground  the  reader  should  be  warned  against  hastily  adopting 
+conclusions  inconsistent  with  the  assured  truth  of  the  Divine 
+Word,  he  should  also  be  encouraged  to  mark,  in  careful  study, 
+the  many  passages  containing  undesigned  references,  which 
+are  only  intelligible  on  the  supposition,  not  only  of  the  exist- 
+ence, but  of  the  long  and  generally  acknowledged  authority 
+of  the  Mosaic  legislation. 
+
+The  reformation  initiated  by  Jehoshaphat  was  carried  out 
+by  him  personally.  For  this  purpose  he  traversed  the  country 
+from  its  southern  boundary  (Beer-sheba)  to  its  northern 
+(Mount  Ephraim).  His  main  object  was  to  "  bring  back  " 
+the  people^' to  Jehovah,  the  God  of  their  fathers."  Partly 
+in  attainment  of  this,  and  partly  to  render  the  reformation 
+permanent,  he  revised  the  judicial  arrangements  of  the  country, 
+in  strict  accordance  with  the  Deuteronomic  Law.  For,  ac- 
+cording to  the  Divine  appointment,  the  judges  in  Israel  were 
+not  only  intended  to  pronounce  sentences  and  to  decide  cases, 
+but  to  guide  and  direct  the  people  on  all  questions,  civil  and 
+religious,  and  so  to  prevent  the  commission  of  sin  or  crime. 
+The  account  given  of  the  work  of  Jehoshaphat  embraces 
+these  three  points  :  the  appointment  of  Judges ;  the  principle 
+underlying  their  authority  ;  and  the  rule  for  its  exercise. 
+
+As  regards  the  first  of  these,  we  remember  that  the 
+appointment  of  judges  had  been  first  proposed  by  Jethro 
+(Ex.  xviii.  21,  22),  and  then  carried  out  by  Moses  (Deut.  i. 
+13,    etc.)."^      Such    judges    were    now    appointed    for    every 
+
+^  We  mark  here  the  organic  connection  of  the  Deuteronomic  legislation 
+with  the  Book  of  Exodus. 
+
+
+The  Reformation  of  Jehoshaphat.  77 
+
+"fenced  city."  This,  not  only  because  these  places  were 
+the  most  important  in  the  land,  but  in  order  to  protect  the 
+administration  of  justice,^  and  in  accordance  with  the  funda- 
+mental law  in  Deut.  xvi.  18.  As  regards  the  principle  on 
+which  their  authority  rested,  the  judges  were  to  bear  in 
+mind  that  they  were  the  representatives  of  the  Great  Judge, 
+Whose  aid  was  accordingly  promised  them  (2  Chron.  xix.  6) — 
+and  this  also  in  accordance  with  the  Deuteronomic  statement : 
+"for  the  judgment  is  God's"  (Deut.  i.  17).  From  this 
+it  follows,  as  the  practical  rule,  that  in  the  administration  of 
+justice  they  were  to  be  influenced  by  the  fear  of  Jehovah, 
+and  not  by  fear  of,  nor  favour  for,  man.  And  here  we  mark 
+once  more  the  implied  reference  to  Deuteronomy  i.  16,  17; 
+xvi.   18-20.2 
+
+Besides  these  provincial  judges,  Jehoshaphat  appointed  in 
+Jerusalem  a  tribunal  of  appeal  consisting  of  priests,  Levites, 
+and  the  chiefs  of  clans.  With  this  mixed  tribunal  rested  the 
+final  decision  in  all  matters  concerning  religion  and  worship 
+(2  Chron.  xix.  8  :  "  for  the  judgment  of  Jehovah  ;"  and  ver.  11  : 
+"  in  all  matters  of  Jehovah  "),  as  well  as  in  civil  and  criminal 
+cases  (ver.  8  :  "in  strifes;''  ver.  11  :  "all  the  king's  matters"). 
+Moreover,  it  was  their  duty  to  warn,^  advise,  and  instruct 
+in  all  doubtful  cases,  whether  criminal,  civil,  or  ecclesiastical, 
+in  which  they  were  applied  to  either  by  the  inferior  judges  or  the 
+people.  As  president  of  this  mixed  commission,  Amariah, 
+the  high-priest,*  was  appointed  for  ecclesiastical,  and  Zebadiah, 
+the  chief  of  the  tribe  of  Judah,  for  civil  cases. 
+
+^  Rabbinic  Law  has  always  made  a  distinction  between  these  "walled 
+cities  " — dating,  it  was  supposed,  from  the  original  occupation  of  the  land 
+— and  other  towns. 
+
+-  There  is  nothing  in  any  way  inconsistent  either  with  the  Mosaic 
+legislation  or  this  later  institution  of  Jehoshaphat  in  the  appointment  by 
+David  of  Levites  to  be  judges  (i  Chron.  xxiii.  4  ;  xxvi.  29).  For  it  is  not 
+anywhere  said  that  the  Levites  were  the  only  judges. 
+
+'  The  expression  here  is  peculiar,  and  recalls  Ex.  xviii.  20,  where  the  word 
+is  rendered  (in  the  A.  V.)  "teach." 
+
+^  Perhaps  the  same  as  he  who  is  mentioned  in  i  Chron.  vi.  ii. 
+
+
+78  Jehoshaphaty  King  of  Judah. 
+
+And  now  that  came  to  pass  which  had  been  predicted  by 
+the  prophet  in  punishment  of  the  aUiance  with  Ahab. 
+Happily,  it  found  the  people  prepared  by  the  religious  revival 
+which  had  passed  over  the  land.  As  we  infer  from  the 
+tenor  of  the  whole  narrative,  the  Moabites,  the  Ammonites, 
+and  "  with  them  certain  of  the  Meunites," '  made  an  un- 
+expected raid  "  from  beyond  the  Sea  " — that  is,  the  Dead 
+Sea — "from  Edom."-  They  could  come  swooping  round  the 
+southern  end  of  the  Dead  Sea,  or  passing  over^by  the  southern 
+ford,  just  opposite  Engedi,  the  ancient  Hazazon-tamar — 
+probably  the  oldest  city  in  the  world.  The  name  Engedi, 
+"the  spring  of  the  goat,"  is  derived  from  the  manner  in 
+which  its  fertilising  spring  seems  to  leap  in  its  descent.  The 
+older  name,  Hazazon-tamar — either  "  rows  of  palms,"  or  "  the 
+cutting  of  the  palm-trees  " — originated  from  the  palms  which 
+once  grew  there  in  great  luxuriance.  But  the  site  is  now 
+desolate,  and  where  once  palms  flourished,  and  the  most 
+precious  wine  of  Judaea  was  grown,  only  naked  terraces 
+shelve  up  the  mountain-side.  The  plain  or  rather  slope 
+is  described  ^  as  extending  about  a  mile  and  a  half  from 
+north  to  south,  being  bounded  on  either  side  by  a  Wady 
+with  perennial  water.  Engedi  touches  the  outrunners  of  the 
+mountains  of  Judah.  Several  hundred  feet  up  the  slope,  about 
+a  mile  and  a  half  from  the  shore  of  the  Dead  Sea,  the  little 
+streamlet  which  has  given  the  place  its  name,  dashes  down  in 
+thin  but  high  cataracts.  Below  these  falls,  and  in  the  centre  of 
+the  plain,  are  the  ruins  which  mark  the  site  of  the  ancient  city. 
+
+As    in    the   time   of   Abraham   the    Assyrian  hordes   (Gen. 
+
+^  This  is  the  correct  reading,  and  not  "  the  Ammonites,"  as  in  the  A.  V. 
+nor  yet,  as  has  sometimes  been  suggested:  "the  Edomites."  The 
+Meunites  were  probably  a  tribe  inhabiting  Arabia  Petrsea ;  no  doubt  the 
+same  as  those  called  Mcunim  in  i  Chron.  iv.  41  (rendered  in  our  A.  V. 
+by  "habitations").     Comp.   2  Chron.  xxvi.   7. 
+
+2  By  a  copyist's  error  the  Hebrew  text  has  0"1N  (Syria)  instead  of  QIN 
+(Edom).  It  could  not  have  been  from  "  Syria,"  and  the  1  of  the  one 
+would  be  easily  misread  as    "7. 
+
+2  Canon  Tristram,  Land  of  FalesHne,  pp.  284,  2S5. 
+
+
+The  Allied  Livasioii  of  jfiidah.  79 
+
+xiv,),  so  now  these  marauding  invaders,  had  swarmed  across — 
+scarcely  an  army,  rather  a  multitude  of  wild  nomads.  Along  the 
+plain,  up  the  slope  to  the  crest  of  the  mountain,  through  the 
+wadys,  they  crowded.  It  seemed  a  countless  host,  as  their  wild 
+war-shouts  resounded  from  hill-top  and  valley,  or  their  dark  forms 
+covered  the  heights,  whence  they  gazed  across  the  wilderness  to- 
+wards the  rich  and  coveted  cities  of  Judah.  So  it  seemed  to 
+the  terrified  fugitives,  who  brought  exaggerated  tidings  of  their 
+numbers  to  Jehoshaphat.  And  only  a  distance  of  fifteen  hours 
+separated  these  plundering  tribes  from  Jerusalem.  Not  a  mo- 
+ment was  to  be  lost.  The  first  measure  was  to  invoke  the  aid  of 
+the  Lord.  A  fast  was  proclaimed  throughout  Judah — a  day  of 
+humiliation  for  national  sins  and  of  prayer  in  the  time  of  their 
+great  need  (comp.  Judg.  xx.  26  ;  i  Sam.  vii.  6  ;  Joel  ii.  15). 
+Jehoshaphat  himself  took  his  place  in  the  most  prominent 
+part  of  the  temple,  "  before  the  new  court " — either  one 
+newly  constructed,  or  else  renovated,  and  probably  inter- 
+mediate between  "  the  great "  or  outer  court,  and  '^  the  court  of 
+the  priests  "  (comp.  2  Chron.  iv.  9).  If  so,  it  probably  repre- 
+sented what  at  a  later  period  was  known  as  *'  the  court  of  the 
+women,"  and  Jehoshaphat  stood  on  the  height  afterwards 
+covered  by  the  steps  leading  up  to  the  court  of  the  priests,  where 
+the  Levites  who  conducted  the  musical  part  of  the  temple- 
+services  were  stationed.  There,  within  sight  and  hearing  of  all, 
+like  Solomon  of  old,  and  as  a  true  king,  he  represented  and 
+guided  his  people  in  their  act  of  national  humiliation  and  prayer. 
+Ordinarily  prayer  did  not  form  part  of  the  symbolical  temple- 
+services.  The  latter  could  only  be  performed  by  the  God- 
+appointed  priesthood.  This,  even  on  the  lower  ground  ^ 
+that  had  others  been  allowed  to  intrude  into  these  services, 
+it  would  soon  have  led  to  the  introduction  of  heathen  rites. 
+And  of  this  there  were  only  too  many  instances  in  the 
+history  of  Israel.     Never,  except  on  such  solemn   occasions, 
+
+'  There  were  other  and  much  deeper  grounds  for  confining  the  sacri- 
+ficial services  to  the  Aaronic  priesthood.  But  this  lower  consideration 
+should  also  be  noticed  as  of  interest  and  importance. 
+
+
+8o  Jehoshaphat^  King  oj   Jiidah. 
+
+was  the  voice  of  public  prayer  heard  in  the  Temple,  and  the 
+king  did  not  intrude,  but  acted  right  kingly,  when  he  now  spake 
+in  name  and  on  behalf  of  his  people. 
+
+There  could  not  have  been  a  prayer  of  more  earnest  or 
+realising  faith  than  that  of  Jehoshaphat.  It  began  by  the  acknow- 
+ledgment of  Jehovah  as  the  true  and  living  God  (v.  6),  and  as 
+the  Covenant-God,  Who  in  fulfilment  of  His  promises  had  given 
+them  the  land  (v.  7).  In  virtue  of  this  twofold  fact,  Israel  had 
+reared  the  sanctuary  (v.  8),  and  consecrated  alike  the  Temple 
+and  themselves  by  solemnly  placing  themselves  in  the  keeping 
+of  God,  to  the  disowning  of  all  other  help  or  deliverance 
+(v.  9).  To  this  invocation  at  the  dedication  of  the  Temple 
+(2  Chron.  vi.  28-30)  a  visible  response  had  been  made  when 
+the  fire  came  from  heaven  to  consume  the  sacrifice,  and  the 
+glory  of  Jehovah  filled  the  house  (2  Chron.  vii.  i).  On  this 
+threefold  ground  the  prayer  of  Jehoshaphat  now  proceeded. 
+A  season  of  sore  strait  had  now  come,  and  they  made  their 
+solemn  appeal  to  God.  Israel  was  in  the  right  as  against  their 
+enemies,  who  had  neither  pretext  in  the  past  for  their  attack, 
+nor  yet  justification  for  it  in  the  present.  Nay,  they  had  come 
+against  the  possession  of  God  which  He  had  given  to  His 
+people.  It  was  His  cause ;  they  had  no  might  of  their  own, 
+but  their  eyes  were  upon  the  Lord  (vers.  10-12). 
+
+When  the  Church,  or  individual  members  of  it,  can  so  be- 
+lieve and  so  pray,  deliverance  is  at  hand.  But  yet  another  act 
+of  faith  was  necessary.  Theirs  had  been  the  faith  of  expect- 
+ancy and  of  worship  ;  it  must  now  be  that  of  work.  As  Israel 
+stood  in  prayer  before  Jehovah,  His  Spirit  came  upon  one  ot 
+the  ministering  Levites,  Jahaziel,  a  descendant  of  Mattaniah, 
+perhaps  the  same  as  Nethaniah,  a  son  of  Asaph  (i  Chron. 
+XXV.  2,  12).  The  message  which  he  delivered  from  the 
+Lord  corresponded  to  every  part  of  the  prayer  which  had  been 
+offered.  It  bade  them  dismiss  all  fears — not  because  there 
+was  not  real  danger,  but  because  the  battle  was  Jehovah's. 
+On  the  morrow  were  they  to  go  forth  to  meet  the  enemy. 
+But  "  it  is  not  for  you  [it  is  not  yours  =  ye  need  not]  to  fight 
+
+
+The  Holy  Battle.  81 
+
+in  this  [battle] :  place  yourselves,  stand  still,  and  see  the 
+salvation  of  Jehovah  with  you"  (vers.  15-17).  And  humbly, 
+reverently,  did  king  and  people  bend  before  the  Lord  in 
+the  worship  of  praise  and  believing  expectancy. 
+
+Early  next  morning  they  prepared  to  obey  the  Divine 
+direction.  It  was  to  be  a  battle  such  as  had  never  been 
+witnessed  since  Jericho  had  fallen  at  the  blast  of  the  trumpets 
+of  the  Lord  when  His  Ark  compassed  its  walls.  And  they 
+prepared  for  it  in  such  manner  as  host  going  to  battle  had 
+never  done.  In  the  morning,  as  Judah  marched  out  of  the  gate 
+of  Jerusalem_,  the  king  addressed  to  his  people  only  this  one 
+command  :  to  have  faith — faith  in  their  God;  and  in  the  word 
+sent  by  His  prophets.  Thus  should  they  be  established. 
+Then  "  he  advised  the  people,"  ^  and  with  one  accord  they 
+appointed  for  their  avant-guard  the  sacred  Temple-singers, ^ 
+robed  in  their  "  holy  array,"  ^  who  were  to  chant,  as  if  march- 
+ing in  triumphal  procession,  the  well-known  words  of  worship  : 
+"  Praise  Jehovah,  for  His  mercy  endureth  for  ever "  (comp. 
+2  Chron.  vii.   3,  6). 
+
+If  never  before  an  army  had  so  marched  to  battle,  never,  even 
+in  the  marvellousliistory  of  Israel,  had  such  results  been  experi- 
+enced. Above  Engedi  the  chalk  cliffs  rise  2000  feet  above 
+the  Dead  Sea,  although  even  that  height  is  still  2000  feet  below 
+the  watershed.  We  have  now  reached  the  barren  and  desolate 
+wilderness,  known  as  that  of  Judah,  which  stretches  southward 
+to  the  mountains  of  Hebron,  and  northward  to  Tekoa.  In- 
+numerable w^adys  and  broad  valleys  stretch  between  mountain 
+crests,  often  of  fantastic   shape.     It  is  a  pathless  wilderness, 
+
+^  Gave  them  counsel.  The  expression  indicates  a  preponderance  or  lead 
+on  the  part  of  the  king.  Compare  the  same  expression  in  2  Kings  vi.  8. 
+This,  rather  than  as  in  the  A.  V.,  or  even  the  R.  V.  (ver.  21.) 
+
+^  It  seems  to  me  most  likely  that  these  were  the  ordinary  Levite-singers 
+and  priests,  although  a  difl'erent  inference  has  been  drawn  from  the  absence 
+of  the  article  before  "singers." 
+
+3  The  expression,  2  Chron.  xx.  21,  rendered  "beauty  of  holiness"  in 
+our  A.  v.,  means  "holy  array,"  and  probably  refers  to  the  full  Temple- 
+dress  of  the  priests  and  Levites, 
+
+
+82  Jchoshaphat^  King  of  JudaJi. 
+
+seamed  by  rocky  clefts  and  caves.  There,  just  past  the  cave 
+where  David  had  been  in  hiding  from  Saul,  up  the  cHfif  Hazziz 
+— perhaps  the  modern  El  Husasah — had  the  foe  swarmed, 
+and  then  deployed  through  the  broad  wady  which  leads  to- 
+wards Tekoa.  Here,  "at  the  end  of  the  gully,"  ^  would  Israel 
+descry  them,  see  their  defeat,  yet  not  have  to  do  battle  for  the 
+victory.  And  as  on  that  bright  day  the  host  of  Israel 
+looked  towards  the  ascent  from  Engedi,  they  caught  sight  of 
+the  enemy.  At  that  moment  as  by  a  preconcerted  signal  they 
+began  to  sing  and  to  praise  the  Lord.  Then  a  strange  scene 
+ensued.  It  were  an  entire  misunderstanding  of  what  Scripture 
+designates  as  the  agency  of  God,  to  apply  to  angelic  combatants 
+the  words  :  "  Jehovah  set  liers  in  wait  [ambushments]  against 
+the  children  of  Amrnon,  Moab,  and  Mount  Seir."  For 
+God  Himself  does  that  which  happens  in  His  all-overruling 
+Providence,  even  though  it  come  to  pass  in  the  orderly  suc- 
+cession of  natural  events.  There  was  no  need  of  summoning 
+angel-hosts.  It  is  not  only  quite  conceivable,  but  best  ex- 
+plains the  after-event,  that  a  tribe  of  Edomites,  kindred  but 
+hostile  to  that  which  had  joined  Ammon  and  Moab  in  their 
+raid,  should  have  lain  in  ambush  in  one  of  the  wadys, 
+waiting  till  the  main  body  of  the  combatants  had  passed,  to 
+fall  on  the  rear-guard,  or  probably  on  the  camp  followers, 
+the  women  and  children,  and  the  baggage.  They  would 
+calculate  that  long  before  the  men  in  advance  could 
+turn  upon  them  in  those  narrow  defiles,  they  would  have 
+escaped  beyond  the  reach  of  pursuit.  And  it  is  equally  con- 
+ceivable  that  when  the  attack  was  made  the  main  body  of 
+the  Ammonites  and  Moabites  may  have  regarded  it  as  a  piece 
+of  treachery  preconcerted  between  the  clan  of  Edomites  who 
+were  with  them,  and  the  kindred  clan  that  lay  in  ambush.  All 
+this  is  quite  in  accordance  with  what  might  still  take  place 
+among  the  Bedouins  of  those  regions.  But,  in  such  circum- 
+stances,  the  Ammonites  and  Moabites  would  naturally   turn 
+
+1  A.  V.  :  "  the  end  of  the  brook  "  (ver.  i6).     For  the  scenery  generally 
+comp.  Robinson's  Researches^  Vol.  I.  pp.  486  to  48S,  and  508. 
+
+
+Mutual  Slaughter  of  the  Allies,  83 
+
+to  attack  their  treacherous  allies,  and  thus  the  first  scene  in 
+the  strange  drama  of  this  internecine  battle  would  be  enacted. 
+Mutual  distrust  once  awakened,  and  passions  kindled,  we 
+can  easily  understand  how  "every  one  helped  to  destroy 
+another  " — the  havoc  being  probably  increased  by  the  peculiar 
+character  of  the  country,  which  here  abounds  in  steep  preci- 
+pices and  sudden  rocky  heights  and  descents. 
+
+While  this  strange  battle  was  proceeding,  Judah  had  ad- 
+vanced, to  the  sound  of  hymns  of  praise,  beyond  Tekoa,  far 
+as  the  last  watch-tower,  where  usually  an  outlook  was  kept  over 
+the  wilderness,  so  that  timely  tidings  might  be  brought  of  any 
+sudden  raid  by  the  wild  tribes  of  the  East.  As  ''  they  looked 
+unto  the  multitude,"  which  they  had  erst  descried  in  the 
+dim'  distance,  there  was  "  not  an  escaping,"  no  hasty  flight,  as  in 
+such  circumstances  might  have  been  expected,  and  it  seemed 
+as  if  only  dead  bodies  were  left  strewing  the  ground.  Possibly 
+the  Judaeans  had,  on  reaching  the  height  of  Tekoa,  caught 
+sight  of  the  host,  and  then  lost  it  again  when  descending  into 
+the  wady.^  When,  on  ascending  once  more,  they  stood  at 
+the  watch-tower,  they  would  see  what  formerly  had  been  "a 
+multitude,"  now  only  dead  bodies,  nor  could  they,  from  the 
+conformation  of  the  district,  discern  any  fugidves.  It  now 
+only  remained  for  Judah  to  seize  the  spoil  -  of  the  battle  in 
+which  Jehovah  had  gained  the  victory.  P'or  three  days  the 
+removal  of  the  spoil  continued.  On  the  fourth,  the  host  of 
+Judah  gathered  in  a  valley,  to  the  north-west  of  Tekoa,  which 
+from  the  solemn  thanksgiving  there  made  received  the  name 
+of  "  Berakhah^'^  "  blessing,"  in  the  sense  of  praise  and  thanks- 
+
+^  The  reader  who  will  take  the  trouble  of  examining  the  interesting 
+account  of  the  district  in  'R.ohm?,on''s  Biblical  Researches,  Vol.  I.  pp.  486-508 
+(passim),  will  see  how  our  suggestions  are  borne  out  by  the  description 
+of  the  great  American  traveller. 
+
+-  The  word  "  dead  bodies  "  has  been  supposed  to  be  a  misreading  or 
+mis  writing  for  "raiments."  But  I  see  no  need  for  this  hypothesis,  and 
+would  propose  translating:  "accoutrement  [substance,  all  belonging  to 
+an  army — the  flebrew  word  as  in  Dan.  xi.  13],  dead  bodies  [probably  of 
+animals],  and  precious  vessels." 
+
+
+84  JehosJiaphat,  King  of  Jiidah. 
+
+giving.  It  is  deeply  interesting  to  find  that  after  the  lapse 
+of  so  many  centuries  this  memorial  of  Jehovah's  deliverance 
+and  of  Jehoshaphat's  and  Judah's  solemn  thanksgiving  still  con- 
+tinues. Many  masters  have  since  held  possession  of  the  land : 
+Assyrian,  Roman,  Moslem,  Christian,  and  Turk  :  but  the  old 
+name  of  the  valley  of  blessing  remains  in  the  modern  name 
+Bereiki\t} 
+
+And  from  "  the  valley  of  blessing  "  Jehoshaphat  and  his 
+people  returned,  as  in  procession,  to  the  Temple,  there  again 
+to  praise  the  Lord,  Who  had,  as  ever,  been  faithful  to  His 
+promise.  And  this  gratitude  of  a  believing  people  is  one  of 
+the  most  true  and  beautiful  results  of  the  religious  revival  which 
+Judah  had  experienced.  It  almost  sounds  like  heaven's  antiphon 
+to  Jerusalem's  praise,  when  we  read  that  "  the  terror  of  Elo- 
+him  "  was  upon  all  the  kingdoms  of  the  lands  round  about 
+Judah,  and  that  "his  God"  gave  Jehoshaphat  "rest  round 
+about."  2 
+
+1  See  Robinson,  z^.s.,  pp.  490,  491  ;  Vol.  III.,  p.  275.  It  has  been 
+supposed  by  some  (Thenius,  Hitzig)  that  the  valley  of  Berakhah  was 
+just  outside  the  walls  of  Jerusalem,  being,  indeed,  that  part  of  the  Kidron 
+Valley  known  as  the  Valley  of  Jehoshaphat  (Joel  iii.  2,  12),  where  in  the 
+future  the  judgment  on  the  heathen  enemies  of  God  and  of  His  Israel 
+would  take  place.  But  the  text  does  not  admit  of  this  identification  (see 
+vers.  27,  28).  Accordingly,  most  critics  have  suggested  that  "  the  valley 
+of  Jehorhaphat  "  derived  its  name  from  the  expectation  that  the  future 
+judgment  would  resemble  in  character  the  victory  which  God  had  given  to 
+Jehoshaphat.  But  may  it  not  have  been  that  Jehoshaphat  had  there 
+addressed  to  the  people,  when  going  out  to  battle,  the  words  recorded  in 
+verses  20  and  21,  and  that  this  gave  its  name  to  the  valley? 
+
+^  Zoekler  has  aptly  noted  a  number  of  circumstances  tending  to  confirm 
+the  historical  accuracy  of  this  narrative.  Among  these  he  reckons  (i)  that 
+the  dark  sides  in  Jehoshaphat's  character  and  reign  are  not  withheld.  (2) 
+The  mention  of  definite  names,  such  as  that  of  the  high-priest  Amariah,  and 
+of  Zebadiah,  the  chief  of  the  tribe  of  Judah  (2  Chron.  xix.  ii).  (3)  The 
+detailed  references  to  localities  such  as  to  "the  new  court "  in  the  Temple 
+(xx.  5),  or  to  circumstances,  such  as  the  inspiration  of  the  Levite  Jahaziel 
+(ver.  14).  (4)  That  the  prophet  Joel  must  have  known  and  treated  this 
+account  as  historical  when  he  spoke  of  "  the  valley  of  Jehoshaphat."  (5) 
+The  reference  to  other  historical  documents  (ver.  34).  (6)  Lastly,  we  must 
+here  include  the  evidence  afforded  by  the  so-called  "Moabite  Stone,"  to 
+which  further  reference  will  be  made  in  the  sequel. 
+
+
+CHAPTER      VII. 
+
+Jcho0ha}jhat,    (Jmirth)  'ginq  ot  Jubah,   ^hmah   anb 
+
+(Jeharain)  gotmn,  {£imih  mxb  ^enth)  $1113^0  of  Israel. 
+
+The  Joint  Maritime  Expedition  to  Opiiir—Aiiaziafi's  Reign  and  Illness— Tfie 
+proposed  Inquiry  of  Baal-zebub—The  Divine  l^essage  by  Elijah — At- 
+tempts to  Capture  the  Prophet,  and  their  Result— Elijah  appears  before 
+the  King— Death  of  Ahazlah— Accession  of  Joram—The  Ascent  of  Elijah 
+—Elisha  takes  up  his  Mantle. 
+
+(i  Kings  xxii.  48—2  Kings  ii.  14  ;  a  Chron.  xx.  35-37). 
+
+JEHOSHAPHAT  saw  two  sons  of  Ahab  ascend  the  throne 
+of  Israel.  Of  these  Ahaziah  immediately  succeeded  Ahab. 
+Of  his  brief  reign,  which  lasted  two  years,  only  two  events  are 
+known  :  ttie  first  connected  probably  with  the  beginning,  the 
+second  with  the  close  of  it.  We  judge  that  the  attempted 
+maritime  expedition  in  conjunction  with  Jehoshaphat  took 
+place  at  the  beginning  of  Ahaziah's  reign — first,  because  the 
+fitting  out  and  the  destruction  of  that  fleet,  and  then  the  pro- 
+posal for  another  expedition  must  have  occupied  two  summers, 
+during  which  alone  such  undertakings  could  be  attempted ; 
+secondly,  because  it  seems  unlikely  that  Jehoshaphat  would 
+have  entered  into  any  alliance  with  an  Ahaziah,  except  at  the 
+beginning  of  his  reign.  There  was  that  connected  with  the  death 
+of  Ahab  which  might  readily  influence  a  weak  character  like 
+Jehoshaphat  to  think  with  hopefulness  of  the  son  of  his  old 
+ally,  since  his  accession  had  been  marked  by  such  striking  judg- 
+meiits.  Even  the  circumstance  that  Jezebel  no  longer  reigned 
+might  seem  promising  of  good.  And,  in  this  respect,  it  is 
+significant  that,  with  the  death  of  Ahab,  the  ministry  of  Elijah 
+passed  into  a  more  public  stage,  and  was  followed  by  the  even 
+more  prominent  activity  of  Elisha. 
+
+
+S6  Ahaziah,  King  of  Israel. 
+
+We  remember  the  notice  (i  Kings  xxii.  47)  that  "there  was 
+then  no  king  in  Edom.^'  However  we  may  account  for  this 
+state  of  matters,  it  was  favourable  for  the  resumption  of  that 
+maritime  trade  which  had  brought  such  wealth  to  Israel 
+in  the  reign  of  King  Solomon  (i  Kings  ix.  26-28).  And 
+there  were  not  a  few  things  in  the  time  of  Jehoshaphat  that 
+might  recall  to  a  Jud^ean  the  early  part  of  Solomon's  reign. 
+Perhaps  such  thoughts  also  contributed  to  the  idea  of  a  joint 
+expedition  on  the  part  of  Judah  and  Israel.  But  it  was  a 
+mode  of  re-union  as  crude  and  ill  conceived  as  that  which  had 
+led  to  the  alliance  by  marriage  between  the  tw^o  dynasties,  the 
+state  visit  of  Jehoshaphat  to  Ahab,  and  its  political  outcome 
+in  the  expedition  against  Ramoth-Gilead.  The  story  is  briefly 
+told  in  the  book  of  Kings  (i  Kings  xxii.  48,  49),  and  one  part 
+of  it  more  circumstantially  in  the  Second  Book  of  Chronicles 
+(xx.  35-37).  In  the  Book  of  Kings  two  expeditions  are  spoken 
+of — the  one  actually  undertaken,  the  other  only  proposed. 
+Accordingly,  only  the  first  of  these  is  recorded  in  Chronicles. 
+It  consisted  of  so-called  Tarshish  ships,^  which  were  to  fetch 
+
+1  Tarshish  is,  no  doubt,  the  ancient  Tartessus  on  the  western  coast  of 
+Spain,  between  the  two  mouths  of  the  Guadalquivir.  Its  situation  is  indi- 
+cated in  Gen.  x.  4,  comp.  Psa.  Ixxii.  10;  its  commerce  in  Ezek.  xxxviii.  13  ; 
+its  export  of  silver,  iron,  tin,  and  lead  in  Jer.  x,  9;  Ezelc.  xxvii.  12,  25. 
+The  Palestinian  harbour  for  Tarshish  was  Joppa  (Jon.  i.  3  ;  iv.  2).  All  this 
+shows  that  the  expedition  from  Ezion-Geber  could  not  have  been  to  Tarshish. 
+But  it  was  in  "Tarshish  ships," — a  name  which  also  otherwise  occurs  for 
+a  class  of  large  merchantmen  (like  our  "  East  Indiaman,"  or  "  ocean  liner"), 
+see  Isa.  ii.  16  ;  xxiii.  i,  14  ;  Ix.  9.  We  can  only  suggest  that  the  origin 
+of  the  name  "Tarshish  ships"  for  these  large  vessels  may  have  been  that 
+the  first  expedition  to  Ophir — indeed,  the  first  maritime  expedition  of  the 
+Jews — was  undertaken  under  the  direction  of  Hiram,  king  of  Tyre.  But 
+we  know  both  from  Scripture  (comp.  also  Isa.  xxiii.  i,  6,  10)  and  from 
+classical  writers  that  the  trade  to  Tarshish  was  wholly  in  the  hands  of  Tyre. 
+Hiram  would  probably  construct  for  the  expedition  to  Ophir  the  same 
+class  of  ships  as  those  that  traded  to  Tarshish — "Tarshish  ships;" — and 
+from  and  after  that  solitary  expedition  in  the  time  of  Solomon,  all  large 
+merchant  vessels  may  have  borne  in  Judaea  that  name.  The  writer  of  the 
+Book  of  Chronicles — or  else  some  copyist — evidently  knew  nothing  of  a 
+Jewish  or  Phoenician  trade  to  Ophir,  but  very  much  of  that  to  Tarshish, 
+
+
+The  Expedition  to  OpJiir.  8y 
+
+gold  from  Opliir,  setting  sail  from  the  harbour  of  Ezion-Geber, 
+on  the  Red  Sea,  a  port  probably  on  the  coast  of  South-eastern 
+Arabia,  although  the  exact  locality  is  in  dispute.^  The 
+ill-success  of  such  an  alliance  with  the  wicked  son  of  Ahab 
+was  announced  (2  Chron.  xx.  37)  by  Eliezer,  the  son  of 
+Dodavah — a  prophet  not  otherwise  mentioned.  His  prediction 
+was  verified  when  the  allied  fleet  either  suffered  shipwreck 
+or  was  destroyed  in  a  storm.  Jehoshaphat  took  the  warning. 
+When  Ahaziah  invited  him  to  undertake  a  second  expedition, 
+in  which  (as  seems  implied  in  i  Kings  xxii,  49)  Israelitish 
+mariners  were  to  take  a  leading  part — perhaps  because  the 
+former  failure  was  ascribed  in  the  north  to  the  unskilfulness 
+of  the  Judaeans — the  proposal  was  declined.^ 
+
+The  brief  and  inglorious  reign  of  Ahaziah^  the  son  and 
+successor  of  Ahab,  is  said  to  have  begun  in  the  seventeenth 
+year  of  Jehoshaphat,  king  of  Judah,  and  to  have  lasted  two 
+years  (i  Kings  xxii.  51).  There  is  apparently  here  a  slight 
+chronological  difficulty  (comp.  2  Kings  iii.  i),  which  is,  how- 
+ever, explained  by  the  circumstance  that,  according  to  a  well- 
+known  Jewish  principle,  the  years  of  reign  were  reckoned  from 
+the  month  Nisan — the  Passover-month,  with  which  the  eccle- 
+siastical year  began — so  that  a  reign  which  extended  beyond 
+that  month,  for  however  brief  a  period,  would  be  computed  as 
+one  of  two  years.  Thus  we  conclude  that  the  reign  of  Ahaziah  in 
+reality  lasted  little  more  than  one  year.  The  one  great  political 
+event  of  that  period  is  very  briefly  indicated,  although  fraught 
+with  grave  consequences.  From  the  opening  words  of  2  Kings 
+— which,  as   a  book,   should   not  have  been  separated   from 
+
+
+and  so  finding  in  the  source  from  which  he  drew  a  reference  to  Tarshish 
+ships  and  to  Ophir,  he  omitted  the  latter,  and  spoke  of  ships  going  to 
+Tarshish. 
+
+1  The  other  sites  suggested  are  a  port  in  India,  or  else  one  on  the  eastern 
+coast  of  Africa. 
+
+2  A  candid  examination  of  2  Chron.  xx.  35-37  and  of  i  Kings  xxii.  49 
+conveys  to  my  mind  this  conclusion.  The  two  passages  are  supplementary, 
+and  not  contradictory  of  each  other. 
+
+
+8S  Ahaziah,  King  of  Israel. 
+
+I  Kings  ^ — we  learn  that  the  Moabites,  who,  since  the  time  of 
+David,  had  been  tributary  (2  Sam.  viii.  2),  rebelled  against 
+Israel  after  the  death  of  Ahab.  It  was  probably  due  to  the 
+ill-health  of  Ahaziah  that  an  attempt  was  not  made  to  reduce 
+them  to  obedience.  For  the  king  of  Israel  had  fallen  through 
+'^  the  lattice,"  or  between  the  grating,  probably  that  which  pro- 
+tected the  opening  of  the  window,  in  the  upper  chamber. 2  In 
+any  case  it  seems  unlikely  that  the  fall  was  into  the  court  be- 
+neath, but  probably  on  to  the  covered  gallery  which  ran  round 
+the  court,  like  our  modern  verandahs.  The  consequences  of 
+the  fall  were  most  serious,  although  not  immediately  fatal. 
+We  cannot  fail  to  recognize  the  paramount  influence  of  the 
+queen-mother  Jezebel,  when  we  find  Ahaziah  applying  to  the 
+oracle  of  Baal-zebub  in  Ekron  to  know  whether  he  would 
+recover  of  his  disease.  Baal,  "  lord,"  was  the  common  name 
+given  by  the  Canaanites,  the  Phoenicians,  the  Syrians  (Ara- 
+maeans), and  Assyrians  to  their  supreme  deity.  Markedly  it  is 
+never  applied  to  God  in  the  Old  Testament,  or  by  believing 
+Israelites.  Among  the  Canaanites  (in  Palestine)  and  the 
+Phoenicians  the  name  was  pronounced  Ba'-al  (originally  Ba'l) ;  ^ 
+in  Aramsean  it  was  Be'- el)  in  Babylono- Assyrian  Bel  (comp. 
+Isa.  xlvi.  I  ;  Jer.  1.  2).  The  Baal-zebub,  worshipped  in 
+Ekron'^ — the  modern  Akir^— and  the  most  north-eastern  of 
+the  five  cities  of  the  Philistines,  E.N.E.  from  Jerusalem,  was 
+
+1  This  was  first  done  in  the  (Greek)  rendering  of  the  LXX.  (there  3 
+and  4  Kings). 
+
+2  The  Jewish  interpreters  think  of  a  grating  in  the  floor  by  which  light 
+was  admitted  into  the  apartments  beneath,  or  else  of  a  winding  stair  which 
+he  had  fallen  down  (see  Mikraoth  gedol.  on  the  passage). 
+
+^  Hence  the  names  Hanniba'l,  "the  favour  of  Baal,"  Esdruba'l,  "the 
+help  of  Baal,"  and  others. 
+
+*  The  reader  who  wishes  to  study  the  history  of  Ekron  is  directed  to  the 
+following  passages,  which  refer  either  to  its  geographical  situation,  its 
+history,  or  its  future  :  Josh.  xiii.  3  ;  xv.  ii,  45,  46  ;  xix.  43  ;  Judg.  i.  18  ; 
+I  Sam.  V.  10  ;  vi.  1-18  ;  vii.  14  ;  xvii.  52  ;  Jer.  xxv.  20  ;  Amos  i,  8  ;  Zeph. 
+ii.  4  ;  but  especially  Zech.  ix.  5,  7.     For  its  later  history  see  I  Mace.  x.  89. 
+
+*  Seethe  description  in  Robinson's  Palestine^  I.,  pp.  227,  228. 
+
+
+Inquiry  of  Baal-zebitb.  89 
+
+the  Fly  God,^  who  was  supposed  to  send  or  to  avert  the 
+plague  of  flies.  2  Like  the  great  Apollos,  who  similarly  sent  and 
+removed  diseases,  he  was  also  consulted  as  an  oracle. 
+
+We  should  be  greatly  mistaken  if  we  were  to  regard  the  pro- 
+posed inquiry  on  the  part  of  Ahaziah  as  only  a  personal,  or 
+even  as  an  ordinary  national  sin.  The  whole  course  of  this 
+history  has  taught  us  that  the  reign  of  Ahab  formed  a  decisive 
+epoch  in  the  development  of  Israel.  The  period  between  the 
+murder  of  Nadab,  the  son  of  Jeroboam,  and  the  accession  of 
+Omri,  the  father  of  Ahab,  was  merely  intermediate  and  prepara- 
+tory, the  throne  being  occupied  by  a  succession  of  adventurers, 
+whose  rule  was  only  transitory.  With  Omri,  or  rather  with  his 
+son  Ahab,  a  new  period  of  firm  and  stable  government  began, 
+and  politically  it  was  characterised  by  reconciliation  and  alliance 
+with  the  neighbouring  kingdom  of  Judah,  and  with  such  foreign 
+enterprises  as  have  been  noticed  in  the  course  of  this  narrative. 
+But  even  more  important  was  the  religious  crisis  which  marked 
+the  reign  of  Ahab.  Although  Jeroboam  had  separated  himself 
+and  his  people  from  the  Divinely  ordered  service  of  Jehovah, 
+as  practised  in  Jerusalem,  he  had,  at  least  in  profession,  not 
+renounced  the  national  religion,  but  only  worshipped  the  God 
+of  Israel  under  the  symbol  of  the  golden  calf,  and  in  places 
+where  worship  was  not  lawful.  But  Ahab  had  introduced  the 
+service  of  Baal  and  of  Astarte  as  the  religion  of  the  State. 
+True,  this  progress  in  apostacy  was  in  reality  only  the  logical 
+sequence  of  the  sin  of  Jeroboam,  and  hence  is  frequently 
+mentioned  in  connection  with  it  in  the  sacred  narrative.  Never- 
+theless, the  difference  between  the  two  is  marked,  and  with 
+Ahab  began  that  apostacy  which  led  to  the  final  destruction  of 
+the  northern  kingdom,  and  to  the  trackless  dispersion  of  the 
+ten  tribes.     In  this  light  we  can  understand  such  exceptional 
+
+^  It  is  a  mistake  to  identify  Baal-zebub  witli  the  Beel-zcbul  (for  this  is 
+the  correct  reading)  of  Matt.  x.  25.  For  the  explanation  of  that  term  see 
+Life  and  Times  of  Jesus  the  Messiah,  Vol.  I.,  p.  648. 
+
+'^  The  same  deity  was  worshipped  by  the  Greeks  as  Zeus  apomyios,  and 
+in  Rome  as  Myiagros. 
+
+H 
+
+
+90  Ahamah,  King  of  Isj'ael. 
+
+mission  and  ministry  as  those  of  Elijah  and  Elisha,  such  a 
+scene  as  the  call  to  decision  on  Mount  Carmel,  and  such  an 
+event  as  that  about  to  be  related. 
+
+Viewed  in  this  manner,  the  royal  embassy  sent  to  Ekron  to 
+consult  "the  fly  god,"  was  really  a  challenge  to  Jehovah,  whose 
+prophet  Elijah  was  in  the  land,  and  as  such  it  must  bring  sharpest 
+punishment  to  all  involved  in  it.  It  was  fitting,  so  to  speak, 
+that,  in  contrast  to  the  messengers  of  the  earthly  king, 
+Jehovah  should  commission  His  angel,^  and  through  him  bid 
+His  prophet  defeat  the  object  of  Ahaziah's  mission.  As 
+directed,  Elijah  went  to  meet  the  king's  messengers.  His 
+first  words  exposed — not  for  the  sake  of  Ahaziah,  but  for  that 
+of  Israel — the  real  character  of  the  act.  Was  it  because  there 
+was  no  God  in  Israel  that  they  went  to  inquire  of  the  "  fly 
+god "  of  Ekron  ?  But  the  authority  of  Jehovah  would  be 
+vindicated.  Guilty  messengers  of  an  apostate  king,  they  were 
+to  bring  back  to  him  Jehovah's  sentence  of  death.  Whether 
+or  not  they  recognized  the  stern  prophet  of  Jehovah,  the  im- 
+pression which  his  sudden,  startling  appearance  and  his  words 
+made  on  them  was  such  that  they  at  once  returned  to  Samaria, 
+and  bore  to  the  astonished  king  the  message  they  had  received. 
+
+It  is  as  difficult  to  believe  that  the  king  did  not  guess,  as  that 
+his  messengers  had  not  recognized  him  who  had  spoken  such 
+words.  The  man  with  the  (black)  hairy  garment,  girt  about 
+with  a  leathern  girdle,  must  have  been  a  figure  familiar  to  the 
+memory,  or  at  least  to  the  imagination,  of  every  one  in  Israel, 
+although  it  may  not  have  suited  these  messengers  —  true 
+Orientals  in  this  also — to  name  him  to  the  king,  just  as  by 
+slightly  altering  the  words  of  the  prophet  ^  they  now  sought  to 
+cast  the  whole  responsibility  of  the  mission  on  Ahaziah.  But 
+when  in  answer  to  the  king's  further  inquiry,^  they  gave  him  the 
+
+^  The  word  "  messenger  "  in  Hebrew  is  the  same  as  that  for  "  angel.  " 
+'  "Thou  sendest  to  inquire"  (ver.   6),  instead  of  Elijah's  *' ye  go   to 
+
+inquire  "  (ver.   3). 
+2  Literally  "the  judgment."     If  I  mistake  not,  there  is  in  our  northern 
+
+dialect  also  such  an  expression  as  "the  right"  of  a  man — in  the  sense  of 
+
+no;  only  his  bearing,  but  that  which  is  behind  it. 
+
+
+Elijah  and  the  Captains  of  Fifty.  91 
+
+well-known  description  of  the  Tishbite,  Ahaziah  at  once  re- 
+cognized the  prophet,  and  prepared  such  measures  as  in  his 
+short-sightedness  he  supposed  would  meet  what  he  regarded 
+as  the  challenge  of  Elijah,  or  as  would  at  least  enable  him 
+to  punish  the  daring  prophet.  We  repeat,  it  was  to  be  a 
+contest,  and  that  a  public  one,  between  the  power  of  Israel's 
+king  and   the   might   of  Jehovah. 
+
+The  first  measure  of  the  king  was  to  send  to  Elijah  "a 
+captain  of  fifty  with  his  fifty."  There  cannot  be  any  reason- 
+able doubt  that  this  was  with  hostile  intent.  This  appears  not 
+only  from  the  words  of  the  angel  in  verse  15,  but  from  the 
+simple  facts  of  the  case.  For  what  other  reason  could  Ahaziah 
+have  sent  a  military  detachment  of  fifty  under  a  captain,  if 
+not  either  to  defeat  some  hostile  force  and  constrain  obedience, 
+or  else  to  execute  some  hostile  act  ?  The  latter  is  indeed  the 
+most  probable  view^,  and  it  seems  implied  in  the  reassuring 
+words  which  the  angel  afterwards  spoke  to  Elijah  (v.  15). 
+
+The  miUtary  expedition  had  no  difficulty  in  finding  the 
+prophet.  He  neither  boastfully  challenged,  nor  yet  did  he 
+fearfully  shrink  from  the  approach  of  the  armed  men,  but 
+awaited  them  in  his  well-known  place  of  abode  on  Mount 
+Carmel.  There  is  in  one  sense  an  almost  ludicrous,  and  yet 
+in  another  a  most  majestic  contrast  between  the  fifty  soldiers 
+and  their  captain,  and  the  one  unarmed  man  whom  they  had 
+come  to  capture.  Presently  this  contrast  was,  so  to  speak^  re- 
+versed when,  in  answer  to  the  royal  command  to  Elijah,  as 
+delivered  by  the  captain,  the  prophet  appealed  to  his  King, 
+and  thus  clearly  stated  the  terms  of  the  challenge  between  the 
+two,  whose  commission  the  captain  and  he  respectively  bore. 
+"  And  if  a  man  of  God  I,^  let  fire  come  down  from  heaven." 
+
+
+^  The  original  has  here  some  noteworthy  peculiarities.  Fi»st :  the  captain 
+addresses  Elijah  as  "man  of  the  Elohim  "  (with  the  definite  article) — that 
+is,  of  the  national  Deity  of  Israel— not  Jehovah.  Secondly  :  Elijah  in 
+taking  up  the  challenge  does  not  use  the  term  Jehovah— which  would  have 
+been  unfitting  in  this  connection,  but  in  repeating  the  words  of  the  captain 
+he  omits  the  definite  article  before  Elohim  :  "And  if  man  of  Elohim  I." 
+
+
+92  Ahaziah,  King  of  Israel. 
+
+Terrible  as  this  answer  was,  we  can  perceive  its  suitableness, 
+nay,  its  necessity,  since  it  was  to  decide,  and  that  publicly  and 
+by  way  of  judgment  (and  no  other  decision  would  have  been 
+suitable  in  a  contest  between  man  and  God),  whose  was  the 
+power  and  the  kingdom — and  this  at  the  great  critical  epoch 
+of  Israel's  history.  It  is  not  necessary  here  to  emphasize  the 
+difference  between  the  Old  and  the  New  Testament — although 
+rather  in  mode  of  manifestation  than  in  substance — as  we 
+recall  the  warning  words  of  our  Lord,  when  two  of  His 
+disciples  would  have  commanded  fire  from  heaven  to  consume 
+those  Samaritans  who  would  not  receive  them  (Luke  ix.  54). 
+The  two  cases  are  not  in  any  sense  parallel,  as  our  previous 
+remarks  must  have  shown ;  nor  can  we  suppose  the  possibility 
+of  any  parallel  case  in  a  dispensation  where  "  the  kingdom  of 
+God  cometh  not  with  observation"  (Luke  xvii.  20),  ^' but  in 
+demonstration  of  the  Spirit  and  of  power"  (i  Cor.  ii.  4). 
+
+At  the  same  time  we  must  not  overlook  that  the  "  captain 
+and  his  fifty  "^  were  not  merely  unsympathetic  instruments  to 
+carry  out  their  master's  behest,  but,  as  the  language  seems  to 
+imply,  shared  his  spirit.  Perhaps  we  may  conjecture  that  if 
+Elijah  had  come  with  them,  he  would,  if  unyielding,  never 
+have  reached  Samaria  alive  (comp.  ver.  15).  This  hostile 
+and  at  the  same  time  contemptuous  spirit  appears  still  more 
+clearly  when,  after  the  destruction  of  the  first  captain  and  his 
+fifty  by  fire  from  heaven,  not  only  a  second  similar  expedition 
+was  despatched,  but  with  language  even  more  imperious : 
+"  Quickly  come  down  !"  It  could  not  be  otherwise  than  that 
+the  same  fate  would  overtake  the  second  as  the  first  expedi- 
+tion. The  significance,  we  had  almost  said  the  inward 
+necessity,  of  the  judgment  consisted  in  this,  that  it  was  a 
+public  manifestation  of  Jehovah  as  the  living  and  true  God, 
+even  as  the  king's  had  been  a  public  denial  thereof. 
+
+It  seems  not  easy  to  understand  how  Ahaziah  despatched  a 
+
+1  According  to  ancient  arrangement  the  host  was  divided  into  companies 
+of  1000,  of  100,  and  of  50,  each  with  its  leader  (comp.  Numb.  xxxi.  14, 
+48 ;  I  Sam.  viii.  12). 
+
+
+The  Third  Captain.  93 
+
+third — nay,  even  how  he  had  sent  a  second  company. ^  Some 
+have  seen  in  it  the  petulance  of  a  sick  man,  or  else  of  an 
+Eastern  despot,  who  would  not  brook  being  thwarted.  Probably 
+in  some  manner  he  imputed  the  failure  to  the  bearing  of  the 
+captains.  And  on  the  third  occasion,  the  tone  of  the  com- 
+mander of  the  expedition  was  certainly  different  from  that 
+of  his  predecessors,  although  not  in  the  direction  which  the 
+king  would  have  wished.  It  would  almost  seem  as  if  the  third 
+captain  had  gone  up  alone — without  his  fifty  (v,  13).  In 
+contrast  to  the  imperious  language  of  the  other  two,  he  ap- 
+proached the  representative  of  God  with  lowliest  gesture  of  a 
+suppliant,^  while  his  words  of  entreaty  that  his  life  and  that 
+of  his  men  should  be  spared^  indicated  that,  so  far  from 
+attempting  a  conflict,  he  fully  owned  the  power  of  Jehovah. 
+Accordingly  the  prophet  was  directed  to  go  with  him,  as  he 
+had  nothing  to  fear  from  him.'^  Arrived  in  the  presence  of 
+the  king,  Elijah  neither  softened  nor  retracted  anything  in 
+his  former  message.  Ahaziah  had  appealed  to  the  "  fly-god  " 
+of  Ekron,  and  he  would  experience^  and  all  Israel  would  learn, 
+the  vanity  and  folly  of  such  trust.  "So  he  died  according  to 
+the  word  of  Jehovah  which  Elijah  had  spoken." 
+
+Ahaziah  did  not  leave  a  son.  He  was  succeeded  by  his 
+brother  Jehoram,^  or  Joram,  as  we  shall  prefer  to  call  him,  to 
+distinguish  him  from  the  king  of  Judah  of  the   same  name. 
+
+^  It  is  surely  a  foolish  as  well  as  an  idle  question,  how  the  king  had 
+learned  the  destruction  of  these  companies.  Is  it  supposed  that  Elijah 
+was  quite  alone  on  Mount  Carmel,  without  any  disciples  or  followers — or 
+thai  such  expeditions  would  not  attract  sufficient  notice  to  lead  any  one  to 
+inquire  into  the  fate  of  those  who  went  to  Carmel,  but  never  returned? 
+
+2  Canon  Rawlinson  remarks  on  the  words,  "  fell  on  his  knees  :  "  "  Not 
+as  a  worshipper,  but  as  a  suppliant."    {Speaker's  Commentary,  ad  loc.) 
+
+^  Canon  Rawlinson  (z/.j.)  aptly  remarks  that  the  phrase:  "  Let  my  life 
+...  be  precious,"  "  is  exactly  the  converse  of  our  common  expression,  '  to 
+hold  life  cheap.'  " 
+
+^  The  reference  here  seems  to  the  captain,  not  to  King  Ahaziah. 
+
+^  The  expression  (i.  17)  :  "  in  the  second  year  of  Jehoram  "  marks  some 
+corruption  in  the  text,  which  we  have  not  now  the  means  of  clearing  up. 
+
+
+94  Elijah  and  Elisha. 
+
+Before  entering  on  the  history  of  his  reign  we  must  consider, 
+however  briefly,  the  history  of  Elijah  and  of  Elisha,  which  is  so 
+closely  intertwined  with  that  of  Israel.^  The  record  opens 
+with  the  narrative  of  Elijah's  translation — and  this  not  merely 
+as  introductory  to  Elisha's  ministry,  but  as  forming,  especially 
+at  that  crisis,  an  integral  part  of  such  a  "  prophetic  "  history  of 
+Israel  as  that  before  us.  The  circumstances  attending  the 
+removal  of  Elijah  are  as  unique  as  those  connected  with  the 
+first  appearance  and  mission  of  the  prophet.  We  mark  in 
+both  the  same  suddenness,  the  same  miraculousness,  the  same 
+symbolic  meaning.  Evidently  the  event  was  intended  to  stand 
+forth  in  the  sky  of  Israel  as  a  fiery  sign  not  only  for  that 
+period,  but  for  all  that  were  to  follow.  And  that  this  history 
+was  so  understood  of  old,  appears  even  from  this  opening 
+sentence  in  what  we  cannot  help  regarding  as  a  very  un- 
+spiritual,  or  at  least  inadequate,  sketch  of  Elijah's  ministry  in 
+the  apocryphal  book  of  Jesus  the  Son  of  Sirach  (Ecclus.  xlviii. 
+i) :  "Then  stood  up  Elias  the  prophet  as  fire,  and  his  word 
+burned  like  a  lamp."  But  while  we  feel  that  the  circumstances 
+attending  his  translation  were  in  strict  accordance  with  the 
+symbolical  aspect  of  all  that  is  recorded  in  Scripture  of  his  life 
+and  mission,  we  must  beware  of  regarding  these  circumstances 
+as  representing  merely  symbols  without  outward  reality  in 
+historic  fact.     Here  the  narrative  will  best  speak  for  itself. 
+
+
+The  same  corruption— or  rather  probably  the  attempt  of  the  copyist  to 
+remove  it — appears  in  the  chronological  notice  of  i  Kings  xxii.  51,  as 
+compared  with  2  Kings  viii.  16,  It  has  been  sought  to  remove  the  difficulty 
+by  assuming  a  coregency  of  either  five  or  two  years  of  Jehoram,  king  of 
+Judah,  with  his  father  Jehoshaphat,  and  this  suggestion  has  l)een  indicated 
+in  the  chronological  table  appended  to  Vol.  V.  of  this  History.  But  there 
+really  is  no  evidence  of  such  coregency,  and  much  against  the  assumption 
+of  it — while  it  would  still  leave  some  difficulties  unremoved.  Under 
+these  circumstances  it  is  critically  more  honest  and  better  to  regard  these 
+notices  as  the  outcome  and  sequence  of  some  corruption  in  the  text. 
+
+^  Their  history  may  be  the  more  briefly  treated  in  this  volume,  as  a 
+special  book  on  "  Elisha  the  Prophet,"  by  the  present  writer,  has  been 
+published  by  the  Religious  Tract  Society. 
+
+
+The  Translation  of  Elijah.  95 
+
+The  rule  of  Ahaziah  had  closed  with  the  judgment  of  the 
+Lord  pronounced  through  Elijah,  and  another  reign  not  less 
+wicked — that  of  Joram  ^ — had  begun  when  the  summons  to 
+glory  came  to  the  prophet  of  fire.  This  latter  was  known,  not 
+only  to  Elijah  himself,  and  to  Elisha,  but  even  to  "  the  sons  of 
+the  prophets."  We  do  not  suppose  that  Elisha,  or  still  less 
+"the  sons  of  the  prophets,"  knew  that  '^Jehovah  would  cause 
+Elijah  to  ascend  in  a  storm-wind  to  heaven  " — nay,  perhaps 
+Elijah  himself  may  not  have  been  aware  of  the  special  cir- 
+cumstances that  would  attend  his  removal.  But  the  text 
+(vers.  3,  5,  9)  clearly  shows  that  the  immediate  departure  of 
+Elijah  was  expected,  while  the  language  also  implies  that  some 
+extraordinary  phenomenon  was  to  be  connected  with  it.  At 
+the  same  time  we  are  not  warranted  to  infer,  either  that  there 
+had  been  a  special  Divine  revelation  to  inform  all  of  the  im- 
+pending removal  of  Elijah,  nor,  on  the  other  hand,  that  Elijah 
+had  gone  on  that  day  to  each  of  the]  places  where  "  the  sons 
+of  the  prophets"  dwelt  in  common,  in  order  to  inform  and 
+prepare  them  for  what  was  to  happen. ^ 
+
+As  Holy  Scripture  tells  it,  the  day  began  by  Elijah  and 
+Elisha  leaving  Gilgal — not  the  place  of  that  name  between  the 
+Jordan  and  Jericho,  so  sacred  in  Jewish  history  (Josh.  iv.  19  ; 
+v.  10),  but  another  previously  referred  to  (Deut.  xi.  30)  as  the 
+great  trysting-place  for  the  final  consecration  of  the  tribes 
+after  their  entrance  into  the  land  of  promise.  We  remember 
+that  Saul  had  gathered  Israel  there  before  the  great  defeat  of 
+the  Philistines,  when  by  his  rash  presumption  the  king  of 
+Israel  had  shown  his  moral  unfitness  for  the  kingdom  (i  Sam. 
+
+^  Probably  it  was  in  the  beginning  of  the  reign  of  Joram.  We  repeat 
+that  we  prefer  calling  him  so  for  distinction  from  the  contemporary  king 
+of  Judah  of  the  same  name.  The  two  names  Joram  and  Jehoram  are 
+interchangeably  used.  In  2  Kings  i.  17,  and  2  Chron.  xxii.  6,  alike  the 
+kings  of  Israel  and  of  Judah  are  called  y^/^i^niw  ;  in  2  Kings  ix.  15,  17, 
+21-24  (in  the  Hebrew  text),  the  king  of  Israel  is  called  Jehoram  ;  in 
+2  Kings  viii.  21,  23,  24  the  king  of  Judah  is  called /oram;  while  on  com- 
+paring 2  Kings  viii.  16  with  29  we  find  that  the  two  names  are  inverted. 
+
+2  Obvious  reasons  against  either  of  these  views  will  occur  to  every 
+thoughtful  reader. 
+
+
+96  Elijah  and  Elisha. 
+
+xiii.  12-15).^  The  town  lay  in  the  mountains  to  the  south-west 
+of  Shiloh,  within  the  territory  of  Ephraira.  The  site  is  now 
+occupied  by  the  modern  village  Jiljilieh.  A  walk  of  eight  or 
+nine  miles  due  south  would  bring  them  "  down  "  to  the  lower- 
+lying  Bethel,  whither,  as  Elijah  said,  God  had  sent  him.  Alike 
+Gilgal  and  Bethel  were  seats  of  the  sons  of  the  prophets,  and 
+the  two  are  also  conjoined  as  centres  of  idolatry  in  prophetic 
+denunciation  (Hos.  iv.  15;  Amos  iv.  4;  v.  5).  Perhaps  on 
+that  very  ground  the  two  were  chosen  for  the  residence  of  the 
+prophets.  The  motive  which  induced  Elijah  to  ask  Elisha 
+to  leave  him  has  been  variously  explained.  We  cannot 
+persuade  ourselves  that  it  was  from  humility,  or  else  because 
+he  doubted  whether  the  company  of  Elisha  was  in  accordance 
+with  the  will  of  God — since  in  either  case  he  would  not 
+have  yielded  to  the  mere  importunity  of  his  disciple.  As  in 
+analogous  cases,  we  regard  it  rather  (Ruth  i.  8,  11,  12  ;  Luke 
+ix.  57-62  ;  John  xxi.  15-17),  as  a  means  of  testing  fidelity. 
+There  are  occasions  when  all  seems  to  indicate  that  modest 
+and  obedient  retirement  from  the  scene  of  prominent  action 
+and  witness,  perhaps  even  from  the  dangers  that  may  be  con- 
+nected with  it,  is  our  duty.  But  he  who  would  do  work  for  the 
+Lord  must  not  stand  afar  off,  but  be  determined  and  bold  in 
+taking  his  place,  nor  must  he  be  deterred  from  abiding  at  his 
+post  by  what  may  seem  cross-Providences. 
+
+Again,  we  cannot  help  feeling  that  the  visit  of  Elijah  to  the 
+schools  of  the  prophets  at  Gilgal,  Bethel,  and  Jericho,  must 
+have  been  intended  as  a  test  to  them ;  while  at  the  same  time 
+it  was  somehow  connected  with  his  approaching  departure. 
+This  the  sons  of  the  prophets  evidently  perceived,  in  what 
+manner  we  know  not.  But  any  formal  leave-taking  would  seem 
+entirely  incongruous  with  Elijah's  whole  bearing — especially 
+on  that  day ;  and  it  is  inconsistent  with  the  question 
+to  Elisha  :  "  Knowest  thou  that  Jehovah  will  take  away  thy 
+master  from  thy  head  to-day?"  The  word  ''to-day"  may, 
+indeed,  be  taken  in  a  more  general  sense,  as  equivalent  to  "at 
+
+^  Some  have,  however,  localised  this  scene  in  the  Gilgal  near  Jericho. 
+
+
+TJie  Smiting  of  the    Waters.  97 
+
+this  time,"i  but  even  so  the  question  would  have  had  no  meaning 
+if  Elijah  had  come  to  say  "  farewell."  At  each  of  these  places, 
+when  Elijah  and  Elisha  left  it  in  company — in  Gilgal,  Bethel, 
+and  Jericho — the  testing  suggestion  that  Elisha  should  tarry 
+behind,  was  repeated  ;  on  each  occasion  it  was  answered  by 
+the  determined  assertion  that  he  would  not  leave  his  master. 
+On  each  occasion  also  Elisha  was  met  by  the  same  question  of 
+those  whose  morbid  curiosity,  rather  than  intelligent  interest, 
+had  been  stirred,  and  on  each  he  answered  ^  in  manner  to  show 
+how  little  inward  sympathy  there  was  between  him  and  those 
+who  would  have  intruded  themselves  into  the  sanctuary  of  his 
+soul.  At  last  fifty  of  their  number  followed  to  view  afar  off — 
+not  to  see  how  the  two  would  cross  the  Jordan,  but  to  observe 
+what  should  happen.  It  need  scarcely  be  added  that,  as  in 
+all  similar  attempts  to  see  the  Divine,  they  could  not  succeed 
+in  their  purpose. 
+
+And  now  the  two  had  gone  down  the  bank  of  the  Jordan, 
+and  stood  by  the  edge  of  its  waters.  Elijah  took  off  his  loose 
+upper  garment,  the  symbol  of  his  prophetic  office,  and  wrapping 
+it  together  as  if  to  make  it  a  staff  (com p.  Ex.  xiv.  16),  smote 
+with  it  the  waters.  And  lo,  as  when  the  Ark  of  God  had  pre- 
+ceded Israel  (Josh.  iv.  23),  the  waters  divided,  and  they  passed 
+over  dry  shod.  Surely  there  could  not  have  been  more  apt 
+teaching  for  Elisha  and  for  all  future  times,  that  the  power  of 
+wonder-working  rested  not  with  the  prophet  individually,  but 
+was  attached  to  his  office,  of  which  this  rough  raiment  was  the 
+badge.  The  same  truth  was  conveyed  by  what  passed  on 
+the  other  side.  There  the  reward — or,  perhaps  we  should 
+rather    say,    the   result  of  his   spiritual  perseverance  awaited 
+
+^  So  in  I  Sam.  xii.  17  ;  2  Kings  iv.  8  ;  Job  i.  6— in  the  last  two  instances, 
+rendered  "  a  day"  in  our  Authorised  Version. 
+
+-  Bahr  thinks  that  the  question  meant  :  "  What  shall  become  of  us, 
+but  es[)ecially  of  thee  when  thy  master  is  taken  from  thee  ? "  and  the 
+reply  of  Elisha  :  "  I  know  and  consider  it  as  well  as  you — only,  submit  tc 
+the  will  of  God,  and  do  not  make  my  heart  heavy."  I  cannot  take  this 
+view  of  it,  any  more  than  that  Elisha  wished  to  enjoin  silence  because 
+Elijah  in  his  humility  would  not  have  his  translation  spoken  of  (Keil). 
+
+
+9  8  Elijah  mid  E  lis  ha. 
+
+Elisha.  But  although  Elijah  asked  him  to  say  what  he  should 
+do  for  him  before  their  parting,  it  was  not  his  to  grant  the  re- 
+quest. No  one  would  imagine  that  Elisha's  entreaty  for  a  double 
+measure  of  his  master's  spirit  was  prompted  by  the  desire  that 
+his  ministry  should  greatly  surpass  that  of  Elijah,' although  even 
+in  that  case  it  would  not  be  warrantable  to  attribute  such  a 
+wish  to  anything  like  ambition.  '^  Earnestly  covet  the  best 
+gifts,"  is  a  sound  and  spiritual  principle ;  and  Elisha  might, 
+without  any  thought  of  himself,  seek  a  double  portion  of  his 
+master's  spirit,  in  view  of  the  great  [work  before  him.  But 
+perhaps  it  may  be  safer,  although  we  make  no  assertion  on  the 
+point,  to  think  here  of  the  right  of  the  firstborn,  to  whom  the 
+law  assigned  a  twofold  portion  (Deut.  xxi.  17).  In  that  case 
+Elisha  would,  in  asking  a  double  portion  of  his  spirit, 
+have  intended  to  entreat  the  right  of  succession.  And 
+with  this  the  reply  of  Elijah  accords.  Elisha  had  asked 
+a  hard  thing,  which  it  was  not  in  any  man's  power  to 
+grant.  But  Elijah  could  give  him  a  sign  by  which  to  know 
+whether  God  designated  and  would  qualify  him  to  be  his 
+successor.  If  he  saw  it  all,  when  Elijah  was  taken  from 
+him,  then — but  only  then — would  it  be  as  he  had  asked. 
+Viewing  Elisha's  request  in  that  light,  we  can  have  no  difficulty 
+in  understanding  this  reply.  And  in  general,  spiritual  per- 
+ception is  ever  the  condition  of  spiritual  work.  We  do  not 
+suppose  that  if  all  the  fifty  sons  of  the  prophets,  who  had  fol- 
+lowed afar  off,  had  gathered  around,  they  would  have  perceived 
+any  of  the  circumstances  attending  the  "taking  away"  of  Elijah, 
+any  more  than  the  prophet's  servant  at  Dothan  saw  the 
+heavenly  hosts  that  surrounded  and  defended  Elisha  (2  Kings 
+vi.  14-17),  till  his  eyes  had  been  miraculously  opened  ;  or  than 
+the  companions  of  St.  Paul  saw  the  Person  or  heard  the  words 
+of  Him  Who  arrested  the  apostle  on  the  way  to  Damascus. 
+
+And  as  we  think  of  it,  there  was  special  fitness  in  the  sign 
+given  to  Elisha.  It  is  not  stated  anywhere  in  Holy  Scripture  that 
+Elijah  ascended  in  a  fiery  chariot  to  which  fiery  horses  were 
+attached — but  that  this  miraculous  manifestation  parted  between 
+
+
+The  Ascent  of  Elijah.  99 
+
+them  twO;  as  it  were,  enwrapping  Elijah  ;  and  that  the  prophet 
+went  up  in  a  storm-wind  (2  Kings  ii.  11).  The  fiery  chariot 
+and  the  horses  were  the  emblem  of  Jehovah  of  Hosts.^  To 
+behold  this  emblem  was  pledge  of  perceiving  the  manifestation 
+of  God,  unseen  by  the  world,  and  of  being  its  herald  and  mes- 
+senger, as  Elijah  had  been.  Beyond  the  fact  that  Elijah  so 
+went  up  to  heaven,^  and  that  the  symbolic  manifestation  of 
+Jehovah  of  Hosts  was  visible  to  Elisha — Holy  Scripture  does 
+not  tell  us  anything.  And  it  seems  both  wiser  and  more 
+reverent  not  to  speculate  further  on  questions  connected  with 
+the  removal  of  Elijah,  the  place  whither,  and  in  what  state  he 
+was  "translated."  If  we  put  aside  such  inquiries,  since  we  pos- 
+sess not  the  means  of  pursuing  them  to  their  conclusions — there 
+is  nothing  in  the  simple  Scriptural  narrative, however  miraculous, 
+which  transcends  the  general  sphere  of  the  miraculous,  or 
+that  would  mark  this  as  so  exceptional  an  instance  that  the 
+ordinary  principles  for  viewing  the  miracles  of  Scripture  would 
+not  apply  to  it. 
+
+And  Elisha  saw  it.  As  if  to  render  doubt  of  its  symbolic 
+meaning  impossible,  the  mantle,  which  was  the  prophet's  badge, 
+
+^  The  same  symbolic  presentation  of  the  Lord  in  His  manifestation 
+appears  in  Ps,  civ.  3,  4 ;  Isa.  Ixvi.  15  ;  Hab.  iii.  8. 
+
+'  The  Greek  rendering  of  the  LXX.  is  ws  A%  Thv  ovpav6u,  "  as  it  were,"  or 
+•*  like  "  unto  heaven.  Whether  this  rendering  was  from  an  honest  under- 
+standing of  the  text  or  due  to  rationalistic  attempts,  cannot  now  be  decided. 
+It  must,  however,  be  admitted  that  the  Hebrew  will  bear  the  rendering  : 
+"towards  heaven,"  as  much  as  that  of  the  A.V.  :  "into  heaven  "  (comp. 
+Judg.  XX.  40  ;  Ps.  cvii.  26  ;  Jer.  li.  53).  The  Book  of  Sirach,  though  it  says 
+nothing  about  the  ascent  into  heaven,  seems  to  us  to  imply  this  view 
+(Ecclus.  xlviii.  9).  On  the  other  hand,  Josephus  sets  forth  that  he  dis- 
+appeared like  Enoch,  and  that  nobody  knew  that  they  died  {Antiq.  ix.  2,  2). 
+The  ancient  Rabbis  mostly  held  that  Elijah  did  not  taste  death,  but  went 
+alive  into  heaven  (Moed  K.  26a  ;  Ber.  R.  21 ;  Bemid  R.  12),  while  according 
+to  others  (perhaps  by  way  of  controversy  against  the  Christian  doctrine 
+of  the  Ascension),  Elijah  did  not  at  once  ascend  into  heaven  (Sukk,  5a, 
+beginning — expressly,  and  Ber.  R.  25 — as  it  seems  to  me  by  implication). 
+Our  remarks  are  certainly  not  intended  to  cast  any  doubt  on  the  Scripture 
+narrative,  but  to  enforce  the  caution  not  to  enter  into  speculation  beyond 
+its  express  statements, 
+
+
+TOO  Elijah  and  ElisJia. 
+
+had  fallen  from  Elijah,  and  was  left  as  an  heirloom  to  his  suc- 
+cessor. His  first  impulse  was  to  give  way  to  his  natural  feelings, 
+caused  alike  by  his  bereavement  and  by  veneration  for  his  de- 
+parted master,  "  My  father,  my  father  ! "  His  next,  to  realise  the 
+great  lesson  of  faith,  that,  though  the  prophet  had  departed, 
+the  prophet's  God  for  ever  remained  :  "  The  chariot  of  Israel, 
+and  the  horsemen  thereof!"  We  would  suggest  that  the 
+words,  ^"  And  he  saw  him  no  more"  (ver.  12),  imply  that 
+he  gave  one  upward  look  where  Elijah  had  been  parted  from 
+him,  and  where  the  fiery  glow  had  now  died  out  in  the  sky. 
+Then,  in  token  of  mourning,  he  rent  his  clothes  in  two  pieces, 
+that  is,  completely,  from  above  downwards.  But  while  thus 
+lamenting  the  loss  of  his  loved  master,  he  immediately  entered 
+on  the  mission  to  which  he  had  succeeded,  and  that  with  an 
+energy  of  faith,  combined  with  a  reverent  acknowledgment  of 
+the  work  of  his  predecessor,  which  ought  for  all  time  to  serve 
+as  a  lesson  to  the  Church.  Bereavement  and  sorrow  should 
+not  make  us  forget,  rather  recall  to  us,  that  Jehovah  our 
+God  liveth ;  regret  and  a  sense  of  loss  should  not  dull,  rather 
+quicken  us  for  work,  in  the  name  of  God.  Nor  yet  should  the 
+feeling  that  we  have  a  call  to  work,  dim  our  remembrance  of 
+those  who  have  gone  before  us.  We  are  all  only  servants  suc- 
+cessively taking  up  and  continuing  the  task  of  those  who  have 
+passed  into  glory  ;  but  He  is  our  Master,  Whose  is  the  work, 
+and  Who  liveth  and  reigneth  for  ever. 
+
+And  so  Elisha  took  up  the  mantle  that  had  fallen  from 
+Elijah.  It  was  not  a  badge  of  distinction,  but  of  work  and  of 
+office.  With  this  mantle  he  retraced  his  steps  to  the  bank  of 
+Jordan.  One  upward  glance  :  "  Where  is  Jehovah,  the  God 
+of  Elijah — even  He  ?  "^  spoken  not  in  doubt  nor  hesitation,  but, 
+on  the  contrary,  in  assurance  of  his  own  commission  from 
+heaven,  with  all  that  it  implied — and,  as  he  smote  the  waters 
+with  the  mantle  of  Elijah,  they  once  more  parted,  and  Elisha 
+went  over. 
+
+^  Let  us  first  be  quite  clear  that  the  words  do  not  imply  any  doubt  on 
+the  part  of  Elisha  as  to  the  result.     Had  he  doubted,  he  would  certainly 
+
+
+Prophetic  History.  lOi 
+
+So  shall  the  waters  of  difficulty,  nay,  the  cold  flood  of  death 
+itself,  part,  if  we  smite  in  faith  with  the  heaven-given  garment ; 
+so  shall  the  promise  of  God  ever  stand  sure,  and  God  be  true 
+to  His  Word ;  and  so  may  we  go  forward  undauntedly,  though 
+humbly  and  prayerfully,  to  whatever  work  He  gives  us  to  do. 
+
+
+CHAPTER    VIH. 
+
+<^\x%\i^   the   JPr0^h^t.    , 
+
+Return  to  Jericho— Acknowledgment  by  the  Sons  of  the  Prophets— Healing 
+of  the  Waters  of  Jericho— Judgment  on  the  Young  Men  at  Bethel- 
+Settlement  in  Samaria. 
+
+(2  Kings  ii.  15-25.) 
+
+THE  history  which  now  follows  reads  almost  like  a  chronicle 
+of  Elisha.  More  correctly  it  may  be  described  as  the 
+prophetic  history  of  that  period.  With  the  removal  of  Elijah, 
+Elisha  had  begun  his  ministry,  the  test  of  its  reality  having 
+been  the  parting  of  the  waters  of  Jordan.  The  next  three  in- 
+cidents must  be  considered  as  preparatory  to  his  prophetic 
+activity ;  the  first,  as  regarded  his  public  acknowledgment  by 
+the  sons  of  the  prophets  (2  Kings  ii.  15-18)  ;  the  second  and 
+third  that  by  the  people,  when  Elisha  publicly  appeared  as  the 
+
+
+have  failed,  then  and  ever  afterwards.  Next,  let  us  dismiss,  as  worthy 
+only  of  Rabbinic  exegesis,  the  idea  that  the  twofold  mention  of  Elisha's 
+smiting  the  waters  implies  a  twofold  smiting,  of  which  the  second  alone  was 
+successful.  But  the  wording  of  the  Hebrew  is  not  quite  plain.  The  A.V. 
+represents  an  attempt  to  reproduce  the  Massoretic  punctuation  which  con- 
+nects the  closing  words,  "Even  He,"  with  the  next  clause,  "and  he 
+smote  the  waters."  The  Massorah  represents  the  traditional  mode  of 
+vocalising  the  Hebrew  text,  punctuating  it,  and  fixing  the  proper  readings. 
+Its  immense  importance  for  the  understanding  of  the  text  can  scarcely  be 
+overstated. 
+
+
+102  Elisha, 
+
+instrument  of  God — in  the  one  case,  for  mercy  (vv.  19-22),  in 
+the  other,  for  judgment  (vv.  23,  24).  Having  thus  estabHshed 
+his  authority,  Elisha  immediately  afterwards  assumed  the 
+place  of  God's  representative  in  the  affairs  of  Israel. 
+
+I.  As  we  look  more  closely  into  it,  a  special  significance 
+attached  to  each  of  the  three  preliminary  events  just  referred 
+to.  In  the  first  it  was  seen  that  Elisha  occupied  precisely  the 
+same  position  of  superiority  as  Elijah  over  the  ordinary  "  sons 
+of  the  prophets,"  as  also  the  folly  of  their  attempted  interference 
+in  his  work.  Henceforth  they  would  be  unquestioning,  obedient 
+instruments  of  his  behests,  and  this  was  the  rightful  position 
+alike  for  them  and  as  regarded  the  work  of  Elisha.  According 
+to  our  modern  notions  the  circumstances  may  seem'  strange, 
+but  they  are  in  agreement  with  the  condition  of  the  times  and 
+with  the  degree  of  spiritual  understanding  possessed  even  by 
+the  sons  of  the  prophets.  As  Elisha  returned  alone,  the  "  sons 
+of  the  prophets,"  judging  that  the  spirit  of  Elijah  rested  upon 
+him,  perhaps  because  they  had  watched  as  the  waters  of  Jordan 
+parted  when  he  smote  them — went  to  meet  the  prophet  and  to 
+do  him  homage.  And  yet  they  began  by  urging  a  strange  re- 
+quest— perhaps  because  notions  such  as  they  expressed  were 
+popularly  entertained  (as  by  Obadiah,  i  Kings  xviii.  12)  in 
+regard  to  the  influence  of  the  Spirit  on  the  prophets  generally, 
+or  it  may  be  only  on  the  great  prophet  of  fire.  Or  perhaps  they 
+imagined  that^Elijah  might  be  in  a  trance  or  dead  in  some  valley 
+or  on  some  mountain-height ;  or  it  may  have  been  only  from 
+morbid  curiosity  to  learn  something  more  of  what  had  happened. 
+In  any  case  their  proposal  marked  an  entire  lack  of  spiritual 
+understanding  and  sympathy.  There  were  fifty  strong  men 
+among  them,  capable  of  enduring  any  fatigue,  and  equal  to  any 
+work  or  burden.  Might  these  not  go  to  search  whether  per- 
+adventure  the  Spirit  of  Jehovah  had  not  uplifted  and  then  cast 
+Elijah  into  some  remote  corner  of  that  desolate  and  rocky 
+region  near  Jericho  ?  ^   To  men  who  entertained  such  notions, 
+
+^  It  will  be  remembered  that  Christian  legend  has  placed  the  scene  of 
+the  temptation  in  that  neighbourhood — it  need  scarcely  be  said,  contrary 
+
+
+Beginytmg  of  his  Ministry.  103 
+
+it  would  have  been  impossible  to  communicate  even  what 
+Elisha  had  witnessed,  still  less  its  predicted  import  to  himself. 
+Accordingly  he  contented  himself  with  a  simple  negative  to 
+their  request.  And  this  should  have  taught  them  what  was  the 
+first  duty  as  well  as  qualification  alike  of  a  prophet  and  of  the 
+sons  of  the  prophet :  simple,  unquestioning  obedience.  But, 
+like  many  of  us,  in  the  process  of  our  personal  sanctification, 
+they  had  to  learn  it  by  painful  experience.  Their  insistence 
+at  last  made  him  "ashamed,"^  since  it  might  seem  as  if  he 
+felt  less  concern  for  his  master  than  they,  and  he  yielded  to 
+their  importunity.  When  after  three  days'  unavailing  search 
+they  returned  to  Jericho,  he  reminded  them  of  his  first  refusal 
+— although  for  reasons  which  need  not  be  repeated^  he  did  not 
+even  then  communicate  to  them  what  he  had  witnessed.  But 
+ever  afterwards  a  spirit  of  willing  ^submission  to  EHsha  pre- 
+vailed among  the  sons  of  the  prophets. 
+
+2.  The  next  requisite  seemed  to  make  such  public  mani- 
+festation of  his  prophetic  authority  as  would  secure  for  his 
+message  the  faith  and  submission  of  the  people.  Besides,  this 
+was  necessary  in  the  contest  with  Baal,  whose  worship,  if  it 
+had  been  finally  established,  would,  so  to  speak,  have  denation- 
+alized Israel,  even  as  it  ultimately  led  to  that  banishment 
+which  has  not  yet  been  recalled.  It  was  of  absolute  importance 
+that  the  presence  of  Jehovah  should  appear,  as  it  were,  in  a 
+concrete  form,  through  a  living  representative,  who  should  be 
+quick  to  bring  blessing  or  judgment,  and  so  to  demonstrate 
+what  he  proclaimed,  in  the  only  manner  which  the  men  of  that 
+time  could  understand.     This  may  also  in  part   explain  why 
+
+
+not  only  to  the  requirements  of  the  Gospel  narratives,  but  to  the  facts  re- 
+corded about  our  Lord's  ministry  in  Galilee  immediately  after  His  baptism. 
+
+^  Bahr  would  render  the  Hebrew  expression  by  *'  till  he  was  disap- 
+pointed," viz.,  in  his  hope  of  dissuading  them.  But  all  the  passages  in  the 
+Psalms  to  which  he  refers  mean  "  to  be  ashamed,"  although  in  consequence 
+of  being  disappointed  in  hope.  In  the  other  passages  quoted  by  that  critic 
+(Judg.  iii.  25  ;  2  Kings  viii.  Ii),  the  term  could  not  possibly  mean,  dis- 
+appointed in  hope. 
+
+
+104  E  lis  ha. 
+
+the  mission  of  Elijah  and  EHsha  differed  in  so  many  respects 
+from  that  of  the  other  prophets.  And,  as  we  farther  consider  it, 
+wehave  evidence  that  it  accompUshed  its  purpose.  Weremember 
+how  once  and  again  Ahab  himself  was  arrested  through  the 
+influence  of  Elijah.  At  first  the  reign  of  Ahaziah  had  seemed  a 
+return  to  the  worst  days  of  Ahab.  But  Elijah's  announcement  of 
+his  doom,  together  with  the  symbolic  judgment  on  those  two 
+captains  of  fifty  who  had  gone  to  capture  the  prophet,  had  had 
+their  effect.  Although  Joram  "wrought  evil  in  the  sight  of 
+Jehovah,''  it  was  "  not  like  his  father^  and  like  his  mother  ; " 
+and  we  are  expressly  told  that  "  he  removed  the  pillar  of 
+Baal  which  his  father  had  made"  (2  Kings  iii.  2).  This 
+does  not  mean  that  he  either  destroyed  the  Temple  of  Baal, 
+or  even  that  pillar — perhaps  we  should  rather  call  it  a  column 
+or  block.  Probably  all  that  was  done  was  to  remove  this  great 
+memorial-pillar  of  Baal  from  the  public  position  which  it  had 
+occupied  in  the  square,  or  in  front,  or  in  the  gardens^  of 
+the  palace,  or  else  before  the  Temple  of  Baal,  and  to  place  it 
+within  the  precincts  of  the  latter  (2  Kings  x  27).  But  even 
+this  implied  that  the  worship  of  Baal  was  no  longer  the  national 
+religion — although  the  alternative  was  only  between  it  and  the 
+worship  instituted  by  Jeroboam. 
+
+From  this  general  estimate  of  the  public  influence  exercised 
+by  the  prophet,  we  turn  to  consider  more  fully  the  first  miracle 
+by  which  he  established  his  prophetic  authority — very  signi- 
+ficantly in  an  act  of  blessing.  The  men  of  Jericho  interceded 
+with  Elisha — probably  through  their  representatives — on  be- 
+half of  their  city.  Every  one  might  see  how  pleasant  was  its 
+site  :  the  very  Paradise  of  Palestine,  its  rich  soil  basking  under 
+a  tropical  sun,  yet  shaded  by  palm,  mulberry,  and  fig-trees,  while 
+the  air  was  refreshed  by  perennial  springs  of  bright  water,  and 
+perfumed  by  the  precious  balsam-plants,  the  scent  of  which 
+the  wind  would  sometimes  carry  as  far  as  out  to  sea.  But  all 
+this  luxuriance  was  marred  by  the  character  of  the  water.  At  a 
+distance  of  about  a  mile  from  the  ancient  site  of  Jericho  (not 
+from  the  modern  village  which  represents  the  ancient  town), 
+
+
+Healing  of  the   Waters,  105 
+
+*'  there  is  a  large  and  beautiful  fountain  of  sweet  and  pleasant 
+water/'  -  the  so-called  Ain-es-Sultan.  From  its  situation  this 
+must  have  furnished  the  water-supply  for  ancient  Jericho,  and 
+hence  have  been  the  spring  which  Elisha  healed,  of  which  there 
+is  this  farther  confirmation  that  the  other  springs  in  the  neigh- 
+bourhood are  to  this  day  mostly  brackish.  To  this  character 
+of  the  water  the  inhabitants  ascribed,  and  as  it  appears  not 
+without  reason,  the  circumstance  of  the  frequent  miscarriages 
+which  alike  diminished  the  population  and  the  flocks.^  Re- 
+membering the  symbolic  import  of  the  mission  of  Elisha,  as 
+before  explained,  we  should  expect  the  prophet  to  give  heed  to 
+so  humble  a  complaint — for  such  it  was,  rather  than  a  request. 
+The  means  used  were  in  accordance  with  the  symbolic  character 
+of  all  else.  The  healing  of  the  waters,  although  performed 
+through  the  prophet,  was  the  direct  act  of  Jehovah  (v.  21). 
+Accordingly,  as  everything  connected  with  the  service  of  the 
+Lord,  the  cruse  to  be  used  must  be  '^new"  (Num.  xix.  2), 
+dedicated  to  God  alone.  And  the  direct  means  of  the  "heal- 
+ing "  was  "  salt,"  borne  in  this  new  cruse.  Salt  was  added 
+to  everything  offered,  as  being  the  emblem  of  incorruption,and 
+hence  of  purification.  And  so  they  went  up  to  the  very  spring 
+of  the  waters,  and  there,  not  as  of  himself,  but  in  the  name  of 
+the  Lord,  EHsha  "  healed  "  the  waters  by  a  symbolic  action,  re- 
+sembling that  of  Moses  of  old  (Ex.  xv.  25). 
+
+Many  lessons  of  deep  significance  are  suggested  by  this 
+miracle  :  most  notably,  how  the  salt  borne  in  the  new  cruse 
+when  applied  to  the  spring  of  the  waters  healed  them — hence- 
+forth, completely,  and  for  ever ;  and  again,  how  in  the  healing 
+three  things  were  combined — the  use  of  means  (in  themselves 
+ineffectual),  the  word  of  the  prophet,  and  the  power  of  Jehovah. 
+But  most  of  all,  does  it  help  us  to  realise  how  God  is  a  present 
+help  in  time  of  trouble — if  only  we  seek  Him  in  the  manner 
+which  He  appoints. 
+
+^  Compare  Robinson's  Researches^  Vol.  II,,  pp.  283,  2S4. 
+^  This  is  the  meaning  of  vv.  19  and  21,  and  not  as  in  our  A.  V.     The 
+R.V.  is  misleading,  as  conveying  that  it  M-as  the  ground  that  miscarried. 
+
+
+1  o6  ElisJia. 
+
+3.  Yet  another  attestation  of  Elisba's  prophetic  authority 
+was  needed.  This  time  not  in  blessing,  but  in  judgment — 
+stern,  quick,  unrelenting.  Those  who  despised  his  commission, 
+or  rather  defied  the  power  that  was  behind  it,  must  learn  in 
+terrible  experience  its  reality.  And  that  this  judgment  at  the 
+beginning  of  Elisha's  ministry  was  so  understood,  appears  from 
+this  circumstance  that  his  ministry  never  afterwards  seems  to 
+have  encountered  active  opposition. 
+
+Once  more  the  prophet  was  pursuing  his  lonely  way  where 
+last  he  had  walked  in  company  with  his  master.  For  it  will 
+be  remembered^  that  the  last  station  at  which  Elijah  and  Elisha 
+tarried  on  their  way  to  Jerix:ho  and  the  Jordan  was  Bethel. 
+And  this  also  is  significant.  As  regards  Elisha,  because  it  must 
+have  called  up  most  solemn  thoughts,  especially  now  when  he 
+was  entering  upon  his  work  ;  and  not  less  so  as  regarded  the 
+Bethelites  who  had  last  seen  Elisha  in  company  Avith  Elijah 
+just  before  his  ascent.  It  did  recall  to  them  the  last  appear- 
+ance among  them  of  the  two,  but  only  to  make  mockery  of  the 
+event  connected  with  it.  But  this  was  to  scoff  alike  at  the 
+dead  and  at  the  living  prophet,  and  also  at  the  great  power  of 
+Jehovah.  Thus  it  was  really  open  defiance  of  God,  all  the  more 
+inexcusable  that  it  was  entirely  unprovoked,  and  that  it  offended 
+against  the  law  of  man  almost  as  much  as  against  that  of  God. 
+For  it  was  not  only  a  breach  of  hospitality,  but  it  discarded 
+that  reverence  for  authority  specially  of  a  religious  kind,  which 
+has  at  all  times  been  a  characteristic  feature  in  Eastern  life. 
+
+Slowly  had  Elisha  ascended  those  3000  feet  which  lead  up 
+from  the  low  plain  of  Jericho  to  the  highlands  where  Bethel 
+lies.^     He  was  climbing  the  last  height — probably  up  the  defile 
+
+^  Although  we  do  not  agree  with  Captain  Conder  {Tent-work  in  Pales- 
+tine^ Vol.  II.,  pp.  106-108),  that  the  Bethel  of  tlie  worship  of  Jeroboam 
+was,  as  mediaeval  tradition  represents  it,  on  Mount  Gerizim,  we  cannot  help 
+transferring  to  our  pages  some  lines  of  his  very  graphic  description  of  our 
+Bethel  :  "  Bethel  at  the  present  day  is  one  of  the  most  desolate-looking 
+places  in  Palestine;  not  from  lack  of  water.  .  .  .  All  the  neighbourhood 
+is  of  grey,  bare  stone,  or  white  chalk.  The  miserable  fields  are  fenced  in 
+with  stone  walls,  the  hovels  are  rudely  built  of  stone,  the  hill  to  the  east  is 
+
+
+The  "  Young  Men  "  of  Bethel.  107 
+
+of  Wady  Suweinit,  where  the  hills  above  still  bear  marks  of  the 
+extensive  forest  that  once  covered  them — when  he  encountered 
+a  band  of  "young  men,"  who,  as  the  text  seems  to  imply,  had 
+gone  forth  to  meet  him.  They  were  not  "  little  children  "  (ac- 
+cording to  our  A.  v.),  but  young  men,  as  we  infer  from  the 
+use  of  the  same  expression  in  the  case  of  Solomon  (i  Kings  iii. 
+7),  when  he  was  about  twenty  years  old,  and  the  application  of 
+a  similar,  even  stronger,  designation  to  the  youthful  advisers  of 
+Rehoboam.i  And  their  presence  there  meant  a  deliberate 
+purpose.  We  have  no  means  of  ascertaining  how  they  may 
+have  learned  the  approach  of  Elisha,  or  come  to  know  that  the 
+great  prophet,  whom  the  fifty  strong  men  had  sought  in  vain, 
+had  "  gone  up,"  even  although  they  may  have  attached  to  this 
+only  the  vaguest  notions.  But  as  the  taunt,  "  Baldhead," 
+was  undoubtedly  a  term  of  reproach,  in  whatever  sense  they 
+may  have  used  it,^  so  the  cry  "  Go  up,  go  up  ! "  with  which 
+they  followed  him,  seems  to  us  a  mocking  allusion  to  the 
+ascent  of  Elijah. ^ 
+
+In  the  spirit  that  prompted  the  words  of  Moses  and  Aaron 
+(Ex.  xvi.  6-8),  and  of  Peter  (Acts  v.  3,  4),  not,  we  feel  assured, 
+in  that  of  personal  revenge,  Elisha  turned  round  and  pro- 
+nounced on  them  that  doom  which  soon  afterwards  ^  overtook 
+
+
+of  hard  rock,  with  only  a  few  scattered  fig-gardens.  .  .  .  The  place  seems 
+as  it  were  turned  to  stone." 
+
+1  In  the  present  instance,  the  expression  would  be  equivalent  to  what  in 
+similar  circumstances  an  older  man  might  contemptuously  use  :  a  set  of  hoys. 
+
+-  It  is  used  in  different  application  in  the  following  passages  :  Lev.  xiii. 
+43  ;  xxi.  5  ;  Numb.  vi.  5  ;  Isa.  iii.  17  ;  xv.  2. 
+
+3  It  has  been  contended  that  the  expression  refers  only  to  Elisha's  "going 
+up  "  to  Bethel ;  but  it  is  exactly  that  which  is  used  of  the  ascent  of  Elijah, 
+and  it  explains  alike  the  temper  of  those  young  men,  and  the  judgment  that 
+overtook  them. 
+
+^  It  is  impossible  to  decide  whether  the  calamity  happened  at  once  or  a 
+little  while  afterwards.  But  it  should  be  noticed  that  it  was  not  Elisha 
+who  slew  those  forty-two  youths,  but  the  Lord  in  His  Providence,  just 
+as  it  had  been  Jehovah,  not  the  prophet,  who  had  healed  the  waters  of 
+Jericho. 
+
+
+lo8  JehosJiaphat  and  J  or  am. 
+
+them  in  a  manner  so  strange  that  it  seems  to  have  been  spe- 
+cially intended  to  attract  pubHc  attention. ^  For  although  the 
+exceeding  danger^  from  bears,  especially  when  irritated,  is  fre- 
+quently referred  to  in  Scripture,^  and  the  large  number  (forty- 
+two)  slain,  not  eaten,  by  the  two  she-bears,  indicates  how  many 
+youths  had  combined  to  go  forth  for  the  purpose  of  mocking 
+Elisha,  yet  so  extensive  a  calamity  from  such  a  cause  was  so 
+unusual  and  must  have  spread  such  wide  mourning  as  to  draw 
+universal  attention  to  the  ministry  of  Elisha. 
+
+We  can  scarcely  suppose  that  Elisha  tarried  in  Bethel. 
+In  pursuance  of  his  object  publicly  to  declare  himself  the  suc- 
+cessor of  Elijah,  he  passed  on  to  Mount  Carmel,  where  Elijah 
+had  been  during  the  latter  part  of  his  ministry,  and  thence  re- 
+turned to  Samaria  to  be  in  readiness  for  his  work. 
+
+
+CHAPTER    IX. 
+
+J^hoshit^hnt,  (Jxjitrth)  litng  qI  Jitbnh— Jnram,  i^twWx) 
+Jung  of  isrncl. 
+
+The  Allied  Expedition  against  Moab— Recent  Discovery  of  "the  Moabite 
+Stone  "—Lessons  of  its  Inscription—The  March  through  the  Wilder- 
+ness of  Edom—Want  of  Water — Interview  with  Elisha — Divine  De- 
+liverance—Defeat of  Moab,  and  Advance  of  the  Allies — The  Siege  of 
+Kir-haraseth—Mesha  offers  up  his  Son— Withdrawal  of  the  Allies. 
+
+(2  Kings  hi.  5-27.) 
+
+THE  first  public  act  of  Elisha's  wider  ministry  is  connected 
+with  an  event  of  which  the  most  strange  and  unlooked-for 
+confirmation  has  been  brought  to   light  within  the  last  few 
+
+^  It  may  here  be  noticed  that,  if  the  event  had  not  really  taken  place,  the 
+inventor  would  have  ascribed  the  destruction  of  the  mocking  youths  to 
+some  less  startling  cause,  say  to  pestilence,  or  the  sword,  or  else  to  a  sudden 
+and  direct  interposition  from  heaven. 
+
+^  (Jompare  here  such  passages  as  i  Sam.  xvii.  34  ;  2  Sam.  xvii.  8  ;  Prov. 
+xvii.  12  ;  xxviii.  15  ;  Dan.  vii.  5  ;  Hos.  xiii.  8  ;  Amos  v.  19. 
+
+
+The  Moabite  Stone.  109 
+
+years.  When  in  August,  1868,  the  Rev.  F.  Klein,  of  the 
+Church  Missionary  Society^  was  travelling  in  Moab,  his  atten- 
+tion was  directed  by  a  friendly  Sheikh  to  a  black  basalt  stone, 
+about  three  feet  ten  inches  in  height,  two  feet  in  width,  and 
+fourteen  and  a  half  inches  in  thickness.  The  stone  bore  an 
+inscription  of  thirty-four  straight  lines  (about  one  and  a  quarter 
+inches  apart),  which  on  learned  investigation  was  found  to  be 
+in  the  ancient  Phoenician  characters.  The  place  where  this 
+memorial-stone,  or  column,  was  found  was  Dibati,  the  ancient 
+Dibon,  the  northern  capital  of  Moab,  north  of  the  river 
+Arnon.  So  far  as  can  be  judged  from  the  shapeless  mass  of 
+ruins  (comp.  Jer.  xlviii.  18)  that  cover  the  twin  hills  on  which 
+the  ancient  city  had  stood,  surrounded  by  a  wall,  "  it  was  quite 
+within  the  old  city  walls ;  near  what,  we  presume,  was  the 
+gateway,  close  to  where  the  road  has  crossed  it."  ^  Whether  it 
+had  originally  stood  there,  is  another  and  not  easily  answered 
+question.  2 
+
+Before  referring  to  the  important  evidence  derived  from  this 
+discovery,  we  shall  in  a  few  sentences,  give  the  melancholy 
+history  of  this  stone.  It  may  teach  us  a  lesson  about  "our 
+unhappy  divisions."  The  unexpected  discovery  of  this  stone 
+led,  in  the  first  place,  to  jealousies  for  its  coveted  possession 
+among  the  European  communities  in  Jerusalem.  In  the  end, 
+in  their  eagerness  to  make  as  much  profit  as  was  possible  out 
+of  these  contentions,  the  Arabs  quarreUed  among  themselves 
+— and  broke  up  the  stone.  Happily,  most  of  the  fragments  have 
+been  secured,  and  some  "  squeezes  "  on  paper  had  previously 
+been  taken,  so  that  all  the  important  parts  of  the  inscription 
+can  be  read,  and  have — with  but  slight  variations — been 
+interpreted  by  critics  of  different  countries.^ 
+
+Perhaps  it  may  be  convenient  here  to  put  down  such  parts 
+of  the  inscription  as  are  of  importance  to  our  present  purpose, 
+
+1  Canon  Tristram,  The  Land  of  Moab,  p.  134. 
+
+2  Tristram,  u.s. 
+
+3  The  first  to  give  it  in  English  version  was  Dr.  Neubauer,  of  the 
+Bodleian  Library. 
+
+
+no  JehosJiapJiat  and  Jorain, 
+
+adding  afterwards  brief  comments  in   explanation.     The  in- 
+scription begins  as  follows  (we  mark  the  original  lines) : — 
+
+1.  I  Mesha  am  son  of  Chemoshgad,  King  of  Moab,  the 
+
+2.  Dibonite.      My  father  reigned  over  ]\Ioab  thirty  years 
+and  I  reign- 
+
+3.  ed  after  my  father.  And  I  erected  this  stone  to  Chemosh 
+at  Kirkha  [a  stone  of] 
+
+4.  [sa]  Ivation,  for  he  saved  me  from  all  despoilers,  and  made 
+me  see  my  desire  upon  all  my  enemies,  upon  Om- 
+
+5.  [r]  i,  king  of  Israel.  He  afflicted  Moab  many  days,  for 
+Chemosh  was  angry  with  his  count- 
+
+6.  [r]  y.  His  son  succeeded  him,  and  he  also  said,  I  will 
+afflict  Moab.     In  my  days  he  said  [Let  us  go] 
+
+7.  And  I  will  see  my  desire  on  him  and  his  house.  And 
+Israel  [said],  I  will  destroy  with  an  everlasting  destruction. 
+Now  Omri  took  (had  taken)  the  land 
+
+8. -Medeba  and  .  .  .  .  ^  occupied  it  ...  .  the  days  of 
+his  son,  forty  years.     And  Chemosh  [had  mercy] 
+
+9.  on  it  in  my  days,  and  I  built  Baal  Meon,  and  made 
+therein  the  tank,  and  I  [built 
+
+We  cannot  here  continue  this  quotation,  interesting  as  are 
+the  issues  involved.  What  follows  describes  the  reconquest  by 
+Mesha  of  various  towns  in  the  north  of  Moab,  formerly 
+occupied  by  Israel,  their  reconstruction  and  the  dedication  of 
+captive  women  to  ''  Ashtar-Chemosh  "  (Astarte-Chemosh),  and 
+of  what  are  described  as  "vessels  of  Jehovah,"  to  Chemosh — 
+both  at  the  taking  of  Nebo,  in  the  northernmost  part  of  Moab. 
+
+In  lines  1-9,  first  clause  of  the  inscription,  Mesha  relates 
+the  subjugation  of  Moab  by  Omri,  the  father  of  Ahab,  and  the 
+deliverance  of  that  country,  which  he  ascribes  to  Chemosh. 
+This  we  suppose  to  have  been  connected  with  the  retreat  of 
+the  allied  armies  from  Kir-haraseth,  and  their  evacuation  of 
+
+^  The  dots  mark  where  I  have  not  filled  in  the  words  missing  in  the 
+inscription  ;  the  words  within  square  brackets  [  ]  where  I  have  adopted 
+those  supplemented  by  previous  writers.  Comp.  Sayce,  Ft'csh  Light  from 
+the  Ancient  Mounvieiits,  pp.  91-93. 
+
+
+Expedition  against  Mesha.  1 1 1 
+
+the  country  (2  Kings  iii.  25).!  From  all  this  we  infer  that  the 
+land  of  Moab,  which  had  apparently  recovered  its  independence 
+during,  or  immediately  after,  the  reign  of  Solomon,  was,  at 
+least  in  part,  reconquered  by  the  warlike  Omri.  And  from  the 
+list  of  towns  which  in  other  parts  of  the  inscription  Mesha 
+mentions  as  having  been  retaken,  we  conclude  that  Omri  had 
+invaded  Moab  from  the  north,  while  afterwards  the  allied  armies 
+entered  it  from  the  south.  Accordingly  a  number  of  places 
+are  named  as  such  which  the  king  of  Israel  had  fortified 
+and  Mesha  recaptured.  All  these  towns  are  north  of  the  Arnon. 
+The  deep  gorge,  and  the  rapid  current  of  that  river,  would 
+render  its  passage  by  a  hostile  army  extremely  difficult. 
+Hence  the  invading  army  of  Omri  seems  to  have  been 
+arrested  by  that  obstacle,  and  Jahaz^  which  lay  north  of 
+the  Arnon,  is  the  most  southern  point  mentioned  in  the  in- 
+scription, as  held  and  fortified  by  the  king  of  Israel. 
+
+But  while  Northern  Moab  was  thus  occupied  by  Israel^  the 
+southern  part  of  the  country  seems  to  have  preserved  its 
+independence  during  the  reign  both  of  Omri  and  of  Ahab. 
+After  the  death  of  the  latter,  "  Moab  rebelled"  (2  Kings  iii.  5), 
+under  the  leadership  of  their  brave  king  Mesha — a  name 
+which  is  connected  with  the  word  "  deliverance."  He  styles 
+his  father  Chemosh-Gad,  which  is  a  compound  of  the  names 
+of  the  two  gods,   Chemosh  and  Gad   (the  latter  the  god  of 
+
+^  The  common  view  is  that  the  "  Inscription  "  refers  to  the  rebellion  of 
+Mesha  in  the  time  of  Ahaziah,  and  (in  the  lines  not  copied  by  us)  to  a  sup- 
+posed later  occupation  oijahaz  (which  some  even  locate  sojith  of  the  Arnon) 
+either  by  Ahaziah  or  Joram,  who  was  afterwards  driven  from  it  by  Mesha 
+(Comp.  Sayce,  11. s.  p.  95  ;  Schlottmann  in  Riehm's  Bibl.  Hand-lV.  II). 
+But  :  I.  There  is  not  a  trace  of  any  such  supposed  invasion  of  Moab  either 
+by  Ahaziah,  or,  still  less,  by  Joram  before  his  allied  expedition  with  Jelio- 
+shaphat  and  Edom.  2.  Joram  could  not  have  penetrated  to  Jahaz,  which 
+assuredly  was  not  south  but  north  of  the  Arnon,  in  the  territory  of  Reuben 
+(Josh.  xiii.  18),  without  having  taken  the  whole  north  of  Moab — of  which 
+there  is  not  a  trace  in  the  Bible — while  the  contrary  is  indicated  in  the 
+*'  Inscription."  3.  The  reprisals  upon  Edom,  also  referred  to  in  the  "In- 
+scription," must  have  taken  place  after  the  allied  expedition,  since  before 
+that  Edom  was  in  league  with  Moab  (2  Chron.  xx.  2,  22,  23).  All  these 
+difficulties  are  avoided  in  the  view  taken  in  the  text. 
+
+
+112  JeJiosJiapJiat  and  Jofam. 
+
+fortune).  The  first  intimation  of  the  movement  for  the  re- 
+covery of  their  independence  seems  to  have  been  the  sudden 
+invasion  of  Judaea  by  IMoab,  in  aUiance  with  the  Ammonites . 
+and  a  tribe  of  Edomites  (2  Chron.  xx.).  Probably  the  Moabites 
+had  not  yet  felt  themselves  sufficiently  strong  for  an  attack  on 
+the  Israelitish  stronghold  in  Northern  Moab,  and  accordingly 
+resolved  on  making  a  raid  across  the  undefended  boundary 
+of  Judah,  while'at  the  same  time  they  sought  to  combine  into 
+an  anti-Israelitish  alliance  all  the  tribes  along  the  eastern  line 
+of  Palestine.  We  know  that  through  the  Divine  help  to 
+Jehoshaphat,  this  expedition  signally  failed,  while  in  the 
+mutual  slaughter  which  ensued  the  Edomite  allies  of  Moab  were 
+the  first  to  suffer.  Hence,  the  projected  anti-Israelitish  league 
+was  not  only  broken  up,  but  Edom  was  drawn  into  what  seems 
+to  have  been  a  Palestinian  counter-league,  the  pathetic  story 
+of  which  is  connected  with  the  so-called  "  Moabite  stone." 
+
+It  is  impossible  to  find  words  for  the  varied  feelings  which 
+rise  as  we  realize  that  after  the  lapse  of  2,500  years  a  monu- 
+mental stone  should  in  such  unexpected  manner  have  been 
+found  to  bear  testimony  to  Holy  Scripture,  and  especially  to 
+its  record  of  that  event  from  which  Mesba  dates  the  recovery 
+of  the  independence  of  Moab,i — all  the  more  that  he  ascribes 
+the  glory  of  it  to  Chemosh,  his  god.^  When  from  the  Moabite 
+inscription  we  turn  to  the  Biblical   narrative,  we   learn  that 
+
+^  As  I  understand  it,  the  Inscription  traces  in.  the  first  six  lines  the 
+state  of  Moab  under  Omri  and  Ahab.  For  reasons  easily  understood,  re- 
+ference is  not  made  to  the  straits  to  which  Kir-haraseth  was  reduced, 
+while  at  the  same  time,  and  very  significantly,  emphasis  is  laid  on  the 
+help  given  by  Chemosh.  Similarly  the  withdrawal  of  the  Jewish  expedition 
+is  passed  over,  and  the  Inscription  goes  on  to  record  how  (after  their  with- 
+drawal) Mesha  gradually  recovered,  town  by  town,  all  Northern  Moab,  how 
+he  rebuilt  the  various  towns,  and  finally  also  made  reprisals  on  Edom. 
+
+"^  The  language  of  the  Inscription  illustrates,  perhaps  better  than  any- 
+thing else,  the  heathen  notion  of  national  deities,  how  Moab  regarded 
+Chemosh  as  the  rival  god  of  that  of  Israel,  and  how  true  even  to  national 
+thought  are  those  expressions  in  the  Old  Testament  which  represent 
+national  calamity  or  deliverance  as  due  to  the  anger  or  favour  of  God.  In 
+using  such  expressions  the  prophets  and  sacred  historians  appealed  to 
+what  were,  so  to  speak,  admitted  facts  in  popular  consciousness. 
+
+
+Alliance  against  Moab.  113 
+
+Mesha,  like  his  predecessors,  had  been  under  heavy  annual 
+tribute  to  Israel,  which  was  paid  in  kind.  We  read  that  he 
+*^was  a  sheepmaster."  The  extensive  downs  of  Moab  were 
+covered  by  numberless  flocks,  and  the  tribute  which  he  had  to 
+pay  consisted  of  "  a  hundred  thousand  lambs,  and  a  hundred 
+thousand  wethers — the  wool."  The  wording  in  the  original 
+is  not  very  clear,  but  as  the  term  used  for  "  lambs  "  generally 
+designates  "  fed  lambs,"  we  conclude  that  if  it  is  intended  to 
+convey  that  the  wool  formed  the  tribute,  it  must  have  been 
+that  of  "the  wethers,"  and  that  to  this  the  hundred  thousand 
+fed  lambs  were  added.  It  need  scarcely  be  said  that  this 
+tribute  ceased  when  Mesha  cast  off  the  yoke  of  Israel. 
+
+The  events  previously  related  will  sufficiently  account  for 
+the  anxiety  of  Jehoshaphat  that  the  growing  power  of  Moab 
+should  be  checked,  and  a  counter  league  formed  effectually  to 
+oppose  the  common  enemies  of  Palestine.  As  regards  any 
+religious  scruples  to  an  alliance  with  Israel,  he  may  have 
+argued  that  Joram  was  not  like  Ahaziah,  nor  even  like  Ahab 
+(2  Kings  iii.  2),  and  that  since  God  Himself  had  given  such 
+signal  victory  over  Moab,  a  common  invasion  of  their  land 
+might  even  be  pleasing  in  His  sight.  We  rarely  fail  to  find  a 
+satisfactory  or  even  a  religious  reason  for  doing  that  on  which 
+we  set  our  hearts.  But  it  does  seem  strange,  that  the  answer 
+which  Jehoshaphat  returned  to  the  invitation  of  Joram  to  join 
+him  in  the  campaign  against  Moab  should  have  been  precisely 
+the  same  as  that  which  he  had  given  on  the  disastrous 
+occasion  when  Ahab  asked  him  to  go  up  against  Ramoth- 
+gilead  (i  Kings  xxii.  4).  Perhaps,  however,  it  was  a  common 
+mode  of  expression  in  such  circumstances,  or  else  the  sacred 
+historian  may  have  wished  to  emphasize  the  folly  and  wrong 
+of  Jehoshaphat's  conduct  by  using  the  same  terms  as  formerly 
+in  the  unhappy  alliance  with  Ahab. 
+
+The  plan  agreed  upon  by  the  two  monarchs  was  to  make 
+invasion  of  Moab  from  the  south.  This,  not  only  in  order 
+to  ensure  the  co-operation  of  the  king  of  Edom,  who  had  now 
+joined  the  anti-Moabite  league,  and  to  protect  their  rear  and 
+
+
+114  Jehoshaphat  and  Jo  ram. 
+
+their  communications,  but  also  for  important  strategic  reasons. 
+Northern  Moab  was,  indeed,  subject  to  Israel,  but  the  Arnon 
+marked  the  boundary,  and  no  prudent  commander  would 
+attempt  to  force  such  a  position  as  the  line  of  the  Arnon  in 
+the  face  of  a  general  like  Mesha.  On  the  other  hand,  by 
+fetching  ''a  seven  days'  compass,"  and  advancing  from  the 
+south  and  through  Edom,  alike  their  retreat  was  covered  and 
+supplies  would  be  secured.  And  if  Mesha  could  be  drawn 
+into  the  wilderness  which  separated  Edom  from  Southern 
+Moab,  and  belonged  partly  to  the  one,  partly  to  the  other 
+country,  the  whole  of  Moab  might  be  overrun,  and  the  in- 
+vading army  from  the  south  join  hands  with  the  Israelitish 
+garrisons  north  of  the   Arnon. 
+
+But  once  more  the  incapacity,  if  not  the  treachery,  of  Edom 
+defeated  the  plans  of  the  allies.  Mesha  refused  to  be  drawn 
+into  the  wilderness  of  Edom.  As  we  understand  it,  his  army 
+was  posted  on  the  Moabite  side  of  the  boundary,  which. is  here 
+formed  by  tne  Wady  'el  Ahsa,i  while  higher  up  it  passes  into 
+the  Wady  Tufileh.  We  suppose  that  it  was  here,  or  in  some 
+other  dried-up  wady  close  by,  that  the  allies,  who  were  now 
+suffering»^.from  want  of  water,  suddenly  found  themselves  in 
+presence  of  an  enemy  that  swarmed  the  tangled  brushwood 
+and  thicket  around.  Unable  to  cross  the  Wady  and  engage 
+the  enemy,  who  seemed  ubiquitous,  or  to  retreat  into  the 
+wilderness,  the  position  of  the  allies  seemed,  humanly 
+speaking,  hopeless. 
+
+It  was  in  these  circumstances  that  the  grand  difference  in 
+principle  between  the  king  of  Israel  and  pious  Jehoshaphat 
+appeared,  as  it  always  does  in  seasons  of  trial  and  decision 
+between  the  servants  of  the  Lord  and  those  of  "strange 
+gods."     Joram  could  descry  nothing  but  impending  ruin,  and 
+
+^  It  has  been  objected  that  Wady  'el  Ahsa  is  a  permanent  watercourse. 
+But  this  has  not  been  ascertained  in  regard  to  all  seasons  of  the  year. 
+Besides  it  may  have  been  some  branch  or  side  wady  of  'el  Ahsa.  At  any 
+rate  the  narrative  implies  that  the  allied  armies  had  expected  to  find  water, 
+and  were  disappointed. 
+
+
+Appeal  to  Elisha.  115 
+
+his  only  thought  concerning  Jehovah  was  that  He  had  brought 
+the  three  kings  together  for  their  destruction.  Jehoshaphat, 
+though  often  and  sadly  failing  through  weakness  of  character, 
+was  yet  true  in  the  inmost  direction  of  his  heart  In  his 
+distress  he  instinctively  turned  to  the  Lord  for  guidance. 
+His  inquiry  for  a  "prophet  of  Jehovah"  brought  out  two 
+facts  of  infinite  comfort :  that  Elisha,  known  as  the  attendant 
+of  Elijah, 1  was — no  doubt  by  Divine  direction — present  in  the 
+camp ;  and  that  there  was  one  in  the  following  of  the  king  of 
+Israel — probably  one  of  the  superior  officers — who  knew  of  it, 
+being  evidently  in  sympathy  with  that  which  the  prophet  re- 
+presented, as  Obadiah  had  been  in  the  days  of  Ahab  (1  Kings 
+xviii.  3). 
+
+We  read  that  the  three  kings  went  to  the  tent  of  Elisha. 
+This  not  merely  from  apprehension  that  he  might  refuse  to 
+come  to  them,  nor  yet  from  humihty ;  but  probably  because 
+they  may  have  dreaded  the  effect  upon  the  host  of  such  words 
+as  formerly  Micaiah  had  spoken  in  similar  circumstances  (i 
+Kings  xxii.  17-28).  The  reception  which  this  incongruous 
+company  of  kings  met  at  the  hands  of  the  prophet  was 
+certainly  not  encouraging.  On  the  other  hand,  an  appeal  for 
+help  addressed  to  the  prophet  of  Jehovah  by  the  heathen  king 
+of  Edom  and  the  son  of  Ahab  seemed  to  treat  the  prophetic 
+office  as  if  it  had  involved  heathen  magic  and  divination,  just  as 
+Balak  of  old  had  sought  to  employ  Balaam  against  Israel. 
+To  an  appeal  of  such  a  character  Elisha  could  not  have 
+listened  ;  it  should — as  he  told  the  king  of  Israel — be  ad- 
+dressed to  the  prophets  of  Baal.  How  truly  Elisha  had  judged 
+Joram  appears  from  his  answer,  when  with  almost  incredible 
+dulness,  he  once  more  urged — presumably  as  the  reason  for 
+his  coming — that  Jehovah,  the  God  of  the  prophet,  and  the 
+old  enemy  of  the  house  of  Ahab,  had  brought  these  kings 
+together  for  their  destruction.  With  such  an  one  it  was 
+impossible  to  argue,  and  the  prophet  turned  from  him  to  the 
+king  of  Judah,  for  whose  sake  alone  he  would  consent  to 
+^  He  who  '"poured  water"  on  his  hands. 
+
+
+Ii6  JehoshapJiat  and  Jot'ain. 
+
+continue  the  interview,  or  would  seek  the  guidance  and  help 
+of  the  Lord, 
+
+It  has  been  assumed  by  a  certain  school  of  critics  that  when 
+Elisha  next  called  for  a  minstrel,  it  was  to  rouse  in  himself  the 
+prophetic  faculty,  or  else  that  such  was  the  common  mode  of 
+producing  prophetic  inspiration.  But  for  the  latter  assertion 
+there  is  not  a  tittle  of  evidence,^  while,  as  regards  the  former, 
+alike  Biblical  (i  Sam.  xvi.  i6)  and  heathen  testimony  ^  go  to 
+prove  that  the  purpose  for  which  music  was  employed  was  to 
+soothe,  not  to  excite  the  mind.  It  was  not  otherwise  in  the 
+present  instance.  From  the  agitation  of  his  interview  with 
+Joram  Elisha  was  restored  by  the  minstrel  to  quietness,  and 
+thus  prepared  for  receiving  the  Divine  communication.  This 
+was  twofold  :  it  gave  promise  of  deUverance  from  the  present 
+straits  and  of  complete  victory  over  Moab.  The  people  were 
+directed  to  make  the  Wady  full  of  pits — and  then,  without 
+sound  of  wind,  or  sight  of  rain,  would  the  Wady  be  filled  with 
+water,  and  the  host  set  free  from  their  present  straits.  But 
+this  was  only  preparatory.  A  complete  victory  would  be 
+granted  to  them,  and  in  their  victorious  progress  they  would 
+destroy  all  fenced  cities  and  absolutely  lay  waste  the  enemy's 
+country.  It  is  not  ours  to  vindicate  the  work  of  warfare  here 
+indicated,  although  not  prescribed'(v.  19  ^).  It  seems  to  be  op- 
+posed to  the  express  Divine  direction  in  Deut  xx.  19,  20.  In 
+judging  of  it  some  considerations  must,  however,  be  kept  in 
+view.     First  and  foremost  we  have  to  remember  the  spirit  of 
+
+^  Assuredly,  i  Sam.  x.  5  does  not  afford  such  ;  it  only  records  the  fact 
+that  such  prophetic  communities  employed  music,  not  that  they  incited 
+themselves  thereby  to  prophesy — if  indeed,  the  term  prophesy  in  that 
+connection  means  the  same  as  in  our  passage. 
+
+2  Bochart  has  collated  many  passages  to  that  effect  {Hicroz.  I.  2,  44) 
+from  which  Bahr  selects  the  following  (from  Cicero):  "They"  (the 
+Pythagoreans)  "  were  wont  to  recall  their  minds  from  strain  of  thought  to 
+quietness  by  means  of  singing  and  flutes." 
+
+2  Some  critics  have  regarded  ver.  19  as  only  a  prediction  of  what  they 
+would  do.  But  in  such  a  case  it  seems  difBcult  to  distinguish  between  a 
+prediction  of  certain  acts  and  at  least  an  implied  sanction  of  them. 
+
+
+Defeat  of  Moab.  1 1 7 
+
+the  times.  Nor  is  the  time  so  far  distant  when  a  mode  of 
+warfare  not  very  unHke  this  was  common  in  an  enemy's 
+country.  As  a  matter  of  fact,  this  mode  of  laying  waste  a 
+hostile  country  seems  to  have  been  general  at  that  time 
+among  all  nations.  Accordingly  it  is  frequently  represented 
+on  the  Assyrian  monuments,^  and  referred  to  in  classical 
+writings.2 
+
+It  may  be  of  interest  here  to  recall  two  points  which  might 
+otherwise  be  overlooked.  It  will  be  remembered  that  the 
+inscription  on  the  "  Moabite  stone "  makes  the  following 
+special  reference  to  this  mode  of  warfare  :  "  In  my  days  he 
+said,  [Let  us  go,]  and  I  will  see  my  desire  on  him  and  his 
+house.  And  Israel  (said),  I  will  destroy  with  an  everlasting 
+destruction."  Thus  the  Moabite  stone  to  a  certain  extent 
+bears  testimony  to  the  very  words  which  Elisha  had  used. 
+Again,  it  may  be  doubted  whether,  if  Israel  had  not  adopted 
+this  mode  of  warfare,  the  retreat  of  the  allied  army  from  Kir- 
+haraseth  would  not  have  been  followed  by  a  most  formidable 
+Moabite  invasion  into  Palestine.  As  it  was,  the  repair  of  the 
+havoc  wrought  in  his  country  must  have  engaged  all  the  energies 
+of  Mesha.  And  to  this  w^ork  of  necessary  restoration  and  re- 
+cuperation the  closing  part  of  the  Moabite  inscription  bears 
+testimony. 
+
+We  return  to  the  narrative  of  what  happened  on  the  morrow 
+of  the  interview  with  Elisha.  As  directed  by  the  prophet^  pits 
+had  been  dug — as  we  imagine,  either  in  the  rear  or  along  the 
+sides  of  the  camp  of  Israel,  although  we  know  too  little  of  the 
+actual  circumstances  to  venture  on  any  more  detailed  state- 
+ment. However  it  may  have  been,  the  Divine  prediction 
+by  Elisha  was  literally  fulfilled.  Once  more  it  all  happened 
+in  the  orderly  succession  of  events,  while,  if  viewed  by  itself, 
+
+^  Layard,  Nineveh  and  Babylon,  p.  588  ;  Monuments,  ist  Ser.  pi.  73  ; 
+2nd  Ser.  pi.  40. 
+
+^  As  Canon  Rawlinson  reminds  us,  in  the  Speaker's  Conitnentary,  by 
+Herodotus  and  Polybius.  Even  Deut.  xx.  19,  20  seems  to  imply  that  this 
+was  the  common  mode  of  warfare. 
+
+
+Ii8  JcliosJiapJiat  and  Joram. 
+
+the  issue  would  seem,  as  in  the  highest  sense  it  was,  miraculous. 
+And  this  indeed  holds  true  of  the  record  of  most  Biblical 
+miracles,  that  they  are  the  statement  of  effects,  without  the 
+assignment  or  explanation  of  the  causes  that  led  up  to  them. 
+In  the  present  instance,  it  was  no  doubt  a  sudden  storm  that 
+had  burst  in  the  mountains  of  Moab  which  sent  a  rush  of 
+water  down  the  Wady  by  which  Israel  was  camped.  The 
+prophetic  historian,  who  loves  to  connect  Jehovah's  deliverance 
+with  the  loved  services  of  the  sanctuary,  reminds  us  that  it  was 
+"when  the  meat-offering  was  offered/'  that  "  there  came  water 
+by  the  way  of  Edom," — to  disappear  as  suddenly  as  it  had  come, 
+when  the  object  had  been  served. 
+
+The  Israelites  in  their  camp  had  seen  it,  and  hastened  to  quench 
+their  thirst.  The  Moabites  also  saw  it,  but  to  them  it  seemed 
+as  the  eastern  sun  shone  on  the  water  in  the  pits,  reddened  as 
+it  was  by  the  colour  of  the  soil,  that  they  were  gazing  on  pools 
+of  blood.  Their  late  expedition  into  Judah  suggested  a  ready 
+explanation  of  the  strange  sight.  Perhaps  their  superstition 
+might  lead  them  to  imagine  that  Chemosh,  of  whose  help  we 
+read  so  much  in  the  Moabite  inscription,  had  now  granted  to 
+Moab  a  success  precisely  similar  to  that  of  Judah.  The  kings 
+were  destroyed — they  had  smitten  one  another  :  now,  there- 
+fore, Moab  to  the  spoil !  Meantime,  the  commanders  of  the 
+allied  army  would  naturally  keep  their  men  within  their  camp, 
+so  as  to  allow  the  disorderly  rush  of  Bedawin,  intent  on  spoil, 
+to  cross  the  Wady  and  approach  them  quite  closely^  before 
+suddenly  sallying  forth  to  inflict  indiscriminate  slaughter. 
+Mesha  was  too  wary  to  risk  another  defeat  of  the  same  kind. 
+He  retreated  before  Israel,  evacuating  every  fortified  town,  till 
+he  reached  the  stronghold  of  Kir-haraseth,  where  he  resolved 
+to  make  a  final  stand.  The  Jewish  army  slowly  followed  the 
+retreating  enemy,  destroying  every  town  and  laying  waste  the 
+country  around.  Their  progress  was  arrested  at  the  walls  of 
+Kir-haraseth. 
+
+As  we  consider  the  situation  of  that  fortress,  we  scarcely 
+wonder  that  the  allies  found  themselves  unable  to  do  more 
+
+
+Siege  of  Kir-haraseth.  119 
+
+than  harass  the  garrison  by  posting  sharpshooters  on  the  hills 
+around  ("the  slingers  went  about  it"),  and  attempt  to 
+reduce  it  by  hunger.  The  position  of  Kir-Moab,  "  the  fortress 
+of  Moab,"  (Isaiah  xv.  1 1),  Kir-hareseth  (Isaiah  xvi.  7),  Kir- 
+haresh  (Isaiah  xvi.  11),  or  Kir-haraseth — for  it  bears  all  these 
+names,  which  seem  to  mean  ^'fortress  of  brickwork," — has 
+been  ascertained  beyond  reasonable  doubt.  The  Chaldee 
+paraphrast  designates  it  (Isaiah  xv.  i)  Keraka  deMoabh, 
+which  exactly  answers  to  the  modern  name  Kerak.  A  con- 
+tinous  ascent  from  the  south,  amidst  Alpine  scenery,  leads 
+up  to  Kerak,  which  lies  3,720  feet  above  the  Mediterranean. 
+From  the  last  crest,  whence  there  is  a  magnificent  prospect 
+far  away,  we  look  down  into  the  "  VVady  of  Kerak,  some  t,8oo 
+feet  of  nearly  sheer  precipice  on  the  opposite  side."  ^  Along 
+thai  Wady  winds  among  rocks  the  road,  so  narrow  that  a  few 
+resolute  men  could  hold  it  against  an  army.  As  the  Wady 
+widens,  the  ground  is  cultivated  ^'  with  olives,  figs,  pome- 
+granates, and  a  few  vineyards  and  patches  of  corn.''  Soon 
+Kerak  itself  is  seen,  towering  high  aloft.  To  reach  it,  we  must 
+first  descend  into  the  valley.  Then  an  hour's  climb  up  the 
+opposite  cliff  brings  the  traveller  to  an  arched  tunnel  of  about 
+eighty  yards  in  length,  through  which  he  emerges  into  the 
+city  of  Kerak. 
+
+The  plateau  on  which  the  town  stands  is  almost  level,  and 
+measures  from  800  to  1,000  yards  on  each  face  of  the  triangle 
+which  the  city  forms,  and  of  which  the  north-eastern  side  is 
+the  longest.  Here,  and  to  a  less  degree  at  the  south-west 
+angle,  the  plateau  is  connected  with  the  heights  which  surround 
+Kerak  on  every  side.  But  everywhere  else  the  town  is  cut  off 
+from  the  encircling  range  by  "  Wadies  (in  part)  from  1,000  to 
+1,500  feet  deep,  with  steeply  scarped  or  else  rugged  sides."  ^ 
+
+^  Isaiah  xv.  and  xvi.  should  be  studied  in  connection  with  the  history  ot 
+Moab. 
+
+^  Canon  Tristram,  u.s.  p.  67.  But  in  our  description  use  has  also  been 
+made  of  the  account  of  Badeker-Socin  in  Riehm's  Hand-wortcrb. 
+
+^  Comp.  Tristram,   ti.s. 
+
+
+I20  JcJioshaphat  and  Jorain. 
+
+If  we  imagine  this  isthmus  of  rock,  jutting  into  and  rising  above 
+a  sea  of  deep  Wadies,  itself  surrounded  by  a  broad  wall  with 
+towers  and  other  defences^  and  crowned  by  a  city  to  which 
+there  were  only  two  entrances,  each  through  a  tunnel  in  the 
+side  of  the  cliff — we  can  form  a  picture  of  Kir-haraseth,  as  it 
+appeared  to  the  Jewish  host  that  gazed  on  it  from  the  heights 
+around. 
+
+But  although  the  allied  army  could  not  reduce  the  city, 
+"  the  slingers  "  posted  on  the  overlooking  heights  might  inflict 
+serious  losses  on  the  garrison.  In  fact,  the  place  would  soon 
+have  become  untenable.  In  these  circumstances  Mesha  en- 
+deavoured, at  the  head  of  700  swordsmen,  to  cut  his  way 
+through  the  besieging  army  in  the  direction  where  the  king  of 
+Edom  was  posted — either  because  this  was  the  weakest  point 
+in  the  camp  of  the  allies,  or  probably  because  he  may  have 
+expected  less  resistance  in  that  quarter.  Driven  back  into  the 
+city,  the  frenzy  of  despair  seized  him.  The  idea  underlying 
+sacrifice  was  in  heathen  worship  also  that  of  substitution, 
+though  not  as  provided  by  the  mercy  of  God,  but  in  order  to 
+appease  His  wrath.  It  was  not  the  infinite  compassion  and 
+love  of  God  which  provided  a  ransom,  but  the  despair  of  mercy 
+and  goodness  that  suggested  such  means  as  the  last  hope  of 
+expiation.  Hence  that  which  was  nearest  and  dearest  to  a 
+man  was  offered  up  to  propitiate,  if  possible,  a  god  who  was 
+not  known  to  be  full  of  compassion.  And  so  the  king  of 
+Moab  now  took  his  eldest  son,  who  should  have  succeeded 
+him  on  the  throne,  and  in  sight  of  besiegers  and  besieged 
+offered  him  on  the  wall  as  a  burnt  offering.  Thus  would  he 
+conciliate  Chemosh  ;  thus  also  would  he  show  his  devotion  to 
+his  country.  It  was  a  horrible,  sickening  spectacle,  which  made 
+deepest  impression  on  all  onlookers — friend  as  well  as  foe. 
+The  undertaking  on  which  Israel  had  engaged  its  allies  became 
+hateful  to  all — and  the  allied  army  retired  from  before  Kir- 
+haraseth.     So  ended  the  campaign  against  Moab. 
+
+
+CHAPTER    X. 
+
+^ht  JEimstri)  of  (Eiielta  -as  the  JJcr0onal  fiepreseutatjbe 
+of  the  gibing  (gob  in  Israel. 
+
+The  Prophet's  Widow  and  her  Miraculous  Deliverance— The  Shunammite 
+and  Elisha—The  God-given  Child— His  Death  and  Restoration  to  Life 
+—Elisha  at  Gilgal  with  the  "Sons  of  the  Prophets  "—"Death  in  the 
+Pot  "  and  Removal  of  the  Harm— The  Man  from  Baal-Shalisha— God's 
+Sufficient  and  Unfailing  Provision  for  His  own. 
+
+(2  Kings  iv.) 
+
+THERE  is  something  grand  and  truly  characteristic  of  ''  pro- 
+phetic history  "  when  the  BibUcal  narrative  abruptly  turns 
+from  the  expedition  against  Moab,  which,  although  so  simply 
+told,  was  of  such  deep  and  lasting  political  importance,  to  tell 
+what  reads  like  a  summary  of  the  prophetic  activity  of  Elisha. 
+It  shows,  on  the  one  hand,  how  all  events  are  regarded  from 
+the  Divine  point  of  view,  while  on  the  other  hand,  it  helps  us 
+to  understand  the  real  meaning  and  purpose  of  the  miraculous 
+element  in  the  ministry  of  Elisha,  as  designed  to  recall  Israel 
+to  a  realising  sense  of  the  presence  and  power  of  Jehovah,  and 
+by  such  religious  revival  to  avert  imminent  national  judgment. 
+Accidentally  we  obtain  in  the  course  of  the  narrative,  inter- 
+esting side-glimpses  into  private  and  public  life  in  Israel, 
+which  generally  confirm  our  confidence  in  the  historic  truth 
+of  what  is  related. 
+
+At  the  outset  we  may  say  that  the  impression  wliich  this 
+history  as  a  whole  makes  on  us,  is  that  it  seems  transferred  or 
+perhaps  rather  summarised,  from  some  special  narrative  or  work 
+descriptive  of  the  activity  of  EHsha.  The  incidents  do  not 
+seem  arranged  in  their  strict  chronological  succession,  but 
+grouped  according   to  their  internal  connection,  so  that  an 
+
+K 
+
+
+122  ElisJia. 
+
+account  of  the  more  private  activity  of  the  prophet,  as  regards 
+individuals,  families,  and  communities,  is  followed  by  that  of 
+his  public  activity,  in  its  bearing  on  Israel  and  Syria.  Again, 
+it  is  reasonable  to  suppose  that  all  which  is  here  recorded  had 
+not  occurred  exclusively  during  the  reign  of  Joram,  which  lasted 
+only  twelve  years  (2  Kings  iii.  i).  For  as  Elisha  died  during 
+the  reign  of  Joash  (2  Kings  xiii.  14),  his  ministry  must  have  ex- 
+tended over  four  reigns,  and  lasted  altogether  about  fifty-five 
+or  fifty-seven  years.  Hence  there  would  be  a  blank  of  forty- 
+five  years  in  the  narrative  if  all  that  is  recorded  of  Elisha  had 
+taken  place  in  the  time  of  Joram.  But  the  deepest  lesson 
+which  the  life  and  ministry  of  Elisha  were  intended  to  teach 
+was  to  set  forth,  as  against  the  dark  background  of  coming 
+judgment  upon  Israel's  apostasy,  the  tender  care,  the  sufficient 
+provision,  the  ever-present  help  which  the  Lord  would  extend 
+to  His  own  servants  and  people. 
+
+The  first  narrative  ^  in  this  biographical  sketch — as  for  want 
+of  better  name  we  may  term  it — has  somewhat  inaptly  been 
+compared  with  the  account  of  Elijah's  miraculous  provision 
+for  the  widow  of  Sarepta  (i  Kings  xvii.  9-16).  On  carefully 
+comparing  the  two  narratives,  they  will  be  seen  to  differ  in 
+every  detail,  except  this,  that  in  both  instances  the  recipient  of 
+the  benefit  was  a  widow.  But  besides,  the  great  object  and 
+meaning  of  the  miracle  at  Sarepta  was  to  be  a  prefigurement 
+of  the  mercy  and  help  to  be  extended  to  the  Gentile  world, 
+with  all  of  warning  and  teaching  to  Israel  which  this  implied. 
+Its  counterpart,  in  the  history  of  Elisha,  would  be  the  healing 
+of  Naaman,  rather  than  this  narrative  of  Divine  help  granted 
+to  the  impoverished  widow  of  one  of  the  sons  of  the  prophets. 
+
+Josephus  and  some  of  the  Rabbis  have  suggested  that  this 
+widow  had  been  the  wife  of  that  Obadiah  who  had  provided 
+shelter  and  food  for  the  persecuted  prophets  in  the  reign  of 
+Ahab  (i  Kings  xviii).  But  here  also  the  only  point  of  simi- 
+larity between  the  two  narratives  is  that  the  widow  of  the 
+prophet  pleads,  in  the  words  of  Obadiah  (i  Kings  xviii.  12), 
+1  And  the  latter  part  of  the  second  narrative,  2  Kings  iv.  32-37. 
+
+
+The  Prophet's    Widoiv.  123 
+
+that  her  husband  "  did  fear  Jehovah."  The  narrative  bears 
+that  on  the  death  of  her  husband,  who  had  been  one  of  the 
+sons  of  the  prophets,  and  (what  is  even  more  important)  ap- 
+parently well  known  to  Elisha  as  one  that  feared  Jehovah,  the 
+creditor  had  come  to  take  her  two  sons  as  bondmen.  We 
+know  not  through  what  adverse  circumstances  the  family  had 
+been  so  far  reduced  ;  but  we  can  readily  believe  that  in  those 
+days  faithfulness  to  Jehovah  might  lead  to  outward  reverses, 
+not  to  prosperity.  And  when  he  was  removed  who  had  been 
+the  support  of  his  family  by  that  daily  labour,  which  evidently 
+was  not  regarded  as  incompatible  with  his  vocation  as  one  of 
+the  *'  sons  of  the  prophets,"  then  "  tlie  creditor  "  seized  on  the 
+sons  of  the  widow.  In  so  doing  he  availed  himself  of  his  legal 
+right  in  the  matter  (Lev.  xxv.  39 ;  comp.  Matt,  xviii.  25),^ 
+although  his  action  was  unjustifiably  harsh  and  selfish.  If  in 
+these  circumstances  the  prophet  had  not  given  heed  to  the 
+appeal  of  the  widow,  it  would  have  implied  either  that  he 
+was  not  the  living  medium  between  God  and  His  people,  which 
+he  professed,  or  else  that  Jehovah  was  not  the  living  and 
+the  true  God  in  the  sense  in  which  Elisha  had  preached  Him. 
+With  reverence  be  it  said,  the  appeal  to  the  prophet  could 
+no  more  have  remained  unanswered  than  a  cry  for  help 
+addressed  to  Christ  in  the  days  of  His  flesh. 
+
+A  similar  conclusion  would  be  reached  if,  somewhat  real- 
+istically, we  were  to  transport  this  history  into  our  own  days.  If 
+a  widow  were,  in  like  circumstances,  to  seek  guidance  and 
+comfort,  she  would  be  pointed  to  the  living  God,  and  to  His 
+sure  promise  of  help  in  all  straits.  But  what  is  this  when 
+translated  into  concrete  fact  other  than  the  miracle  wrought 
+at  the  intercession,  or,  if  you  please,  at  the  instance,  though 
+not  by  the  hands,  of  Elisha?  And  may  we  not  say  that,  as 
+regards  the  result,  the  same    miracle    is    still    daily  enacted, 
+
+^  The  Athenian  and  Roman  law  equally  sanctioned  servitude  for  debt, 
+— in  fact,  this  seems  to  have  been  the  universal  practice  in  the  ancient 
+world,  and  the  law  of  Moses  only  softened  it  by  special  injunctions  and 
+provisions,  and  modified  it  by  the  law  of  the  Jubilee. 
+
+
+1 24  Elisha. 
+
+though  not  in  the  same  manner  as  regards  the  succession  of 
+events  ?  In  truth,  the  two  worlds  of  the  seen  and  unseen 
+are  not  so  wide  apart  as  some  imagine.  To  many  of  us 
+the  answer  to  the  ^'  Give  us  this  day  our  daily  bread,"  comes 
+directly  from  heaven,  and  more  than  the  daily  bread,  or  the 
+like  of  it,  is  assured  to  us  in  the  realisation  of  His  daily  and 
+indirect  help.  And  if  in  this  history  all  this  was  exhibited  in 
+a  concrete  manner,  it  was  required  in  the  circumstances  of  the 
+time  and  for  the  purposes  of  the  mission  of  Elisha,  although 
+its  lesson  is  to  all  time  and  to  all  men. 
+
+We  mark,  that  in  order  to  put  aside  any^idea  of  direct  agency 
+in  the  matter  on  the  part  of  the  prophet,  the  miraculous  help 
+was  not  sent  by  the  hands  of  Elisha,  but  connected  so  far  as 
+possible  with  some  visible  and  ordinary  means.  It  is  in  this 
+manner  that  we  explain  the  question  of  the  prophet,  what  the 
+widow  liad  in  her  house.  And  when  she  replied,  "  Anointing 
+oil,"  ^  the  promised  help  was  connected  with  the  use  of  it  as  a 
+means.  The  widow  was  directed  to  borrow  empty  vessels  from 
+all  her  neighbours,  then  to  shut  the  door  behind  her  and  her 
+sons,  and  to  pour  from  what  she  had  into  those  empty  vessels, 
+when  the  multiplying  blessing  of  God  would  fill  them.  It  would 
+be  difficult  to  imagine  any  symbol  more  full  of  meaning  and 
+instruction,  alike  in  its  general  direction  and  in  its  details. 
+It  showed  that  God  was  a  present  help.  His  special  blessing, 
+given  when  needed  directly  and  miraculously,  would  increase 
+our  scanty  provision.  Nor  can  we  be  mistaken  in  supposing 
+that  the  direction  to  shut  the  door  behind  her  and  her  sons 
+was  intended  to  enjoin  not  only  reverent  acknowledgment, 
+but  silent  worship  of  God.  And  truly  so  ought  we  also,  when 
+seeking  help  from  Him,  ever  to  feel  ourselves  alone  with  Him, 
+
+1  Not  "a  pot  of  oil."  The  expression  occurs  only  in  this  passage. 
+It  unquestionably  means  oil  for  anointing,  which,  it  is  well  known, 
+is  in  universal  use  in  the  East.  But  it  must  be  left  undetermined 
+whether,  as  the  LXX.  and  the  Vulgate  imply,  there  was  only  left  sufficient 
+for  anointing  once,  and  whether  the  answer  indicates  that  this  had  formerly 
+furnished  the  means  of  livelihood  to  the  family.  The  latter  view  seems 
+suggested  by  verse  7. 
+
+
+At  Slmiiem.  125 
+
+combining,  like  her  of  old,  absolute  trust  in  the  promise  of 
+His  Word  with  active  obedience  to  His  direction :  doing 
+what  lies  in  us  while  praying;  and  praying  while  doing  it. 
+Lastly,  it  seems  quite  in  accordance  with  what  had  passed 
+that  when  all  the  borrowed  vessels  were  full,  and  the  oil 
+had  stayed,  the  widow  should,  before  disposing  of  anything, 
+have  gone  to  the  prophet  for  his  direction,  and,  we  may 
+add,  equally  so  that  Elisha  should  have  told  her  first  to  pay 
+her  creditor,  and  then  to  employ  the  rest  towards  the  sus- 
+tenance of  herself  and  her  sons. 
+
+The  second  narrative  ^  in  this  series  of  "  the  acts  "  of  the 
+prophet,  transports  us  to  the  quiet  of  the  village  of  Shunem, 
+and  the  retirement  of  a  "pious  Israelitish  home.  We  know 
+Shunem  from  our  former  history, ^  but  then  it  was  associated 
+with  battle  or  else  with  scenes  far  different  from  those  to 
+which  we  are  about  to  be  introduced.  The  modern  Sulem 
+is  a  wretched  collection  of  mud-hovels.  Except  from  its 
+situation,  it  scarcely  recalls  the  thriving,  healthy,  happy,  agri- 
+cultural village  of  old,  as  it  seemed  to  look  in  sunny  con- 
+tentment over  the  rich  plain  of  Esdraelon.  It  was  in  close 
+contiguity  to  the  summer  palace  of  Jezreel,  which  was  perched 
+on  the  hill  above,  occupying  a  position  equally  beautiful  and 
+commanding.  And  despite  its  nearness  to  a  corrupt  court, 
+there  was  quite  another  moral  atmosphere  about  its  homes. 
+Shunem  seems  to  have  preserved  something  of  the  old 
+Israelitish  spirit,  some  of  that  purity,  earnestness,  impulsive- 
+ness, and  we  had  almost  said  intenseness,  which  even  long 
+afterwards  characterised  Northern  Palestine  and  the  people 
+of  Galilee.  A  sturdy  sense  of  independence  (2  Kings  iv.  13), 
+combined  with  reverent  simplicity  (verses  9,  10),  warm  home- 
+aifections  (verses   16,   18,   20),    earnest   religiousness,   and    an 
+
+1  Here  also  there  are  peculiar  expressions,  confirming  the  view  that  the 
+wliole  section  is  derived  from  some  special  work  on  the  subject. 
+
+^  We  think  of  it  in  connection  with  such  battles  as  those  of  Gideon, 
+of  Saul  at  Gilboa,  and  generally  with  those  fought  on  or  by  the  plain 
+of  Esdraelon,  as  well  as  with  the  near  palace  of  Jezreel. 
+
+
+126  Elisha. 
+
+unwavering  spiritual  faith  (verses  23,  24^  28) — such  are  the 
+ideas  which  we  have  learned  to  associate  with  Shunem.  And 
+the  very  physique  of  this  population  seems  to  have  corresponded 
+with  this  moral  healthiness.  Apparently  Shunem  was  not  only 
+the  home  of  wealthy  men,  but  also  of  fair  women,  such  as 
+of  the  beautiful  Abishag,  King  David's  maiden  wife  (i  Kings 
+i.  3),  or  the  lovely  Shulamite^  who  ravished  Solomon's  heart 
+(Cant.  vi.  13,  etc.),  and  of  the  Shunammite  of  our  present  nar- 
+rative. 
+
+We  infer  that  at  this  time  Elisha  had  been  frequently 
+passing  between  Samaria  ^  and  what  was  probably  his  ordinary 
+place  of  abode  on  Carmel.  The  direct  road  from  the  one 
+to  the  other  place  does  'not  lead  by  Shunem,  which  lies 
+somewhat  farther  to  the  east,  at  the  south-western  slope  of 
+"  little  Hermon,"  and  on  the  opposite  side  of  Esdraelon  from 
+Carmel,  at  a  distance  of  about  fifteen  or  twenty  miles  across 
+the  plain.  But  it  so  happened  that  on  a  certain  occasion 
+Elisha  "  passed  over  [thus  literally]  to  Shunem."  According 
+to  good  Israelitish  custom,  hospitality  would  be  offered  to  him  ; 
+but  it  was  only  what  was  becoming  that  such  should  have  been 
+extended  to  the  prophet  by  the  mistress  of  what  seems  to  have 
+been  the  "great"  house ^  at  Shunem.  We  infer  that  Elisha 
+was  at  first  unwilling  to  accept  the  invitation  to  the  "  great " 
+house.  Probably  there  were  few  such  in  the  land  where  the 
+prophet  could  have  felt  himself  at  home.  But  when  he  yielded 
+to  the  urgent  yet  modest  importunity  of  the  Shunammite,  he 
+must  soon  have  perceived  that  this  was  not  only  a  pleasant 
+
+^  Shunem  and  Shulem  evidently  represent  the  same  name,  and  the 
+Shulamite  {Shtila7nith)  of  Canticles  is  rendered  in  the  Lxx.  Sunamitis 
+(with  an  n). 
+
+2  There  could  have  been  no  occasion  for  his  resorting  to  Jezreel. 
+
+^  It  matters  little  whether  we  regard  the  expression  "great  "  as  referring 
+to  wealth,  or,  which  from  the  after  history  seems  more  likely,  to  standing 
+and  family  (comp.  I  Sam.  xxv.  2  ;  2  Sam.  xix.  32).  The  further  question, 
+why  the  mistress,  not  the  master,  of  the  house  is  named,  may  be  answered 
+by  the  suggestion  that  the  property  had  originally  been  hers,  or  else  that 
+her  piety  made  her  take  the  lead  in  all  good  works,  to  which  her  husband 
+was  more  the  consenting  than  the  proposing  party. 
+
+
+The  '^  Great'''  Hotise  at  Sluinein.  127 
+
+place  of  rest  on  the  journey,  but  one  to  which  he  might  safely 
+resort  for  refreshment  of  body  and  mind.  We  are  too  apt 
+to  apply  our  modern  habits  of  thought  and  expression  to  the 
+relationships  of  ancient  times.  Yet  this  may  here  be  pointed 
+out,  that  the  manner  in  which  the  Shunammite  marked  Elisha 
+as  a  "  holy  "  man  of  God,  indicates  enlightened  piety ;  the 
+care  with  which  she  received  him,  affectionate  regard  ;  the 
+provision  which  she  made  for  his  absolute  privacy,  unselfish- 
+ness and  reverence ;  and  the  circumstance  (later  alluded  to)  of 
+her  attendance  on  Elisha's  religious  instruction  (v.  23),  a  certain 
+spiritual  relationship  between  them.  And  so  it  came  that, 
+after  this  first  visit,  "  as  oft "  as  Elisha  "  passed  across  "  the 
+plain  of  Esdraelon,  "  he  turned  aside  "  [and  this  also  hterally, 
+since  Shunem  was  not  in  the  direct  road]  to  enjoy  the  hos- 
+pitality of  the  pious  mistress  of  the  ^' great"  house  at 
+Shunem. 
+
+But  the  frequency  of  his  visits,  so  far  from  inducing  fami- 
+liarity, only  led  to  increased  reverence  on  the  part  of  the 
+Shunammite.  Her  observation  had  led  her  to  regard  Elisha 
+as  not  only  far  different  from  those  who  at  that  period  may 
+sometimes  have  passed  as  prophets,  but  even  from  ordinary 
+sons  of  the  prophets — even  as  a  man  of  God  distinguished 
+by  holiness.  All  this  she  urged  on  her  husband  as  she  pro- 
+posed to  make  provision  not  only  for  his  more  proper  enter- 
+tainment, but  for  his  complete  privacy.  In  Palestine  an 
+outside  stair  led  up  from  the  road  to  the  roof  of  the  house, 
+so  that  it  was  not  necessary  to  pass  through  the  interior  of  a 
+dwelling.  Part  of  the  roof  of  the  house  she  would  now 
+surround  with  walls,  so  making  an  "  upper  chamber "  of  it. 
+This  would  give  to  the  prophet  at  all  times  undisturbed,  and,  if 
+he  wished  it,  unobserved  access  to,  and  egress  from,  his  lodging. 
+This  was  indeed  thoughtful,  unselfish,  and  withal,  respectful 
+kindness  and  hospitality.  The  chamber  thus  provided,  as 
+well  as  the  scanty  furnishing  of  it,  may  seem  to  our  modern 
+notions  very  simple.  Yet  it  implied  the  surrender  by  the  family 
+of  the  part  of  the  house  most  appreciated  in  the  East,  while  the 
+
+
+128  EI  is  ha. 
+
+furniture,  however  scanty  according  to  our  ideas,  included  not 
+only  more  but  better  than  was  ordinarily  found  in  the  very 
+simple  sleeping  apartments  of  Orientals.^  Evidently  the  object 
+was  to  provide  for  a  prolonged  stay  on  the  part  of  the 
+prophet,  and  for  his  complete  privacy,  and,  as  appears  from 
+the  context  (v.  13),  it  included  not  only  the  prophet,  but  also 
+his  servant. 
+
+There  was  such  delicacy  about  all  this  ^'trouble"  with 
+which  the  Shunammite  had  been  "troubled  "^  for  him  and  his 
+servant,  that  Elisha,  who  had  at  first  been  reluctant  to  accept 
+any  hospitality,  now  regularly  availed  himself  of  the  provision 
+for  his  comfort  and  retirement.  It  was  only  natural  that 
+he  should  have  thought  of  some  return  to  his  hostess.  Ac- 
+cordingly on  one  occasion  he  directed  his  servant  Gehazi,^ 
+whom  we  here  meet  for  the  first  time,  to  inquire  of  the 
+Shunammite  what  service  he  could  render  to  her.  The 
+suggestion  :  "  Is  there  [ought]  to  be  spoken  for  thee  [is  there 
+occasion  for  it]  to  the  king  or  the  captain  of  the  host  ?  " 
+indicates  a  somewhat  insecure  state  of  things,  as  well  as  a 
+somewhat  despotic  order  in  the  State  when  "the  captain  of 
+the  host "  stands  ominously  near  to  the  king.  At  the  same 
+time  it  also  implies  the  existence  of  better  relations  between  the 
+monarch  and  the  prophet,  and  so  confirms  the  view  formerly 
+expressed  that  the  ministry  of  EHjah  and  Elisha,  attested  at 
+almost  every  stage  by  direct  Divine  manifestations,  tended 
+at  least  to  arrest  the  progress  of  apostasy  in  Israel. 
+
+^  "A  table  "was  not  ordinarily  placed  in  a  mere  sleeping-room,  while 
+the  expression  "chair,"  not  "stool,"  as  in  the  A.  V.,  indicates  a  seat  of 
+honour.  Comp.  here  i  Kings  x.  19  ;  i  Snm.  i.  9,  iv.  13;  Psa.  cxxii.  5  ; 
+Neh,  iii.  7.  The  conceit  of  the  Rabbis  that  the  Shunammite  was  a  sister 
+of  Abishng  (i  Kings  i.)  needs  not  refutation.  If  the  latter  had  lived,  she 
+would  at  that  time  have  probably  been  about  140  years  old. 
+
+
+The  word  means  unrest  and  trouble,  rather  than  care. 
+
+
+3  Probably  "Valley  of  Vision."  The  name  is  perhaps  derived  from 
+his  birth-place,  which  may  have  been  so  called  from  the  sojourn  there,  or 
+near  it,  of  a  prophet. 
+
+
+The  Promise  to  tJie  SJmnainmitc.  129 
+
+The  answer  of  the  Shunammite  to  Gehazi  :  ^  "I  dwell 
+among  my  own  people,"  manifests  not  only  a  true  Israelitish 
+spirit  of  frank  independence,  but  reflects  a  favourable  light 
+on  that  district,  which  (as  all  other  parts  of  the  country) 
+would  be  primarily  under  the  rule  of  its  own  eldership.  What 
+followed  is  most  pictorially  set  forth.  To  the  question  of 
+Elisha,  what  there  was  to  be  done  for  her,  Gehazi,  who 
+certainly  had  keen  w^brldly  insight,  replied  :  "  Surely,  she  has  no 
+son,  and  her  husband  is  old."  It  was  only  a  suggestion,  and 
+in  this  respect  also  characteristic  of  Gehazi.  But  now,  when 
+it  was  not  to  be  a  favour  asked  of  man,  but  wondrous 
+mercy  to  be  granted  by  God,  Elisha  spake  to  the  Shunammite 
+not  through  Gehazi  but  directly,^  giving  her  the  promise  of 
+what  under  the  Old  Testament  was  regarded  as  bringing  far 
+deeper  than  merely  a  mother's  joy.  And  there  is  about  her 
+answer  such  air  of  genuineness,  a  mingling  of  hope  with  a  not 
+daring  to  expect,  and  withal  such  absence  of  any  legendary 
+embellishment,  that  we  can  almost  imagine  ourselves  hearing 
+her  speak  it,  as  she  respectfully  stands  within  the  shadow  of 
+the  door. 
+
+It  was  as  Elisha  had  said,  and  the  Shunammite  became  the 
+joyous  mother  of  a  son.  Since  then  years  had  passed,  during 
+which  we  have  no  record  of  Ehsha's  continued  visits  to  the 
+"great"  house,  now  gladdened  by  the  voice  of  a  child. 
+Perhaps  he  no  longer,  or  at  least,  not  so  often,  passed  by  ;  more 
+probably  Scripture,  after  its  wont,  is  silent  on  that  which  is  purely . 
+l)ersonal  in  the  history.  But  the  child  had  passed  through 
+five  of  the  stages  which  Jewish  affection,  watching  with  special 
+fondness  the  opening  life,  has  successively  marked  by  no  less 
+than  nine  designations. ^     They  are  so  interesting  that  we  shall 
+
+^  From  ver.  13,  we  infer  that  the  subject  in  the  last  sentence  of  ver.  12  is 
+Gehazi,  not  Elisha. 
+
+-  Our  Rabbis  have  it  that  of  three  treasures  God  reserves  to  Himself 
+the  key  :  of  rain,  of  children,  and  of  raising  the  dead. 
+
+•^  Comp.  Sketches  of  Jewish  Social  Life  in  the  Days  of  Chi'ist,  pp. 
+103,    104. 
+
+
+1 30  Elisha. 
+
+here  put  them  down.  The  yded  ("  born,"  "  babe  "  i)liad  succes- 
+sively become  2iyonek,  or  suckUng,  and  an  olel,  who,  no  longer 
+satisfied  with  only  this  nourishment,  asks  for  bread,^  then  a 
+game/,  or  weaned  one,  and  next  a  taj>h,  one  who  clings  to  his 
+mother.  And  he  had  passed  through  this  stage  also,  and  was 
+just  entering  on  the  stage  designated  by  elem,  becoming  firm 
+and  strong.  It  was  the  time  of  harvest,  and  the  child  was 
+going  out  to  his  fiither  to  the  reapers,  when  the  hot  Eastern 
+sun  struck  his  head.  At  his  cry  of  pain  the  father  bade  one 
+of  the  servants  carry  the  child  back  to  his  mother.  All  that 
+long  morning  she  pressed  his  aching  head  to  her  bosom,  till 
+when  the  mid-day  sun  shot  down  its  arrows  he  lay  still  and 
+dead  in  her  arms.  Not  a  cry  of  lament  escaped  that  brave 
+mother  to  tell  them  in  the  house  of  the  terrible  desolation  that 
+had  swept  over  it.  Her  resolve  was  taken  with  the  rapidity 
+and  unfailing  certitude  that  comes  of  faith.  To  Elisha,  or 
+rather  to  Elisha's  Godj !  He  had  given  ;  He  could  restore  the 
+child.  In  any  case  she  would  go  with  her  complaint,  not  to 
+man,  but  to  the  God  of  almighty  help,  and  not  rest  satisfied 
+with  anything  unless  it  came  directly  from  Him. 
+
+It  was  quite  in  accordance  with  all  this,  and  very  significant, 
+that  in  silence  she  carried  her  dead  child  to  the  prophet's 
+chamber,  and  there  laid  him  on  the  bed.  Here  let  him  rest, 
+as  it  were,  in  keeping  of  the  prophet's  God,  whose  promise 
+had  first  brought  him,  till;  if  ever,  the  prophet's  God  would 
+again  weaken  him.  And  so,  like  the  prophet's  widow  when  she 
+received  the  Divine  help,  she  shut  the  door.  For,  what  had 
+man  to  do  with  it  ?  her  appeal  lay  directly  to  God.  But  she 
+must  have  been  a  strong  as  well  as  a  good  woman,  strong  also 
+in  faith,  when  she  could  so  well  keep  her  feelings  under  control 
+that  her  husband  had  not  even  suspicion  of  aught  amiss  when 
+she  preferred  the  unusual  request  that  one  of  the  servants  and 
+
+^  So  also  in  Isa.  ix.  6.  For  an  enumeration  of  the  passages  in  which  the 
+different  designations  are  used,  see  Skilchcs  ofjcivish  Social  Life, 
+
+2  Lam.  iv.  4  :  "The  tongue  of  the  yonek  cleavelh  to  the  roof  of  his 
+mouth  for  thirst  :  the  olalini  asks  bread." 
+
+
+The  Ride  to  Cannel.  13 1 
+
+one  ot  the  beasts  of  burden  should  be  sent  back  from  the 
+field,  that  she  might  at  once  resort  to  the  man  of  God. 
+For  it  was  neither  New  Moon  nor  Sabbath,  when,  as  we 
+are  led  to  infer,  the  prophet  was  w^ont  to  give  religious 
+instruction,  and  people  gathered  around  him,  and  perhaps 
+came  to  Carmel  from  a  considerable  distance.^  With  a  de- 
+precating "Peace" — as  it  were,  Pray  let  it  be  so — she  waved 
+aside  the  inquiry  of  the  busy  man.  And,  once  her  home 
+behind  her,  she  fully  gave  herself  to  what  was  before  her. 
+It  was  no  longer  a  weak  woman  on  whom  the  greatest  earthly 
+sorrow  had  descended,  but  one  strong,  resolute,  bent  on  a 
+great  purpose,  and  wholly  self-forgetful.  As  she  had  herself, 
+no  doubt  for  speed,  seen  to  the  saddHng  of  the  ass  (v.  24),  so 
+she  now  bade  the  servant  :  "  drive  on,^  go ;  delay  me  not  in 
+my  riding  [hinder  me  not,  keep  me  not  back]^  unless  I  bid 
+thee." 
+
+The  sun  must  have  been  declining  towards  the  west,  when, 
+after  that  ride  of  fifteen  or  twenty  miles,  she  was  nearing 
+Carmel.  From  a  bluff  of  the  mountain  the  prophet  had  been 
+watching  the  rider  speeding  in  such  haste  across  the  plain,  and 
+recognized  the  Shunammite.  Although  not  Divinely  informed, 
+and  therefore  not  Divinely  assured  of  a  happy  issue,  he  must 
+have  known  that  only  some  great  trouble  to  herself,  her 
+husband,  or  her  child,  would  have  brought  her  on  that 
+afternoon  and  in  such  manner.  And  so  he  sent  Gehazi  to 
+meet  her  with  an  inquiry  meant  to  reassure  her,  at  least  so 
+far  as  his  own  interest  and  sympathy  were  concerned.  But 
+all  the  more  that  she  so  understood  it,  would  she  be  neither 
+detained  by  Gehazi,  nor  could  she  have  opened  her  heart  to 
+him.      Indeed,    to  have  attempted  telling  her  sorrow  or  her 
+
+1  The  inference  does  not,  indeed,  seem  absolutely  certain,  but  it  appears 
+implied  that  in  the  time  when  this  narrative  is  laid  the  interpretation  of 
+the  fourth  commandment  was  not  so  rigidly  literal  as  to  forbid  the  use  of 
+an  ass  for  such  purposes  as  that  in  the  text. 
+
+^  The  word  is  the  same  as  in  reference  to  Jehu:  "for  he  driveth 
+madly"  (2  Kings  ix.  20). 
+
+
+132  E  lis  ha. 
+
+need  to  any  man  would  have  been  to  unfit  her,  in  every  sense, 
+for  telHng  it  to  the  prophet.  At  sight  of  EHsha  the  strong 
+woman  for  the  first  time  gave  way.  She  had  reached  the  goal, 
+and  now  in  an  agony  of  passion  she  threw  herself  at  his  feet 
+and  laid  hold  on  them,  as  if  in  her  despair  she  could  not  let 
+liim  go  without  helping  her.  It  was,  as  in  Jacob's  wrestling 
+with  the  Angel,  the  mode  of  agonising  prayer  suited  to 
+Old  Testament  times,  when  God  and  His  help,  and,  indeed, 
+most  spiritual  realities  were  presented  in  a  concrete  manner. 
+From  a  spurious  zeal  for  his  master's  honour,  from  false 
+notions  of  what  became,  or  did  not  become — the  consequences 
+of  his  utter  want  of  spiritual  insight  and  sympathy — Gehazi 
+would  have  thrust  her  away.  So  would  the  multitude  have 
+silenced  blind  Bartima^us,  and  even  the  disciples  sent  away 
+the  importunate  Syrophenician  woman  (Matt.  xv.  23) ;  and  so 
+do  we  in  our  mistaken  notions  of  what  is  becoming  or  un- 
+becoming too  often  hinder  souls  from  personal  contact  with 
+our  Lord.  But  Elisha  would  not  suffer  Gehazi,  for  he  knew 
+that  her  soul  was  in  anguish,  although  as  God  had  not  made 
+him  to  know  its  cause,  he  was  ignorant  of  what  its  issue 
+would  be. 
+
+It  is  this,  we  feel  persuaded,  which  explains  much  in  the 
+conduct  of  Elisha — such  as  his  first  mission  of  Gehazi,  which 
+otherwise  would  seem  strange,  if  not  unintelligible.  But 
+surely  never  was  Elisha  more  humbled  than  on  the  eve  of 
+the  greatest  miracle  wrought  by  his  hands  ;  never  did  the 
+poverty  of  his  humanity,  as  merely  an  instrument  in  the  hand 
+of  God,  appear  in  more  clear  light  than  by  the  side  of  the 
+help  which  Jehovah  was  about  to  send.  And  Elisha  himself 
+gave  vent  to  these  feelings  when  he  spoke  with  such  sorrow 
+of  Jehovah  having  hidden  it  from  him,  and  not  revealed  it.^ 
+But  this  we  may  say,  that  never  was  legend   so  constructed. 
+
+^  It  seems  well  nigh  the  extreme  of  critical  misunderstanding  when  these 
+words  of  Elisha  are  regarded  as  meaning  that,  if  Elisha  had  known  it, 
+he  would  have  hastened  to  Shunem.  Comp.  the  opposite  conduct  of  our 
+Lord  in  the  case  of  Lazarus  (John  xi.  6). 
+
+
+The  PropJiet^s  Staff.  133 
+
+To  every  thoughtful  reader  such  purely  human  traits  of  felt 
+weakness  and  of  ignorance  not  only  of  the  future,  but  of  the 
+present  and  the  past,  must  carry  instructive  conviction  of  the 
+truth  of  this  narrative,  full  of  the  miraculous  though  it  be. 
+
+The  first  words  which  the  Shunammite  spoke  to  EHsha 
+revealed  the  state  of  the  case.  They  were  not  an  entreaty 
+of  help  ;  they  contained  not  even  a  suggestion  of  it.  And 
+yet  they  were  the  strongest  appeal  that  could  have  been 
+made,  since  they  laid  hold  on  the  faithfulness  of  God  to 
+His  word  and  promise.  The  commission  of  the  prophet  to 
+Gehazi  to  hasten  on  and  lay  Elisha's  staff  upon  the  face  of 
+the  dead  child  seems  at  first  difficult  to  understand.  It  is 
+quite  true  that  this  was  not  an  ordinary  staff,  but,  as  it  were, 
+the  symbol  of  prophetic  authority  and  rule,  with  all  that  this 
+implied,  like  the  staff  of  Moses  (comp.  here  Ex.  iv.  17;  xvii. 
+5,  9 ;  Numb.  xx.  8,  9).  But  it  is  impossible  to  believe  that 
+Elisha  expected  either  that  the  staff  would  restore  life  to  the 
+dead,  or  that  Gehazi  would  be  able  to  perform  such  a 
+miracle ;  or,  on  the  other  hand,  that  Elisha  acted  under  mis- 
+apprehension, as  Nathan  had  spoken  to  David  when  still 
+uninstructed  as  to  the  will  of  God  (2  Sam.  vii.  3,  etc.) ;  or  else 
+that  the  prophet  could  have  imagined  that  the  child  was  not 
+really  dead.  Nor  can  we  accept  the  suggestion  sometimes 
+made  that  Elisha  had  full  well  known  Gehazi  would  not 
+succeed,  but  had  still  sent  him,  in  order  to  show — either  to 
+Gehazi,  or  to  the  Shunammite,  or  to  Israel  generally — that 
+miracles  were  not  magic,  and  that  neither  a  Gehazi  nor  even 
+a  prophet's  staff  could  produce  them.  It  is  difficult  to  use 
+moderate  language  in  rejecting  suggestions  which  imply  that 
+Elisha  had  purposely  employed  what  he  knew  to  be  useless 
+measures  in  order  to  teach  some  abstract  lesson,  or  that  he 
+could  have  done  so  at  a  moment  of  such  agony  and  suspense. 
+Kindred  views  in  regard  to  God's  dealings  with  us  when 
+under  severe  affliction  are,  indeed,  too  often  entertained  by 
+Christians.  They  should  give  place  to  more  enlightened  con- 
+ceptions of  the  character  of  God,  and  to  a  more  simple  and 
+
+
+134  Elisha. 
+
+childlike  faith  in  Him,  Who  afflicteth  not  willingly,  but  for  our 
+profit. 
+
+AVe  feel  convinced  that  the  explanation  of  Gehazi's  com- 
+mission must  be  sought  within  the  narrative  itself  When  Elisha 
+despatched  his  servant  with  his  staff,  it  was  with  the  inten- 
+tion that  he  should  take  his  master's  place.  What  after- 
+wards determined  him  to  go  personally  was  the  expressed 
+resolve  of  the  woman  :  "As  Jehovah  liveth,  and  as  thy  soul 
+liveth,  I  will  not  leave  thee  [viz.,  behind ;  I  will  not  go,  nor 
+yet  go  without  thee].  Then  he  arose  and  went  after  her." 
+All  this  seems  in  accordance  with  what  has  been  previously 
+stated.  If,  as  Elisha  expressed  it  with  sorrow,  Jehovah  had 
+not  communicated  to  His  servant  what  had  happened  in  the 
+house  of  the  Shunammite,  then  the  prophet  was  not  only 
+ignorant  of  the  final  issue,  but  left  without  any  Divine  com- 
+mission in  the  matter.  In  these  circumstances  he  would 
+wait  for  such  direction  as  might  be  indicated  to  him  in  the 
+course  of  events.  And  he  received  it,  clearly  and  un- 
+mistakably, through  the  expressed  resolution  of  the  Shunam- 
+mite. Accordingly  he  immediately  followed  her.  The 
+previous  mission  of  Gehazi  may  have  been  tentative  and 
+preparatory  ;  and  the  laying  of  the  prophet's  staff  on  the  face 
+of  the  child  perhaps  symbolic  of  the  arrestment  of  the 
+progress  of  decay.  Nor  can"  there  be  difficulty  in  under- 
+standing the  prophet's  direction  to  Gehazi  not  to  salute  any 
+one  by  the  way,  nor  to  return  any  salutation.  It  was  intended 
+not  only  to  indicate  the  necessity  of  speed  on  what  brooked 
+no  delay,  and  of  avoiding  any  worldly  distraction  when  on 
+such  an  errand,  but  also  to  prevent  all  such  publicity  as 
+to  the  matter  in  hand,  as  would  have  been  the  natural 
+sequence  of  conversation,  especially  on  the  part  of  one  like 
+Gehazi  (comp.  here  also  Luke  x.  4). 
+
+The  narrative  passes  in  silence  over  the  long  ride  across 
+Esdraelon  to  Shunem.  Evening  must  have  gathered  on  the 
+deep  blue  summer  sky,  when  the  two  at  length  neared  the 
+desolate  home.     Ere  they  came  to  it,  Gehazi  had  met  them 
+
+
+The  Raising  of  the  Child,  135 
+
+with  the  report :  "  The  lad  is  not  awaked," — and  this  also 
+is  significant  of  Gehazi's  thoughts  about  the  matter.  He 
+had  literally  obeyed  his  master's  behest,  and  laid  the  staff 
+upon  the  face  of  the  child,  "  but  there  was  neither  voice 
+nor  attending  [on  the  part  of  the  dead  child]."  But  by  this 
+time,  we  dare  not  doubt  it,  EHsha  knew  what  he  had  to  do. 
+Even  if  the  Lord  had  been  silent  to  him,  he  had  already 
+received  sufificient  direction  (comp.  here  Ex.  xiv.  15).  What 
+follows  in  the  narrative  (v.  32)  is  chiefly  intended  to  set 
+more  clearly  before  us  the  reality  of  what  now  took  place. 
+Arrived  in  his  chamber,  the  prophet  shut  the  door  upon 
+himself  and  the  dead  child  that  lay  on  his  bed.  We  have 
+learned  to  understand  the  meaning  of  this  act,  which  sym- 
+bolically set  forth  being  alone  with  God.  As  regards  his 
+prayer  to  Jehovah  and  the  close  personal  contact  with  the 
+dead  child,  Elisha  followed,  as  from  every  point  of  view  we 
+would  have  expected,  the  example  of  his  master,  Elijah, 
+when  he  recalled  to  life  the  widow's  son  at  Sarepta  ^  (i  Kings 
+xvii.  17,  24).  Differences  in  detail  there  are  between  the  two 
+narratives,  such  as  will  readily  be  noticed.  But  these  are 
+best  accounted  for  by  the  difference  both  in  the  circumstances 
+and  character  and  mission  of  the  two  prophets.  In  any  case 
+they  are  not  of  importance.  But  alike  the  symbolism  and 
+the  lessons  of  this  history  must  be  apparent  to  all. 
+
+First,  as  regards  the  Shunammite.  We  see  in  her  a  true 
+and  faithful  Israelitish  woman,  who,  in  a  time  of  general 
+apostasy,  owned  Jehovah  alike  in  her  life  and  her  home. 
+Receiving  a  prophet,  because  of  Him  Who  had  sent  him, 
+because  he  was  a  holy  man  of  God — and  with  humility  and 
+entire  self-forgetfulness — she  received  a  prophet's  reward  in 
+the  gift  most  precious  to  a  Jewish  mother,  which  she  had 
+not  dared  to  hope  for,  even  when  announced  to  her.  Then, 
+when  severely  tried,  she  still   held   fast    to  her  trust   in    the 
+
+1  The  attempts  at  natural  explanation  of  this  miracle — such  as  by  animal 
+magnetism,  by  the  administration  of  something  to  smell,  or  of  some  drug 
+— are  so  utterly  childish  as  not  to  deserve  discussion. 
+
+
+136  ElisJia. 
+
+promise — strong  even  when  weakest — once  more  self-forgetful, 
+and  following  deepest  spiritual  impulse.  And,  in  the  end, 
+her  faith  appears  victorious — crowned  by  Divine  mercy,  and 
+shining  out  the  more  brightly  from  its  contrast  to  the  felt 
+weakness  of  the  prophet.  As  we  think  of  this,  it  seems  as 
+if  a  fuller  light  were  shed  on  the  history  of  the  trials  of  an 
+Abraham,  an  Isaac,  or  a  Jacob ;  on  the  inner  life  of  those 
+heroes  of  faith  to  whom  the  -Epistle  to  the  Hebrews  points 
+us  for  example  and  learning  (Heb.  xi.),  and  on  such  Scripture- 
+sayings  as  these  :  "  Jehovah  killeth,  and  maketh  alive  :  He 
+bringeth  down  to  the  grave,  and  bringeth  up"  (i  Sam.  ii.  6); 
+"  Know  that  Jehovah  hath  set  apart  him  that  is  godly  for 
+Himself :  Jehovah  will  hear  when  I  call  unto  Him  "  (Psa. 
+iv.  3);  or  this  :  "All  the  paths  of  Jehovah  are  mercy  and 
+truth  unto  such  as  keep  His  covenant  and  His  testimonies" 
+(Psa.  XXV.    10). 
+
+The  last  glimpse  we  have  of  the  Shunammite  in  this 
+narrative  is  when  called  by  Elisha  to  receive  back  her  living 
+son,  she  bends  in  lowly  reverence,  and  then  silently  retires 
+(2  Kings  iv.  36,  37).  When  next  we  meet  her,  it  is  in  cir- 
+cumstances of  trial  almost  as  great  as  that  through  which 
+she  had  formerly  passed.  Once  more  she  proves  true, 
+trustful,  and  brave;  and  once  more  is  her  faith  crowned  by 
+mercy  and  deliverance. 
+
+Secondly,  we  think  of  the  symbolical  and  typical  teaching 
+of  this  history.^  The  Rabbis  discuss  the  question,  whether 
+the  dead  child  of  the  Shunammite  could  have  Tevitically 
+defiled  those  who  touched  him.  This  Pharisaic  scruple 
+deserves  record  for  the  significant  answer  it  elicits  :  '^  The 
+dead  defileth,  but  the  living  does  not  defile."  To  us  all  this 
+includes  a  meaning  deeper  than  they  could  attach  to  it.     The 
+
+^  From  the  time  of  Origen  a  somewhat  fanciful  allegorical  view  of  this 
+history  has  been  presented.  The  dead  lad  represented  the  human  race  dead 
+in  sin  ;  the  staff  of  Gehazi,  the  law  of  Moses,  which  could  not  set  free  from 
+sin  and  death  ;  while  Elisha  was  the  type  of  the  Son  of  God,  Who,  by  His 
+Incarnation,  had  entered  into  fellowship  with  our  flesh,  and  imparted  a 
+new  life  to  our  race. 
+
+
+Lessons  of  this  History.  137 
+
+story  speaks  to  us  of  Him  through  Whom  "  death  is  swallowed 
+up  in  victory."  As  we  think  of  Him  Who,  as  God  Incarnate, 
+and  as  the  Sent  of  the  Father,  is  to  us  the  Representative 
+and  the  Prophet  of  God  in  a  unique  sense,  we  recall  that 
+it  was  not,  as  by  Elijah  or  Elisha,  through  prayer  and  per- 
+sonal contact,  but  by  the  Word  of  His  power  that  He  raised 
+the  dead  (Mark  v.  39-42;  Luke  vii.  13-15;  John  xi. 
+43,  44).  And  beyond  this  we  remember  that  "the  hour  .  . 
+.  .  now  is,  when  the  dead  shall  hear  the  Voice  of  the  Son  of 
+God  :  and  they  that  hear  shall  live  " ;  and  that  "  whosoever 
+liveth  and  believeth  "  in  Christ  "  shall  never  die  "  (John  v. 
+25;   xi.  26). 
+
+Lastly,  as  regards  the  supernatural  in  this  history,  we  fully 
+admit  that,  as  previously  indicated^  the  history  of  Elijah  and 
+Elisha  marks,  so  to  speak,  the  high-point  in  the  miraculous 
+attestation  of  the  mission  of  the  prophets.  But,  by  the  side  of 
+it,  there  are  so  many  elements  of  purely  human  interest,  so 
+many  indications  of  human  weakness,  and  so  many  details 
+which  would  not  have  found  a  place  in  a  legendary  account 
+(such  as  the  fruitless  mission  of  Gehazi),  while^  on  the  other 
+hand,  there  is  such  unadorned  simplicity  about  the  whole 
+narrative,  and  so  much  spiritual  and  typical  teaching  in  it  as 
+to  carry  home  almost  instinctive  conviction  of  the  truth  and 
+reality  of  what  is  recorded. 
+
+Yet  another,  we  might  almost  call  it  twofold,  narrative 
+taken  from  the  history  of  Elisha's  more  private  ministry  claims 
+our  attention  (2  Kings  iv.  38-44).  It  is  instructive,  as  con- 
+firming the  view  that  this  whole  section  about  Elisha's  ministry 
+is  taken  from  a  special  work  on  the  subject,  that  the  scene  is 
+now  laid  at  a  considerable  interval  from  the  previous  history, 
+and  at  a  time  of  famine  (v.  38),  which  is  only  long  afterwards 
+described  in  connection  with  EUsha's  prophecy  (2  Kings  viii.  i). 
+The  prophet  is  once  more  at  Gilgal — not  that  near  Jericho, 
+JDut  another  Gilgal,  close  to  Ebal  and  Gerizim,  south-west  of 
+Shilo,  and  situated  on  a  commanding  plateau,  3,000  feet 
+above  the  sea.      Here   a  community   of   "  the   sons   of  the 
+
+L 
+
+
+138  Eli  ska. 
+
+prophets"  seems  to  have  been  settled  (comp.  2  Kmgs  ii.  i). 
+It  is  impossible  to  say  whether  Elisha  was  in  the  habit  of 
+visiting  these  settlements  occasional!}^  or  at  regular  intervals, 
+or  else  had  come  on  purpose  to  share  the  poverty  of  the 
+community  at  a  time  of  exceptional  distress.  The  former 
+seems,  however,  the  more  likely,  since  we  are  told  of  "  the 
+sons  of  the  prophets  sitting  before  him,"  which,  according  to 
+well-known  Hebrew  usage,  means  that  Elisha  was  giving  them 
+instruction  (comp.  2  Kings  vi.  i ;  Ezek.  viii.  i  ;  xiv.  i ;  xxxiii. 
+31  ;  Zech.  iii.  8  ;  Acts  xxii.  3), 
+
+While  thus  engaged  the  prophet  directed  that  the  usual 
+humble  meal  should  be  prepared  for  the  wants  of  his  hearers. 
+Even  although  it  was  a  time  of  famine,  yet  the  fare  provided  was 
+so  poor — and  this,  so  far  as  the  text  informs  us,  not  merely  ex- 
+ceptionally, owing  to  the  dearth — that  our  former  impressions, 
+derived  from  the  straitened  circumstances  of  the  prophet's 
+widow  (iv.  I,  2),  are  fully  confirmed.  In  truth,  "the  sons  of 
+the  prophets  "  seem  not  only  to  have  supported  themselves  by 
+manual  labour,  but  to  have  lived  in  the  humblest  manner. 
+This  willing  submission  to  poverty  and  want  from  devotion 
+to  their  work  reflects  the  most  favourable  light  on  the  institu- 
+tion to  which  they  belonged.  In  the  present  instance  one  of 
+their  number  was  sent  to  gather  "green  esculents "^  to  be 
+seethed  for  pottage  in  the  great  pot  in  which  their  common 
+meals  were  prepared.  By  some  misadventure  the  person  so 
+sent  brought  among  other  herbage  a  very  noxious  fruit — 
+probably  the  wild,  or  so-called  "  squirting"  cucumber,^  which 
+he  had  mistaken  for  the  ordinary  cucumber,  one  of  the  most 
+common  and  favourite  articles  of  food  in  the  East.  The 
+dangerous  error  was  discovered   after   the  meal  had  begun. 
+
+1  This,  rather  than  "herbs,"  It  evidently  refers  to  such- "green  "  stuff 
+as  was  boiled  and  eaten. 
+
+2  The  ctutimis  agrestis  or  asininus.  Others  understand  by  the  Hebrew 
+expression  the  ciicuniis  colocynthi,  or  colocynth  plant.  But,  from  the 
+Hebrew  etymology  of  the  word,  the  former  explanation  seems  the  more 
+likely. 
+
+
+The  Lord's  Provision.  139 
+
+An  appeal  to  Elisha  as  the  "  man  of  God  "  brought  speedy- 
+help.  The  symbolic  meaning  of  casting  "  meal "  into  the  pot 
+was,  that  this  was  the  ordinary  and  healthy  food  by  which 
+that  which  had  been  bitter  and  dangerous  was  now  to  be 
+changed  into  palateable  and  nourishing  diet.  While  the 
+help  Divinely  brought  by  the  prophet  as  the  "  man  of  God  " 
+was  miraculous,  it  had,  as  we  readily  perceive^  also  a 
+symbolic  significance,  the  more  so,  that  "  the  sons  of  the 
+prophets  "  had,  as  disciples,  been  learning  from  Elisha,  And 
+thus  did  it  become  true  in  every  sense :  "  Pour  out  for  the 
+people,  that  they  may  eat.  And  there  was  no  harm  in  the 
+pot." 
+
+Closely  connected  with  this  is  the  next  event  recorded. 
+If  the  former  showed  how  easily  God  could  remove  from 
+the  provision  of  His  people  that  which  was  hurtful  by  the 
+addition  of  that  which  in  itself  is  nutritious  and  wholesome, 
+the  next  event  affords  another  instance  how  readily  He 
+can  send  unexpected  provision  to  supply  the  wants  of  His 
+servants.  The  lesson  which  it  teaches  is  as  old  as  that  of 
+Isaac's  reaping  an  hundredfold  of  what  he  had  sowed  in  Gerar 
+at  a  time  of  famine  (Gen.  xxvi.  12),  and  as  true  to  all  time, 
+and  to  all  God's  servants,  as  it  had  been  to  the  patriarch.  In 
+the  present  case,  much  needed  help  in  their  straits  came 
+to  Elisha  and  to  his  companions  from  Baal-Shalisha,  or 
+Beth-Shalisha.  We  remember  the  district  as  connected  with 
+the  history  of  Saul  (i  Sam.  ix.  4):  "the  land  of  Shalisha," 
+perhaps  the  "  three  valleys "  land.  It  lay  north  of  Lydda, 
+in  the  plain  of  Sharon,  and  was  not  far  distant  from  that 
+Gilgal  which  we  have  described,  and  the  location  of  which 
+it  confirms.-^ 
+
+We  know  that  the  Lord  directed  the  first-fruits  to  be 
+given  to  the  Priests  and  Levites  (Numb,  xviii.  13;  Deut. 
+xviii.  4).     This    ordinance  could   not  any  longer  be   obeyed 
+
+'  Suffice  it  that  it  would  have  been  impossible  for  a  man  to  have  carried 
+such  a  load  of  bread  and  corn  "  in  a  sack  "  from  Beth-Shalisha  to  the 
+Gilgal  near  Jericho. 
+
+
+140  Elisha. 
+
+in  the  kingdom  of  Israel,  since  the  Aaronic  priesthood,  for 
+whose  support  it  was  destined,  was  not  in  office  there.  But 
+the  pious  in  Israel,  to  whom  such  contributions  were  not 
+merely  matter  of  obligation  nor  only  of  law,  but  who  willingly 
+offered  to  Jehovah,  in  acknowledgment  of  His  sovereignty 
+and  proprietary  over  the  land,  knew  to  observe  the  spirit,  if 
+they  could  no  longer  obey  the  letter,  of  the  law.  Accordingly 
+this  unnamed  man  from  Baal-Shalisha  brought,  as  is  expressly 
+stated,  to  the  "  man  of  God  "  "  bread  of  the  first-fruits,  twenty 
+loaves  of  barley  and  bruised  ears  of  corn  ^  in  his  sack."^ 
+
+The  provision  supplied  by  the  piety  of  this  unnamed  giver 
+Elisha  would,  in  the  same  spirit  of  devotion,  have  shared 
+with  those  around  him.  But  such  conduct  ill  accorded  with 
+the  spirit  of  Elisha's  servant.  Indeed,  it  may  have  been 
+that  this  history  was  recorded  to  mark  the  character  of  Gehazi. 
+In  any  case  it  was  not  in  him  at  a  time  of  dearth  to  dismiss 
+the  cares  of  the  morrow  by  unselfish  care  for  others.  He 
+would  scarcely  venture  to  state  his  views  explicitly,  but, 
+adopting  the  more  prudent  course,  contented  himself  with 
+pointing  out  the  apparent  insufficiency  of  such  provision 
+for  so  large  a  company.  It  might,  according  to  the  pious 
+intention  of  the  donor,  have  supplied  for  some  time  the 
+wants  of  the  prophet,  but  to  set  it  ^^  before  an  hundred  men  " 
+— probably  a  round  number  for  the  whole  community — was 
+to  lose  the  real  good  that  might  be  obtained,  without  an 
+equivalent  benefit  to  others.  It  needed  the  direct  command 
+of  Elisha  to  secure  his  obedience.  But  Elisha  did  more. 
+For  the  teaching  not  only  of  Gehazi,  but  of  all,  he  added 
+the  promise,  of  which,  indeed,  this  unexpected  provision  was 
+an  earnest,  that,  scanty  as  it  might  seem,  this  provision  would 
+
+^  So,  according  to  the  Rabbis,  who  regard  the  expression  as  referring  to 
+green  ears  of  corn,  of  which,  in  some  parts,  soup  is  made.  Others  under- 
+stand it  as  meaning  fresh  and  tender  ears  of  corn  roasted  over  the  fire. 
+The  former  explanation  seems  the  more  likely,  and  in  that  case  the  scene 
+would  be  laid  about  the  end  of  April. 
+
+2  So,  and  not  "  in  the  husk,"  as  in  the  A.  V. 
+
+
+Pttblic  Activity.  141 
+
+not  only  suffice,  but  that  there  should  be  left  over  from  it. 
+And  this,  as  we  understand  it,  in  the  widest  sense  of  constant 
+and  sufficient  supply  for  all  the  wants  of  God's  servants. 
+For  although  this  narrative  is  generally,  and  in  a  sense 
+correctly,  regarded  as  prefiguring  the  miraculous  multiplica- 
+tion of  the  scanty  provision  with  which  our  Lord  fed  the 
+multitude  (Matt.  xiv.  19-21;  John  vi.  9-13),  yet  the  text 
+does  not  here  indicate  any  such  miraculous  increase  of  the  food. 
+But  it  does  most  emphatically  indicate  that  Elisha  was  truly 
+the  prophet  and  servant  of  Jehovah;  that  his  trust  in  his 
+God  was  absolute  and  unwavering ;  and  that^  true  to  His 
+promise,  the  Lord  will  always  provide  for  His  servants  who 
+look  up  unto  Him.  And  this  is  the  final  lesson  of  this  history 
+to  all  time  and  to  all  men. 
+
+
+CHAPTER     XI. 
+
+Illustration  and  Confirmation  of  Biblical  History  from  the  Assyrian 
+Monuments— The  Deliverance  of  Syria  through  Naaman—Naaman's 
+Leprosy  and  Journey  to  Samaria— Elisha's  Message  to  Joram  and  to 
+Naaman—Naaman's  Healing  and  Twofold  Request — Gehazi's  Deceit 
+and  Conviction-Gehazi  is^'struck  with  the  Leprosy  of  Naanian. 
+
+(2  Kings  v.) 
+
+FROM  the  more  private  ministry  of  the  prophet  the  Biblical 
+narrative  next  passes  to  an  account  of  his  public  activity.^ 
+Very  significantly,  it  was  the  means  of  bringing  Israel  once 
+more  into  direct  contact  with  their  great  enemy,  Syria — this 
+time,  not  in  war,  but  in  peace.  And  the  bloodless  victory 
+which  was  achieved  might  have  taught  king  and  people  how 
+
+1  This,  with  the  exception  of  2  Kings  vi.  1-7.  But  that  narrative  is 
+altogether  so  exceptional  in  several  respects,  that  we  feel  as  if  we  were  not 
+in  possession  of  all  the  details  of  it. 
+
+
+142  EiisJia. 
+
+easily  the  Lord  could  turn  the  hearts  of  their  adversaries, 
+and  by  the  manifestation  of  His  goodness  make  them  fellow- 
+believers  and  fellow-worshippers  with  Israel.  In  this  respect, 
+the  ])resent  history,  as  others  in  this  section,  is  specially 
+prefigurative  of  New  Testament  times. 
+
+As  the  narrative  proceeds  on  the  supposition  of  close  relations 
+between  Israel  and  Syria — not  otherwise  mentioned  in  the 
+Bible — and  involves  at  least  indirectly,  certain  points  of  general 
+interest,  this  seems  a  fitting  opportunity  for  a  brief  summary 
+of  what  recent  discoveries  of  ancient  monuments  has  taught 
+us^  not  only  confirmatory,  but  illustrative  and  explanatory  of 
+this  period  of  Biblical  history. ^  But  in  so  doing  we  must  keep 
+some  considerations  in  view  by  way  of  caution.  Y ox  first,  our 
+knowledge  of  what  may  be  called  monumental  history  is  as  yet 
+initial  and  fragmentary.  Secondly,  in  any  seeming  discrepancy 
+or  slight  divergence  in  details  between  the  inscriptions  on  the 
+monuments  and  the  records  of  Jewish  history,  it  seems  neither 
+reasonable  nor  safe  to  give  absolute  preference  to  the  former. 
+Jewish  writers  must  have  known  their  own  history  best,  while,  in 
+their  slight  differences  from  the  records  on  the  monuments,  we 
+fail  to  discover  any  adequate  motives  on  the  part  of  the  Jewish 
+historians  that  could  account  for  their  falsifying  facts.  And, 
+we  need  scarcely  add,  the  same  facts  will  assume  different 
+aspects  when  viewed  from  opposite  sides.  Again,  it  is 
+admitted  on  all  hands  that  there  are  manifest  errors  on  the 
+Assyrian  monuments,  and  this  on  points  where  error  is  difficult, 
+to  account  fon  Thus,  to  mention  one  instance — on  the  Assy- 
+rian monuments,  Jehu  is  designated  as  "  the  son  of  Omri,"  and 
+that  by  the  very  monarch  to  whom  he  is  both  represented  and 
+described  as  bringing  tribute.  Further,  we  have  to  bear  in 
+mind  that  our  knowledge  of  Jewish  history  is  also  fragmentary. 
+
+^  We  have  here  availed  ourselves  of  ihe  classical  work  of  Professor 
+wSchrader  {Die  Kcilinschrifien  tind  d.  Alte  Testament.  Second  Edition. 
+Giessen,  1885),  and  also  of  that  able  and  most  useful  tractate  by  Professor 
+Sayce  :  F7-esh  Light  from  ihc  Ancient  Monit/zicnts.  (London  :  Religious 
+Tract  Society). 
+
+
+Light  from  Ancient  Momiments.  143 
+
+The  Old  Testament  does  not  profess  to  be  a  handbook  of 
+Jewish  history.  It  furnishes  prophetic  or  sacred  history,  which 
+does  not  recount  all  events  as  they  happened,  nor  yet  always 
+in  their  exact  succession  of  time,  but  presents  them  in  their 
+bearing  on  the  kingdom  of  God,  of  which  it  tells  the  history. 
+Hence  it  records  or  emphasizes  only  that  which  is  of  im- 
+portance in  connection  with  it.  Lastly,  we  must  remember 
+that  the  chronology  of  the  Bible  is  in  some  parts  involved  in 
+considerable  difficulties,  partly  for  the  reasons  just  stated,  partly 
+from  the  different  modes  of  calculating  time,  and  partly  also  from 
+errors  of  transcription  which  would  easily  creep  into  the  copying 
+of  Hebrew  numerals,  which  are  marked  by  letters.  Keeping  in 
+view  these  cautions,  the  neglect  of  which  has  led  to  many  false 
+inferences,  we  have  no  hesitation  in  saying,  that  hitherto  all 
+modern  historical  discoveries  have  only  tended  to  confirm  the 
+Scripture  narrative. 
+
+Turning  to  these  extraneous  sources  for  information  on  the 
+earlier  history  of  Judah  and  Israel  under  the  Kings,  we  have 
+here,  first,  the  Egyptian  monuments,  especially  those  on  the 
+walls  of  the  Temple  of  Karnak_,  which  record  the  invasion 
+of  Judah  and  Jerusalem  by  Shishak,  described  in  i  Kings 
+xiv.  25,  26,  and  2  Chron.  xii.  Pictorial  representations  of  this 
+campaign  are  accompanied  by  mention  of  the  very  names  of 
+the  conquered  Jewish  cities.^  But  with  the  death  of  Shishak, 
+the  power  of  Egypt  for  a  time  decayed.  In  its  stead  that  of 
+Assyria  reasserted  itself.  From  that  time  onwards  its  monu- 
+ments more  or  less  continuously  cast  light  on  the  history  of 
+Israel.  Just  as  in  the  Biblical  narrative,  so  in  the  Assyrian 
+records  of  that  time,  Syria  occupies  a  most  important  place. 
+It  will  be  remembered  that  that  country  had  recovered  its  in- 
+dependence in  the  reign  of  Solomon,  having  been  wrested  by 
+Rezon  from  the  sovereignty  of  Judah  (i  Kings  xi.  23-25). 
+Thus  far  we  perceive  a  general  parallelism  in  the  outlines  of 
+this   history.     But  the   Assyrian   record  leaves  a  strange  im- 
+
+1  Full  details  of  this  are  given  in  Vol.  V.  of  this  History,  pp.  129,  130. 
+
+
+144  El  is  ha. 
+
+pression  on  the  mind,  as  we  recall  the  importance  of  Omri,  as 
+having  been  the  second  if  net  the  real  founder  of  the  Israelitish 
+kingdom,  the  builder  of  its  capital,  and  the  monarch  who  gave 
+its  permanent  direction  alike  to  the  political  and  the  religious 
+history  of  Israel.  For  the  common  designation  for  the  land 
+of  Israel  is  "  the  land  of  Omri,"  "  the  land  Omri,"  or  "  the  land 
+of  the  house  of  Omri."  We  regard  it  as  a  further  indication  of 
+the  political  importance  attached  to  that  king  when  Jehu  is 
+designated  as  "the  son  of  Omri."  This  could  not  have  been 
+from  ignorance  of  the  actual  history,  since  the  name  of  Ahab 
+occurs  on  the  monuments  of  Assyria,  although  (if  correctly 
+read)  in  a  connection  which  does  not  quite  agree  with  our 
+ordinary  chronology. 
+
+Further  illustration  comes  to  us  from  the  Assyrian  monu- 
+ments, both  of  certain  phases  in  the  Biblical  history  of  Ahab, 
+and  of  the  explanatory  words  with  which  the  account  of 
+Naaman's  healing  is  introduced  :  "  Now  Naaman,  captain  of 
+the  host  of  the  king  of  Syria,  was  a  great  man  with  his  master, 
+and  honourable,  because  by  him  Jehovah  had  given  deliverance 
+unto  Syria"  (2  Kings  v.  i).  Each  of  these  statements  requires 
+some  further  explanation.  As  regards  the  history  of  Ahab, 
+we  note  incidentally  that  the  name  Ethhaal  {\  Kings  xvi.  31) 
+as  that  of  a  Sidonian  king,  occurs  also  on  the  Assyrian  monu- 
+ments, just  as  does  Sarepta  (i  Kings  xvii.  9,  10),  as  being  a 
+Phoenician  town,  situate  between  Tyre  and  Sidon.  But  of 
+greatest  interest  is  it  to  learn  from  these  monuments  the  poli- 
+tical motives  which  prompted  the  strange  and  sudden  alliance 
+proposed  by  Ahab  to  Ben-hadad  (a  name  amply  confirmed  by 
+the  monuments),  after  the  battle  of  Aphek  (i  Kings  xx.  26-34). 
+In  passing  we  may  notice  that  in  a  fragmentary  inscription  of 
+Asarhaddon,  this  Aphek,  situated  east  of  the  lake  of  Galilee, 
+and  a  little  aside  from  the  great  road  between  Damascus  and 
+Samaria,  is  named  as  the  border-city  of  Samaria.  Similarly, 
+the  mention  of  thirty-two  kings  allied  with  Ben-hadad  in  his 
+campaign  against  Israel  (i  Kings  xx.  i),  is  so  far  borne  out  by 
+the  Assyrian  monuments,  that  in  the  campaigns  of  Assyria 
+
+
+Assyi'ian  Monuments.  145 
+
+against  Syria  Ben-hadad  is  always  described  as  fighting  in  con- 
+junction with  a  number  of  aUied  Syrian  princes. ^  From  these 
+inscriptions  we  also  learn  that  the  growing  power  of  Assyria 
+threatened  to  overwhelm — as  it  afterwards  did — both  Syria 
+and  the  smaller  principalities  connected  with  it.  A  politician 
+like  Ahab  must  have  felt  the  danger  threatening  his  kingdom  of 
+Samaria  from  the  advancing  power  of  Assyria.  If  Ben-hadad 
+had  endeavoured  to  strengthen  himself  by  the  subjugation  of 
+Samaria,  Ahab,  in  the  hour  of  his  triumph,  desired,  by  an 
+alliance  with  the  now  humbled  Ben-hadad,  to  place  Syria  as  a 
+kind  of  bulwark  between  himself  and  the  king  of  Assyria. 
+This  explains  the  motive  of  Ahab,  who  had  no  real  trust  in 
+the  might  and  deliverance  of  Jehovah,  but  looked  to  political 
+combinations  for  safety,  in  allowing  to  go  out  of  his  hand  the  man 
+whom  Jehovah  "appointed  to  utter  destruction"  (i  Kings  xx.42). 
+Another  circumstance  connected  with  the  treaty  of  Aphek, 
+not  recorded  in  the  Bible,  and  only  known  from  the  Assyrian 
+monuments,  casts  hght  on  this  prophetic  announcement  of 
+judgment  to  Ahab  :  "Therefore  thy  hfe  shall  be  for  his  life, 
+and  thy  people  for  his  people."  From  the  monuments  we 
+learn,  in  illustration  of  the  alliance  between  Ben-hadad  and 
+Ahab,  and  of  the  punishment  threatened  upon  it,  that  in  the 
+battle  of  Karkar,  or  Aroer,  in  which  the  Assyrian  monarch 
+Shalmaneser  II.  so  completely  defeated  Syria,  the  forces  of 
+Ahab,  to  the  number  of  not  fewer  than  2000  chariots 
+and  10,000  men,  had  fought  on  the  side  of  Ben-hadad.  As 
+we  read  of  14,000  or,  in  another  inscription,-  of  20,500  of  the 
+
+
+^  In  one  inscription  12,  in  another  11  of  these  are  specially  mentioned. 
+A  similar  discrepancy  also  obtains  in  regard  to  the  number  of  troops  em- 
+ployed, and  in  that  of  the  slain  in  battle.  But,  as  Schrader  rightly  remarks, 
+the  Assyrians,  no  doubt,  mention  only  the  more  important  of  Ben-hadad's 
+allies — not  all  of  them.     (See  Keilinschr.  u.  d.  A.  Test.,  p.  204.) 
+
+2  There  is  a  manifest  discrepancy  between  these  two  numbers— the  one 
+recorded  is  an  inscription  of  Shalmaneser,  discovered  on  the  banks  of  the 
+Tigris,  the  other  on  an  obelisk  at  Nimrud,  in  which  that  monarch  describes 
+the  acts  of  his  reign. 
+
+
+146  '        ElisJia. 
+
+nllies  as  having  been  slain  in  this  battle,^  we  perceive  the  fulfil- 
+ment of  the  Divine  threatening  upon  that  alliance  (i  Kings  xx. 
+42).  At  the  same  time  we  may  also  learn  that  many  things 
+mentioned  in  Scripture  which,  with  our  present  means  of 
+knowledge,  seem  strange  and  inexplicable,  may  become  plain, 
+and  be  fully  confirmed,  by  further  information  derived  from 
+independent  sources. 
+
+The  battle  of  Karkar  was  not  the  only  engagement  in  which 
+the  forces  of  Syria  met,  and  were  defeated  by,  those  of  Assyria. 
+It  was  fought  in  the  sixth  year  of  the  reign  of  Shalmaneser. 
+Another  successful  campaign  is  chronicled  as  having  been 
+undertaken  in  the  eleventh  year  of  the  same  reign,  when  Shal- 
+maneser records  that  for  the  ninth  time  he  crossed  the  Euph- 
+rates ;  and  yet  another,  in  the  fourteenth  year  of  his  reign, 
+when  at  the  head  of  120,000  men  he  crossed  the  river  at  its 
+high  flood.  Two  inferences  may,  for  our  present  purpose,  be 
+made  from  these  notices.  The  defeat  of  Ahab's  forces,  when 
+fighting  in  conjunction  with  Ben-hadad^  will  account  for  the 
+cessation  of  the  alliance  entered  into  after  the  battle  of  Aphek. 
+Again,  the  repeated  defeat  of  Ben-hadad  by  Assyria  will  explain 
+how  Ahab  took  heart  of  grace,  and  in  company  with  Jehosha- 
+phat  undertook  that  fatal  expedition  against  Ramoth-Gilead 
+(i  Kings  xxii.),  in  which  literally  the  '"life"  of  Ahab  went  for 
+that  of  him  whom,  from  short-sighted  political  motives,  he  had 
+spared  (i  Kings  xx.  42).  Lastly,  these  repeated  wars  between 
+Assyria  and  Syria,  of  which  the  Assyrian  monarch  would 
+naturally  only  record  the  successful  engagements,  help  us  to 
+understand  the  phrase  by  which  Naaman,  captain  ^  of  the  host 
+of  Syria,  is  introduced  as  he  "by  whom  the  Lord  had  given 
+deliverance  [perhaps  "victory"]  unto  Syria "^  (2  Kings  v.  i). 
+
+^  The  large  number  of  the  slain,  and  of  the  forces  led  on  either  side  to 
+battle,  throws  liglit  on  what  arc  sometimes  described  as  the  "exaggerated" 
+figures  introduced  in  the  accounts  of  wars  and  battles  in  the  Old  Testament. 
+
+-  This,  rather  than  "  the"  captain,  as  in  the  A.V. 
+
+^  For,  evidently,  the  conquest  of  Syria  could  not  have  been  either  per- 
+manent or  even  complete,  since  Shalmaneser  required  again  and  again  to 
+
+
+Naanian  the  Syrian.  14^ 
+
+The  expression  just  quoted  seems  to  forbid  the  application 
+of  the  words  to  the  victory  of  Ben-hadad  over  Ahab/  although 
+the  Rabbis  imagine  that  the  fatal  arrow  by  which  Ahab  was 
+smitten  came  from  the  bow  of  Naaman.  Accordingly  we  can- 
+not (as  most  commentators  do)  mark  this  antithesis  :  that  the 
+conqueror  of  Israel  had  to  come  to  Israel  for  healing.  But 
+the  fact  is  in  itself  sufficiently  remarkable,  especially  when  we 
+think  of  it  in  connection  with  his  disease^  which  would  have 
+placed  even  an  Israelite,  so  to  speak,  outside  the  pale  of  Israel. 
+In  striking  contrast  to  the  mention  of  the  strength  and  bravery 
+of  Xaaman,  and  of  his  exalted  position,  Scripture  abruptly, 
+without  pause  or  copula  of  conjunction,  records  the  fact:  "a 
+leper."  2  We  need  not  pause  to  consider  the  moral  of  this 
+contrast,  with  all  of  teaching  which  it  should  convey  to  us. 
+Quite  another  lesson  comes  to  us  from  an  opposite  direction. 
+For  we  also  learn  from  this  history  how,  when  our  need  is 
+greatest,  help  may  be  nearest,  and  that,  in  proportion  as  we  feel 
+the  hopelessness  of  our  case,  God  may  prepare  a  way  for  our 
+deliverance.  It  was  certainly  so  in  this  instance.  Once  more 
+we  mark  the  wonder-working  Providence  of  God,  Who,  without 
+any  abrupt  or  even  visibly  direct  interference,  brings  about 
+results  which,  if  viewed  by  themselves,  must  seem  absolutely 
+miraculous.  And  this,  by  means  which  at  the  time  may  have 
+appeared  most  unpromising. 
+
+It  must  have  been  a  crushing  sorrow  that  came  upon  that 
+Israelitish  household,  when  the  Syrian  bands  carried  from  it 
+the  little  maiden  whom  we  find  afterwards  waiting  on  Naaman's 
+wife.  Yet  this  was  the  first  link  in  the  chain  of  events  which 
+not  only  brought  healing  of  body  and  soul  to  the  Syrian  captain, 
+but  anew  proved  alike  to  Jew  and  Gentile  that  there  was  a 
+living  God  in  Israel,  who   had  placed   there   His  accredited 
+
+undertake    fresh   expeditions.      Besides,    Syria   was  evidently  free   when 
+Shalmaneser's  successor  ascended  the  throne. 
+
+^  So  most  commentators. 
+
+2  It  will  be  noted  that  the  words  "  but  he  was  "  in  our  A.V.  are  in  italics, 
+i.e.,  they  have  no  equival  nt  in  ihe  Hebrew. 
+
+
+HS  Elisha. 
+
+representative.  Assuredly  the  most  devoted  affection  could 
+not  have  desired  for  a  child  a  place  of  greater  honour  or  useful- 
+ness than  that  which  this  Jewish  maiden  occupied  in  the  house- 
+hold of  the  Syrian  captain.  What  follows  is  told  with  utmost 
+simplicity,  and  bears  the  impress  of  truth.  For,  it  was  only 
+natural  that  this  child  should  tell  her  mistress  of  the  prophet 
+in  Samaria,  or  express  the  full  confidence  in  his  ability  to 
+recover  her  master  of  his  leprosy .^  Similarly,  it  was  only  what 
+we  should  have  expected  when  her  mistress  repeated  to  her 
+husband  what  the  child  had  said,  and  perhaps  equally  natural 
+on  the  part  of  Naaman  to  repeat  this  to  his  king,^  alike  to 
+obtain  his  leave  for  going  to  Samaria,  and  in  such  a  manner  as 
+would  be  most  likely  to  secure  the  desired  result. 
+
+As  heathens,  and  especially  as  Syrians,  neither  Naaman  nor 
+Ben-hadad  would  see  anything  strange  in  the  possession  of 
+such  magical  powers  by  a  prophet  of  Israel.  Similarly,  it  was 
+quite  in  accordance  with  heathen  notions  to  expect  that  the 
+king  of  Israel  could  obtain  from  his  own  prophet  any  result 
+which  he  might  desire.  A  heathen  king  was  always  the  re- 
+ligious as  well  as  the  political  chief  of  his  people,  and  to 
+command  the  services  and  obedience  of  his  ow^n  prophet 
+would  seem  almost  a  matter  of  course. 
+
+It  was  for  this  reason  that  Ben-hadad  furnished  Naaman 
+with  a  letter  to  the  king  of  Israel.  Hence  also,  imperious  as 
+the  tone  of  the  letter  seems,  it  scarcely  warranted  the  interpre- 
+tation which  the  king  of  Israel — probably  Joram — put  upon  it. 
+What  is  reported  of  it  in  the  sacred  text  (2  King  v.  6)  must,  of 
+necessity  be  regarded  as  only  forming  a  part  of  the  letter, 
+stating  its  main  object.  On  the  other  hand,  we  can  quite  under- 
+stand that,  from  the  Jewish  point  of  view,  Joram  would  speak 
+of  what  he  regarded  as  a  demand  that  he  himself  should  heal 
+
+^  Assuredly  no  legend  would  have  been  so  conceived.  There  would  have 
+been  miracles  or  visions  to  bring  a  Naaman  to  Elisha,  not  a  poor  little 
+slave,  naively  telling  the  story  of  her  country  and  her  faith. 
+
+^  The  proper  rendering  of  verse  4  is  :  "And  he  [viz.  Naaman]  went  in 
+and  told  his  lord  "  [viz.  the  king  of  Syria]. 
+
+
+Naanian  before  Joraui.  149 
+
+Naaman  of  his  leprosy,  as  equivalent  to  requiring  of  him  what 
+God  alone  could  do.  His  only  it  was  to  kill  or  to  make  alive 
+(Deut.  xxxii.  39;  i  Sam.  ii.  6),  and  leprosy  was  considered  a 
+living  death  (Numb.  xii.  12).  As  he  communicated  this  strange 
+behest  to  his  attendants  and  advisers — presuniably  not  in  the 
+presence  of  Naaman — it  was  not  unnatural  that  Joram  should 
+regard  it  as  a  desire  to  find  occasion  of  quarrel.  The  craven 
+king  of  Israel  rent  his  clothes,  in  token  of  deepest  mourning — 
+as  if  he  had  already  seen  his  own  and  his  people's  destruction. 
+
+Some  of  the  lessons  suggested  by  the  conduct  of  Joram  may 
+be  of  practical  use.  We  mark  first  the  cowardice  of  the  man 
+who  gives  way  to  despair  before  any  danger  has  actually  arisen. 
+Yet  there  are  not  a  few  who  tremble  not  before  that  which  is 
+real,  but  before  fears  which,  after  all,  prove  wholly  groundless. 
+It  need  scarcely  be  said  how  much  good  work,  whether  on  the 
+part  of  individuals  or  of  the  Church,  has  been  hindered  by 
+apprehensions  of  this  kind.  The  source  of  all  lies,  perhaps, 
+not  so  much  in  disbelief  as  in  non-belief,  which  is  by  far  the 
+commonest  form  of  unbelief.  Joram  knew  better  and  believed 
+worse  than  the  king  of  Syria — just  as  is  sometimes  the  case 
+with  the  children  of  God  and  the  men  of  the  world.  He  knew, 
+as  the  Syrian  did  not,  that  God  alone  could  give  help ;  but  he 
+did  not  look  for  Divine  help,  as  the  Syrian,  although  in  mis- 
+taken manner,  had  done.  He  had  religion,  but  it  stood  him 
+in  no  good  stead;  it  was  laid  aside  precisely  when  it  was  needed. 
+He  did  not  call  to  mind  that  there  was  a  prophet  in  Israel, 
+but  in  helpless  terror  rent  his  clothes.  So  we  also,  instead  of 
+immediately  and  almost  instinctively  resorting  to  God,  too 
+often  forget  Him  till  every  other  means  has  been  exhausted, 
+when  we  apply  to  Him  rather  from  despair  than  from  faith. 
+
+Reverently  speaking,  it  would  have  been  impossible  for 
+Elisha  as  '•  the  man  of  God  "  to  have  been  silent  on  this  occa- 
+sion. His  message  of  reproof  to  the  king :  "  Wherefore  hast 
+thou  rent  thy  clothes  ?  "  and  of  confidence  :  "  Let  him  come 
+now  to  me,  and  he  shall  know  that  there  is  a  prophet  in  Israel," 
+is  not  one  of  self-assertion,  but  of  assertion  of  God.     It  was  a 
+
+
+150  E  lis  ha. 
+
+testimony  and>  let  us  add,  a  test  alike  for  Israel  and  for  the 
+heathen  world  ^  of  the  presence  of  the  living  and  true  God. 
+Yet  while  viewing  it  in  this  grander  application,  we  ought  not 
+to  forget  what  confirmation  it  gave  to  the  simple  faith  of  that 
+"little  one"  in  the  service  of  Naaman's  wife.  For  God's 
+dealings  are  most  wide-reaching  :  they  extend  up  to  heaven, 
+and  yet  embrace  also  the  poorest  of  His  people  upon  earth. 
+
+In  accordance  with  the  direction  of  the  king,  Naaman  now 
+betook  himself  "  with  his  horses  and  his  chariot  "  to  the  humble 
+dwelling  of  Elisha,  which,  as  we  infer  from  verse  3,  was  in 
+Samaria.  Greater  or  more  instructive  contrast  could  scarcely 
+be  imagined.  We  know  that  Naaman  had  come  to  Samaria 
+not  only  armed  with  a  royal  letter,  almost  imperious  in  its  tone, 
+and  at  the  head  of  a  great  retinue,  but  bringing  with  him,  as 
+princely  gifts  for  his  expected  healing,  a  sum  of  not  less  than 
+ten  talents  of  silver  (computed  at  from  ;£"3ooo  to  aboutp^375o), 
+and  six  thousand  pieces  of  gold  (computed  at  from  about 
+^^7500  to  about  ;£"9ooo),  together  with  "ten  changes  of 
+raiment,"  that  is,  of  those  festive  suits  which  were  so  costly  and 
+so  much  valued  in  the  East.  Between  this  display  and  pomp 
+and  the  humble  waiting  outside  the  lowly  home  of  the  prophet 
+there  was  sufficient  contrast.  But  it  was  unspeakably  intensi- 
+fied when  the  prophet,  without  even  seeing  the  Syrian  captain, 
+sent  him  this  message  :  "  Go  and  wash  in  Jordan  seven  times, 
+and  thy  flesh  shall  come  again  to  thee,^  and  thou  shalt  be 
+clean."  We  may  at  once  say  that  the  conduct  of  Elisha  was 
+not  prompted  by  fear  of  defilement  by  leprosy,  nor  by  a 
+desire  to  mark  the  more  clearly  the  miracle  about  to  be  per- 
+formed, least  of  all  by  spiritual  pride.^  The  spiritual  pride  of 
+a  Jew  would  have  found  other  expression,   and,   in  general, 
+
+1  The  bearing  of  the  mission  of  Elijah  and  of  Elisha  on  the  heathen 
+world  is  both  distinctive  and  most  important.  It  also  casts  light  on  the 
+peculiarity  of  the  ministry  of  these  two  prophets. 
+
+2  In  leprosy  the  flesh  was  supposed  to  be  consumed — hence  its  healing 
+would  be  the  coming  again  of  the  flesh. 
+
+^  These  views  have  been  taken  by  some  commentators. 
+
+
+Naaman  and  the  Prophet  151 
+
+those  who  cherish  spiritual  pride  are  scarcely  proof  against 
+such  visits  as  this  of  Naaman.  We  cannot  doubt  that  the 
+bearing  of  Elisha  was  Divinely  directed.  One  has  said  that  it 
+was  dictated  by  the  inner  state  of  Naaman,  as  evinced  by  the 
+manner  in  which  he  received  the  prophet's  direction  (ver.  11). 
+Perhaps  we  should  add  (with  another  old  writer),  that  Elisha 
+would  thus  teach  Naaman  that  neither  his  pomp  nor  his  wealth 
+was  the  cause  of  his  healing,  and  also  that  help  did  not  come 
+from  the  prophet,  as  if  such  power  were  inherent  in  the  prophet. 
+The  latter,  indeed,  would  seem  of  chief  importance  in  the 
+teaching  required  by  a  heathen. 
+
+We  can  readily  perceive  how  alike  the  manner  and  the 
+matter  of  Elisha's  direction  would  stir  the  indignation  of 
+Naaman.  As  Syria's  captain  he  would  naturally  expect  a 
+different  reception  from  the  Israelitish  prophet,  and  as  a 
+heathen,  that  Elisha  would  have  used  some  magical  means, 
+such  as  to  "  move  his  hand  up  and  down  over  the  place,"  ^ 
+calling  the  while  upon  the  name  of  Jehovah  ^  his  God,  and  so 
+heal  him  of  his  leprosy.  And  Naaman  spoke  both  as  a  heathen 
+and  as  a  Syrian  when  he  contemptuously  compared  the  limpid 
+waters  of  "  Abana  and  Pharpar/'^  which  transformed  the  wil- 
+derness around  Damascus  into  a  very  paradise  of  beauty  and 
+riches,  with  the  turbid  flood  of  Jordan,  if,  indeed,  healing  were 
+to  be  obtained  by  such  means.  "  So  he  turned,  and  went  away 
+in  a  rage." 
+
+The  reasoning  by  which  Naaman  had  so  nearly  deprived 
+himself  of  a  benefit  which  would  be  to  him  as  life  from  the 
+dead,  is  substantially  the  same  as  that  which  leads  so  many 
+to  turn  from  the  one  remedy  to  which  God   directs   them. 
+
+^  So  literally,  as  in  the  margin. 
+
+2  The  name  Jehovah  as  that  of  the  God  of  Israel  occurs  on  the  Moabite 
+Stone.     It  was,  therefore,  known  to  the  neighbouring  nations. 
+
+^  The  "  Abana"  is,  no  doubt,  the  modern  Barada  or  Barady,  "  the  cold 
+river "  which  divides  into  seven  arms,  and  flows  through  the  city  of 
+Damascus.  The  Pharpar  is  probably  the  modern  Awaaj,  to  the  south  of 
+Damascus. 
+
+
+152  E  lis  ha. 
+
+The  simple  command  of  the  Gospel  to  "Wash,  and  be  clean," 
+like  the  words  of  the  prophet  which  had  prefigured  it,  is  still 
+to  the  Jews  a  stumbling-block,  and  to  the  Greeks  foolishness. 
+The  difficulty  felt  by  Naaman  is  the  same  as  that  of  so  many 
+n  our  days  :  the  need  of  humiliation,  and  of  faith  in  a  remedy 
+which  seems  so  inadequate  to  the  end.  If  washing  be  required, 
+let  it  be  in  the  Abana  and  Pharpar  of  our  own  waters,  not  in 
+the  turbid  stream  of  Israel  !  But  it  is  ever  this  humiliation  of 
+heart  and  simple  faith  in  God's  provision  which  are  required  for 
+our  healing.  "  Except  ye  be  converted,  and  become  as  little 
+children,  ye  shall  not  enter  into  the  kingdom  of  heaven" 
+(Matt,  xviii.  3).  And  so  Naaman  had  to  learn  it.  It  was 
+well  that  the  relation  between  himself  and  his  servants  was  so 
+simple  and  affectionate  (''my  father"),  that  they  could  address 
+him  in  terms  of  respectful  expostulation,  and  so  turn  him  from 
+his  rash  purpose.  For,  often  those  around  can  see  the  true 
+bearing  of  things  far  better  than  we.  At  the  same  time,  we 
+may  also  learn  from  the  relation  between  Naaman  and  his 
+servants  how  the  faithful  performance  of  ordinary  duties  may 
+prepare  the  way  for  the  reception  of  a  higher  blessing.^ 
+
+So  it  came  to  pass  that  instead  of  returning  "in  a  rage"  to 
+Damascus,  a  leper,  Naaman  went  down  to  Jordan.  And  as, 
+obedient  to  "  the  saying  of  the  man  of  God,"  he  "dipped  him- 
+self seven  times  in  Jordan,"  "  his  flesh  came  again  like  unto 
+the  flesh  of  a  little  child,  and  he  was  clean."  We  can  scarcely 
+be  mistaken  in  regarding  the  number  seven  as  symbolic  of  the 
+covenant  (comp.  also  i  Kings  xviii.  43),  and  as  also  implying 
+a  trial  of  faith,  since  presumably  the  healing  did  not  come  till 
+after  the  seventh  washing.  And  now  it  appeared,  by  the  effect 
+produced,  that  Elisha  had  throughout  sought  the  restoration 
+not  only  of  bodily  health,  but  also  the  spiritual  recovery  of 
+Naaman.  Although  not  so  bidden  by  the  prophet,  yet  following 
+the  promptings  of  a  renewed  heart,  like  the  grateful  Samaritan 
+
+^  Comp.  here  also  some  instructive  lessons  from  the  history  of  Cornelius, 
+Acts  X.  7-27. 
+
+
+Naaviav's   Twofold  Request.  153 
+
+in  the  Gospel  (Luke  xvii.  15),  he  returned  to  Elisha,  and  made 
+such  full  acknowledgment  of  God — both  negatively  and  posi- 
+tively— that  it  might  have  been  said  of  it  at  that  time  :  "  I 
+have  not  found  so  great  faith,  no,  not  in  Israel "  (Matt.  viii. 
+io).i  And  he  also  showed,  in  such  manner  as  he  could,  the 
+evangelical  fruits  of  gratitude,  and  of  a  new  life- direction.  Of 
+the  first  he  gave  evidence  in  his  desire  to  offer  a  gift ;  ^  of  the 
+second,  in  his  request  for  "  two  mules'  burden  of  earth."  This, 
+for  the  purpose  of  constructing  an  altar  to  Jehovah,  as  w^e  infer 
+from  the  expression  of  his  resolve  henceforth  only  to  bring 
+offerings  unto  the  Lord. 
+
+Only  very  brief  explanation  seems  necessary  of  Elisha's  re- 
+fusal to  accept  any  gift  from  Naaman.  For  the  prophets  seem 
+jiot  unfrequently  to  have  accepted  such  offerings  (i  Sam.  ix. 
+7,  8  ;  I  Kings  xiv.  3),  and  Elisha  himself  had  only  lately  done 
+so  (2  Kings  iv.  42).  But  in  the  present  instance  it  was  of  the 
+utmost  importance  to  show — in  contradistinction  to  heathen 
+soothsayers — that,  as  the  prophet  of  God  did  not  work  miracles 
+in  his  own  pow-er,  nor  by  his  own  wall,  so  he  did  it  not  for 
+reward,  and  that  the  gift  of  God  could  not  be  purchased  with 
+money.  Indeed,  we  can  scarcely  exaggerate  the  impression  ■ 
+which  the  refusal  of  Elisha  must  have  made  both  on  the 
+followers  of  Naaman  and  generally  in  Israel.  One  of  the 
+Fathers  has  here  marked  in  the  prophet's  conduct  the  same 
+principle  which  underlay  the  direction  of  our  Lord  when 
+He  sent  out  His  disciples  with  this  injunction:  "Freely  ye 
+have  received,  freely  give  "  (Matt.  x.  8).  Nor  could  EHsha  be 
+in  doubt  about  the  other  request  of  Naaman.     If  in  making 
+
+1  For  instances  of  similar  confession  see  Dan.  ii.  47 ;  iii.  29  ;  vi.  26,  27. 
+Those  who  object  to  what  they  call  "sudden  conversions  "  might  here  learn 
+how  rapid,  and  often  more  decided  and  thorough-going  is  the  change  of 
+feeling  and  of  life  in  those  who  have  had  no  previous  religious  preparation. 
+
+'  "A  blessing"  in  the  sense  of  a  gift.  Comp.  Gen.  xxxiii.  10,  11  ; 
+Judg.  i.  15;  I  Sam.  xxv.  27;  xxx.  26,  and  other  passages.  We  may  re- 
+mark how  much  more  suitable  in  such  circumstances  seems  the  Biblical 
+expression,  "a  blessing,"  than  the  modern  Western,  "  a  gift." 
+
+M 
+
+
+154  E  lis  ha. 
+
+his  altar  of  earth  according  to  the  Divine  direction  ^  (Ex.  xx. 
+24),  he  wished  to  use  that  of  the  land  of  Israel,  it  could  not 
+have  been  with  the  thought  that  the  God  of  Israel  could  only 
+be  worshipped  on  Israelitish  soil.  Any  idea  of  Jehovah  as  a 
+national  Deity,  bound  to  the  soil  of  Israel,  would  have  been  in 
+contradiction  to  his  expressed  conviction  that  there  was  ^'  no 
+God  in  all  the  earth  but  in  Israel : "  no  national  deities,  but  the 
+One  living  and  true  God,  Whose  knowledge  and  manifestation 
+were  only  in  Israel.  Nor  would  Elisha  have  given  his  sanction 
+to  what  rested  on  so  serious  a  mistake.  But  we  can  easily 
+understand  the  feelings  which  prompted  a  desire  to  rear  an 
+Israelitish  altar,  not  only  in  loving  remembrance  ^  of  the  benefit 
+received,  but  as  congruous  to  the  worship  of  Israel,  to  which 
+his  new  faith  had  led  him.  It  would  be  an  outward  expression 
+of  his  inward  faith,  and  would  at  the  same  time  constantly  pro- 
+claim throughout  Syria  that  there  was  no  other  God  than  He 
+of  Israel,  and  no  other  worship  than  His. 
+
+xA.nd  yet  wider  thoughts  come  to  us.  The  Old  Testament 
+dispensation  seems  to  enlarge  as  it  has  touch  of  the  heathen 
+world  :  it  seems  to  break  through  its  temporary  bounds ;  it 
+becomes  universal  in  its  application,  and  in  its  wide-hearted 
+toleration  loses  its  exclusiveness.  Thus  this  incident  also  is 
+prefigurative  of  New  Testament  times.  For  the  implied  sanc- 
+tion of  Naaman's  sacrifices — though  probably  only  burnt  and 
+thank-offerings,^ — seems  to  carry  us  beyond  the  preparatory  dis- 
+
+1  This,  we  can  scarcely  doubt,  in  contradistinction  to  the  heathen  altars, 
+which  were  of  stone,  and  the  rites  of  which,  among  the  nations  inhabiting 
+Palestine  and  the  neighbouring  countries,  represented  and  embodied  all 
+that  was  most  vile. 
+
+^  Somewhat  similar  feelings  prompted  the  construction  (according  to  the 
+account  of  Benjamin  of  Tudela)  of  the  synagogue  at  Nahardea  of  stones 
+and  earth  brought  from  Palestine  ;  and  they  may  explain  the  catnpo  santo 
+of  Pisa,  where  the  dead  are  buried  in  Palestinian  earth. 
+
+^  This  seems  implied  in  the  terms  used.  The  argument  is,  however,  only 
+one  of  inference.  We  infer  from  the  mention  of  sacrifices  which  follows, 
+and  from  the  circumstance  that  the  request  is  addressed  to  Elisha,  that 
+Naaman  asked  the  two  burdens  of  Israelitish  earth  for  an  altar,  which  in 
+
+
+Naamaiis  Faith  and  Worship.  155 
+
+pensation.  On  the  other  hand,  it  is  evidence  of  this  toleration 
+when  EHsha  does  not  return  a  negative  answer  to  the  plea  of 
+Naaman — in  which,  however,  an  important  alteration  in  the 
+reading  should  be  noted :  "  When  my  master  goeth  into  the 
+house  of  Rimmon  ^  to  bow  down  there,  and  he  leaneth  on  my 
+hand,  and  I  bow  down  in  the  house  of  Rimmon  when  he  ^ 
+boweth  down  in  the  house  of  Rimmon — oh,  let  Jehovah  forgive 
+thy  servant  in  this  matter."  It  will  be  noticed  that  according 
+to  this  reading  a  sharp  distinction  is  drawn — even  although  the 
+terms  used  are  the  same — between  the  ^'bowing  down"  of 
+Naaman,  simply  because  his  royal  master  leant  on  his  arm, 
+and  the  "  bowing  down  "  of  the  king  of  Syria  for  the  purpose 
+of  worship.  The  very  mention  of  this  scruple  by  Naaman 
+proved  not  only  the  tenderness  of  his  enlightened  conscience, 
+but  that  he  was  not  in  any  danger  of  conformity  to  heathen 
+worship.  And  so,  without  specially  entering  on  the  matter, 
+Elisha  could  bid  him  "go  in  peace." ^ 
+
+
+turn  could  only  have  been  intended  for  sacrifices.  If  so,  this  would  exactly 
+represent  an  adaptation  of  the  religion  of  Israel  to  the  circumstances  of 
+pious  Gentiles.  It  is  strange  that  this  point  is  not  discussed  either  in  the 
+Talmud  or  by  Jewish  commentators,  although  the  latter  regard  the  two 
+mules'  burden  of  earth  as  destined  for  an  altar.  The  Talmud  regards 
+Naaman  as  a  proselyte,  though  not  in  the  complete  sense  of  one  who  had 
+become  a  Jew  by  circumcision,  baptism,  and  sacrifice  (Gitt.  57  b^  line  18 
+from  top). 
+
+^  Rimmon — or  rather  Raman  and  Rammanu — occurs  on  the  Assyrian 
+monuments  as  the  name  of  the  god  of  thunder,  lightning,  and  flood  (see 
+also  the  cuneiform  account  of  the  Flood,  col.  ii.,  line  42,  apiid  Schrader 
+p.  62,  and  the  note  on  p.  72,  also  pp.  205,  206).  The  Assyrians  regarded 
+Rimmon  as  identical  with  Hadad,  the  god  of  the  sky.  But  the  introduction 
+of  Rimmon  in  the  worship  of  Damascus  casts  light  on  the  historical  relations 
+between  Syria  and  Assyria  formerly  referred  to. 
+
+^  The  alteration  in  the  text  implied  in  this  reading  only  changes  a  >  into 
+a  \     The  amended  reading  is  that  of  the  Lxx. 
+
+2  We  cannot  sympathize  with  the  views  of  those  commentators  who 
+either  blame  Elisha's  compliance,  or  regard  him  as  not  referring  to  Naaman's 
+words, — in  fact,  ignoring  them — when  he  bade  him  "go  in  peace."  On 
+the  other  hand,  we  are  keenly  alive  to  the  dangers  which  may  beset  an 
+indiscriminate  application  of  what  we  have  called  the  principle  of  wide- 
+
+
+156  E  lis  ha. 
+
+But  there  was  yet  another  and  a  sad  sequel  to  this  history. 
+We  have  already  had  repeated  occasion  to  notice  the  essential 
+difference  in  spirit  between  the  prophet  and  his  servant.  It 
+now  appeared  in  such  manner  as,  if  left  unpunished^  to  have 
+marred  the  work  of  Elisha.  It  seems  difficult  to  understand 
+how,  with  full  knowledge  of  the  great  work  just  wrought,  and 
+of  all  that  had  passed,  Gehazi  could  have  taken  up  a  position 
+so  different  from  that  of  his  master.  But,  alas,  there  have  been 
+too  many  similar  instances  to  make  it  appear  quite  strange. 
+The  character  of  Gehazi  was  in  every  respect  the  exact  opposite 
+of  Elisha's.  He  was  covetous,  selfish,  and  narrow-minded. 
+There  is  a  striking  contrast  between  the  "  As  Jehovah  liveth," 
+with  which  Elisha  prefaced  his  persistent  refusal  to  receive 
+aught  of  Naaman  (ver.  16),  and  the  same  phrase  in  the  mouth 
+of  Gehazi,  as  he  resolved  to  ''take  somewhat"  of  "this 
+Syrian"  (ver.  20).  To  Gehazi  it  seemed  that  his  master  "had 
+spared  this  Syrian  "  very  needlessly  and  very  foolishly,  "  in  not 
+receiving  at  his  hands  that  which  he  brought."  He  could  not 
+see  in  what  had  passed  anything  higher  than  a  transaction  be- 
+tween man  and  man.  It  had  been  an  act  of  romantic  generosity, 
+an  unpractical  display  of  mistaken  principle,  where  every  con- 
+sideration— even  nationality  and  religion — pointed  in  the  other 
+direction.  At  any  rate,  there  was  no  reason  why  he  should 
+not  act  differently. 
+
+Naaman  had  pursued  his  journey  a  little  distance,  when  he 
+saw  the  servant  of  the  prophet  hastening  after  him.  Showing 
+to  the  servant  honour  similar  to  that  which  he  would  have  paid 
+to  his  master,  the  Syrian  captain  descended  from  his  chariot 
+to  meet  him.  In  answer  to  Naaman's  anxious  inquiry,  Gehazi 
+pretended  a  message  from  Elisha  to  the  effect  that  two  of  the 
+sons  of  the    prophets  had   just   come   to   him   from    Mount 
+
+
+hearted  toleration.  The  character  and  hmits  of  it  must  be  learned  from 
+Holy  Scripture  (see  especially  Rom.  xiv.  i  ;  xv.  7  ;  i  Cor.  viii.  ;  ix.  20-23  '■> 
+Phil.  iii.  15).  And  this  seems  a  safe  practical  principle,  that  we  cannot  he 
+too  strict  as  regards  our  own  conduct,  nor  yet  too  charitable  (consistently 
+with  truth)  in  interpreting  the  motives  and  actions  of  others. 
+
+
+Gehazi  and  Naaman.  157 
+
+Ephraim,on  which  both  Bethel  and  Gilgal  were  situated,  and  that 
+he  requested  for  them  a  talent  of  silver  and  two  changes  of 
+garments.  Probably  we  are  to  understand  that  these  imaginary 
+'^  sons  of  the  prophets  "  were  represented  as  having  come  in 
+name  of  their  respective  communities,  to  crave  help  from 
+Elisha.  This  would  explain  why  Naaman  should  have  urged 
+Gehazi  to  ''be  pleased" — to  "consent" — to  take  two  talents 
+(each  from  £,z^o  to  £,Z1^)-  ^^'^  ^'^^  the  hardening  effect  of 
+sin,  especially  of  lying  and  covetousness,  Gehazi  must  have 
+been  touched  by  the  evident  simplicity  of  Naaman,  and  by  that 
+respectful  courtesy  which  now  would  not  allow  the  servant  of 
+the  prophet,  who  had  come  on  such  a  charitable  errand,  to  be 
+burdened  with  carrying  the  silver,  but  detailed  two  of  his  atten- 
+dants for  the  purpose,  Gehazi  allowed  them  to  come  as  far 
+as  "  the  hill,"  ^  and  then  dismissed  them,  to  prevent  possible 
+detection.  Having  secreted  the  money  in  the  house,  Gehazi 
+made  his  appearance  before  his  master.  To  what  he  might 
+have  felt  as  a  searching  inquiry,  "  Whence,  Gehazi?"  he  replied 
+by  a  bold  denial  of  having  been  absent  from  the  house. 
+Evidently  Gehazi  did  not  realise  that  the  Jehovah  Whom  he 
+had  erst  invoked,  and  before  Whom  Elisha  stood,  was  the 
+living  and  the  true  God.  Taking  up  the  very  words  of  Gehazi, 
+"Thy  servant  did  not  go,"  Elisha  put  it,  "Did  not  my  heart 
+go  ?  "  -  and  then  set  before  him  the  whole  scene  as  it  had  been 
+present  to  his  inward  spiritual  vision.  Then,  setting  forth  the 
+incongruity  of  such  mean  lying  and  self-seeking  on  such  an  occa- 
+sion— when  the  glory  of  God  should  have  been  the  sole  thought 
+and  aim  of  a  true  Israelite,  he  pronounced  upon  him  what 
+must  be  felt  a  sentence  of  meet  retribution.  The  Syrian  had 
+become  an  Israelite  in  heart  and  spirit,  and  he  was  healed  of 
+his    leprosy   in    Israel's    waters.     The    Israelite   had   become 
+
+^  This,  and  not  "tower"  as  in  the  A.  V,  (ver.  24).  Probably  the  hill 
+on  which  Samaria  was  built,  and  not  a  hill  on  which,  as  some  have  supposed, 
+the  house  of  Elisha  stood. 
+
+'  Except  that  "mine heart"  (ver.  26)  stands  for  "thy  servant"  (cf.  ver.  25), 
+the  words  in  the  Hebrew  are  exactly  the  same. 
+
+
+158  Eli  ska. 
+
+heathen  in  heart  and  spirit,  and  he  and  his  were  struck  with 
+the  leprosy  of  the  Syrian,  whose  money  he  had  coveted  for 
+himself  and  his  family.  What  each  had  sown,  that  did  he 
+reap.  And  this  also  was  not  only  for  just  judgment,  but  for 
+a  testimony  to  God  and  to  His  servant.^ 
+
+
+CHAPTER    XII. 
+
+T^o  Wonderful  Manifestations  of  God's  Presence  with  His  Propiiet:  The 
+Interposition  on  behalf  of  "  the  Sons  of  the  Prophets  "  by  the  banks  of 
+Jordan,  and  that  in  the  deliverance  of  Elisha  at  Dothan—lnpuence  of 
+Elisha's  Ministry— God,  the  ever-present  Help  and  Deliverer  in  times 
+of  Danger— The  Syrians  led  blinded  into  Samaria— The  Conduct  of 
+the  King  and  of  the  Prophet. 
+
+(2  Kings  vi.  1-23.) 
+
+FOR  a  brief  space  the  narrative  turns  again  to  the  more 
+private  and  personal  ministry  of  Elisha.  Or  perhaps  it 
+may  be  more  correct  to  say  that  the  history  which  now  follows 
+is  inserted  in  this  connection,  immediately  after  that  of 
+Gehazij  to  show  that  as  the  unfaithful  servant  who  did 
+not  realise  the  presence  and  help  of  Jehovah,  received  meet 
+
+^  It  afforcU  painful  evidence  of  the  absence  of  spiritual  understanding, 
+when  the  Tahiiud  (Sot.  47  a)  blames  the  conduct  of  Elisha  towards  Gehazi, 
+as  it  does  the  destruction  of  the  young  men  at  Bethel  by  the  she-bears. 
+Another  point  which  it  selects  for  blame  is  Elisha's  bearing  towards  Joram 
+2  Kings  iii.  13-16  (Pes.  66  I?,  line  15  from  bottom).  According  to  the 
+Talmud,  Elisha  was  visited  by  sickness,  on  account  of  the  two  first  men- 
+tioned occurrences.  The  same  authority  would  also  have  us  believe  that 
+when  Elisha  went  to  Damascus  (2  Kings  viii.  7),  it  was  to  lead  Gehazi  to 
+repentance,  but  that  this  was  not  effected,  according  to  the  principle  that 
+no  such  return  is  offered  to  those  whose  sin  has  a  general  or  public  effect. 
+If  these  references  disclose  the  unspiritual  character  of  the  study  of  Scrip- 
+ture by  the  Talmudists,  we  must  in  fairness  quote  this  beautiful  saying  of 
+theirs,  which  occurs  in  the  same  connection  :  "  Ever  let  the  left  hand  repel 
+[the  sinner],  and  the  right  hand  bring  him  near  "  (Sot.  u.s.) 
+
+
+The  Sons  of  the  Prophets.  159 
+
+punishment,  so  would  they  who  clung  to  the  prophet  in  faith 
+and  with  faithfulness  experience  the  deliverance  of  God,  and 
+this,  even  in  seemingly  small  matters,  and,  if  need  be,  by 
+extraordinary  interposition.  Thus  the  history  of  the  mira- 
+culously restored  ax  would  supplement  and  complement  that 
+of  Gehazi's  punishment  —  both  teaching  substantially  the 
+same  lessons  :"  only  the  one  in  their  negative,  the  other  in 
+their  positive  aspect. 
+
+We  have  repeatedly  noticed  that  the  ministry  of  Elisha 
+had  its  deep  influence  upon  Israel,  despite  the  corruption 
+in  Church  and  State.  Perhaps  one  of  the  most  pleasing 
+evidences  of  this  appears  in  the  growing  number  of  "  the 
+sons  of  the  prophets."  On  a  previous  occasion  (2  Kings  iv. 
+43)  we  found  at  Gilgal  about  one  hundred  assembled  to 
+listen  to  the  instruction  of  Elisha.  This  would  represent  a 
+large  number  in  proportion  to  the  small  and,  in  parts,  semi- 
+heathen  population  of  the  northern  kingdom  —  especially 
+when  we  remember  that  there  were  similar  communities  at 
+Bethel  and  at  Jericho.  It  is  probably  among  the  latter  that 
+the  present  narrative  is  laid,  and  it  shows  that  this  community 
+was  so  prosperous  that  their  meeting-place  ^  no  longer  sufficed 
+for  their  growing  numbers.  It  was  this  which  led  to  the 
+proposal  of  constructing  another  and  larger  place  for  their 
+use  by  the  banks  of  the  Jordan.  From  the  abundance  of 
+timber  in  the  district  it  would  be  easy  to  provide  accommoda- 
+tion sufficient  for  their  simple  wants.  And  the  manner  in 
+which  their  proposal  was  worded  (ver.  2.)  is  peculiarly  and 
+graphically  Eastern.  Elisha  not  only  assented  to  their  project, 
+but  at  their  request  consented  to  accompany  and  remain  with 
+them  while  engaged  in  their  work.  It  need  scarcely  be  said 
+that  this  was  not  asked  in  order  that  the  prophet  might  super- 
+
+1  In  V.  I,  the  proper  rendering  is  "where  we  sit  before  thee,"  in  the  sense 
+of  sitting  to  receive  instruction  and  direction  ;  though  it  may  well  have 
+been  that  simple  huts  were  reared  around  for  the  accommodation  of  "  the 
+sons  of  the  prophets" — not,  however,  in  the  monastic  manner,  since  there 
+were  married  men  in  these  communities  (comp.  2  Kings  iv.  i). 
+
+
+i6o  ElisJia, 
+
+intend  their  labours,  but  to  have  in  their  midst  the  loved 
+master,  whose  very  presence  seemed  to  imply  the  Divine 
+blessing,  and  whose  words  of  instruction  would  secure  it. 
+In  any  case  the  whole  narrative  shows,  on  the  one  hand, 
+the  simplicity  and  earnestness  of  their  faith,  and,  on  the 
+other,  the  poverty  and  humbleness  of  their  outward  cir- 
+cumstances. 
+
+Evidence  of  both  was  soon  to  appear.  As  they  were  en- 
+gaged in  felling  the  timber  the  ax-head  of  one  of  the 
+workers  became  suddenly  detached  and  fell  into  the  water. 
+His  exclamation  of  distress  addressed  to  Elisha,  with  this 
+significant  addition,  that  the  ax  had  been  "  asked "  or 
+"  entreated  for,"  constituted  an  appeal  to  the  prophet.  It 
+is  of  comparatively  secondary  importance,  whether  it  had 
+been  so  asked  as  a  gift,  or  as  a  loan — though  the  former 
+seems  to  us  the  meaning  of  the  word.^  What  followed  had 
+best  be  recorded  in  a  rigorously  literal  translation  of  the 
+sacred  text.  "  And  the  man  of  God  said  :  Where  has  it 
+fallen  ?  And  he  showed  him  the  place,  and  he  [Elisha]  cut 
+off  wood  [a  stick,  piece  of  a  tree],  and  put  it  in  there  [sent 
+it],  and  he  caused  the  iron  to  flow" — on  which,  the  man, 
+as  directed  by  the  prophet,  "put  in  ["sent,"  the  same  word 
+as  before]  his  hand  and  took  it."  The  first,  but  also  the 
+most  superficial,  impression  on  reading  these  words  is  that 
+they  do  not  ?iecessarily  imply  anything  miraculous.  Ac- 
+cordingly, both  some  of  the  Rabbis  and  certain  modern 
+interpreters  have  argued,  either  that  the  stick  which  had 
+been  cut  off  struck  right  into  the  hole  of  the  ax-head  and 
+so  brought  it  up,  or  else  that  the  stick  thrust  under  the  ax 
+had  rendered  it  possible  to  drag  it  to  land.  But,  to  speak 
+plainly,   both   these   suggestions    involve   such    manifest    im- 
+
+^  Commentators  are  very  keen  in  discussing  this  point.  In  any  case  the 
+primary  meaning  of  the  verb  is  "to  ask,"  nor  do  I  know  any  passage  in 
+which  the  secondary  meaning,  "to  ask  in  loan,"  can  be  established.  It 
+certainly  does  not  mean  "to  ask  in  loan,"  in  the  two  passages  which  are 
+generally  quoted,  viz.,  Ex.  xii.  35,  t,^,  and  i  Sam.  i.  28. 
+
+
+TJie  Lost  Ax-head.  i6i 
+
+possibilities,  as  hardly  to  require  serious  discussion.  It  is 
+scarcely  necessary  to  add  that  every  such  explanation  is  opposed 
+equally  to  the  wording  and  the  spirit  of  the  sacred  text, 
+which  assuredly  would  not  have  recorded  among  the  mar- 
+vellous doings  of  the  heaven-sent  prophet  a  device,  which,  if 
+it  had  been  possible,  could  have  been  accomplished  by  any 
+clever-handed  person.  There  cannot  be  any  doubt  in  the 
+mind  of  every  impartial  man  that  Scripture  here  intends  to 
+record  a  notable  miracle.  On  the  other  hand,  there  is  nothing 
+in  the  sacred  text  which  obliges  us  to  believe  that  the  iron 
+"  did  swim."  In  fact,  the  Hebrew  word  is  never  used  in 
+that  sense.^  The  impression  left  on  our  minds  is  that  the 
+iron  which  had  sunk  to  the  bottom  was  set  in  motion,  made 
+to  float,  probably,  by  some  sudden  rush  of  water.  Beyond 
+this  we  cannot  go  in  our  attempts  to  explain  the  manner  in 
+which  this  miraculous  result  may  have  been  brought  about. 
+
+But  in  another  direction  we  can  go  much  further.  We 
+recall  what  has  previously  been  stated  about  the  extraordinary 
+character  of  the  mission  of  Elijah  and  of  Elisha,  which 
+accounts  for  a  series  of  miracles  in  their  history,  unparalleled 
+in  the  Old  Testament,  and,  indeed,  quite  exceptional,  being 
+connected  with  what  may  be  described  as  the  decisive  crisis 
+in  the  religious  history  of  the  kingdom  of  Israel.  If  there 
+was  to  be  direct  Divine  interposition  in  order  to  recall  Israel 
+to  their  allegiance  to  Jehovah,  it  is  evident  that  the  religious 
+state  of  the  people,  ripening  for  a  judgment  which  history 
+has  shown  to  be  irrevocable,  would  render  necessary  means 
+that  were  extraordinary,  even  in  the  miraculous  history  of 
+the  Old  Testament.  And  if  the  mission  of  the  prophets 
+was  in  itself  an  extraordinary  means,  chiefly  necessitated  by 
+the  condition  of  the  people,  these  means  now  required  to 
+be  intensified.  Accordingly  Elijah  and  Elisha  were  to  be 
+prophets  of  the  prophets — if  we  may  use  the  expression — in 
+order  that  this  great  truth,  which  alone  could  have  saved 
+the    people,    might    be    presented    in    a    concrete   and    most 
+
+^  Besides  this  passage,  it  only  occurs  in  Deut.  xi.  4,  and  Lament,  iii,  54. 
+
+
+1 62  ElisJia. 
+
+vivid  manner ;  that  Jehovah  was  the  living  and  the  true  God, 
+ever-present  with  His  own,  whether  for  blessing  or  in  judg- 
+ment. And  this  must  be  always  kept  in  view  when  studying 
+this  history.  Nay,  is  it  not  the  great  truth  which  should 
+always  be  present  to  our  muids,  alike  as  the  outcome  of  all 
+history,  the  lesson  of  our  experience,  and  the  guide  in  our 
+acting  ?  ^ 
+
+From  this  point  of  view  much  additional  light  is  thrown  on 
+this  particular  event.  Elisha,  summoned  to  be  among  these 
+poor,  simple-hearted  workers  for  God,  could  not  have  been 
+deaf  to  their  appeal,  nor  appeared  helpless  in  presence  of 
+their  felt  need,  however  humble.  Its  very  humbleness  was 
+only  an  additional  reason  for  the  Divine  help.  It  would  have 
+been  a  contradiction  in  this  special  history,  nay,  in  the  history 
+of  Elisha  generally,  who  seemed  to  embody  the  eternal 
+presence  of  the  living  God  among  them.  And  as  the  man 
+received  back  the  lost  ax-head — really  to  him  a  new  ax-head^ 
+now  to  be  used  with  a  new  ax-handle,  it  would  teach  him 
+many  lessons,  not  the  least  of  them  the  constant  care  and 
+provision  of  the  God  Whose  messenger  and  representative  the 
+prophet  was,  and  which  extended  as  far  as  our  need,  however 
+small  and  humble  it  might  be. 
+
+Of  this  very  truth,  both  Israel,  as  a  nation,  and  their 
+enemies,  were  presently  to  receive  evidence,  and  that  on  a 
+much  larger  scale.  And  this  explains  the  next  recorded 
+event,  without  requiring  us  to  regard  it  as  having  followed 
+in  strict  chronological  order  on  that  just  commented  upon. 
+The  sacred  text  informs  us  that  "  the  king  of  Syria  was 
+warring  against  Israel " — indicating  rather  a  state  of  chronic 
+warfare  and  marauding  expeditions,  such  as  are  common  in 
+the  East,  than  a  regular  campaign.     In  his  consultation  with 
+
+^  It  is  curious,  and  probably  in  part  due  to  the  rationalising  tendencfy  of 
+Josephus,  that,  while  professing  to  give  a  particular  account  of  the 
+"  illustrious  acts  "  of  Elisha  {Ant.  ix.  4,  i),  he  studiously  omits  all  notice 
+of  the  events  recorded  in  2  Kings  iv.  8.  to  vi.  7,  although  there  may  be 
+some  reference  to  the  healing  of  Naaman  in  Ant,  iii.  11,  4. 
+
+
+Attempted  Capture  of  El  is  ha.  163 
+
+his  "  servants  "  what  place  to  occupy,  there  seems  to  have 
+been  a  scheme  to  lay  an  ambush  for  the  capture  of  the  king 
+of  Israel,  whether,  as  Josephus  suggests  {Ajit.  ix.  4,  3),  when 
+Joram  was  on  a  hunting  expedition,  or  else  when  he  passed 
+from  one  palace  to  another.  But  each  time  the  prophet 
+sent  timely  warning,  and  the  king  was  wise  enough  to  avoid 
+the  locality  indicated,  and,  instead  of  passing  that  way,  to 
+send  and  obtain  confirmation  of  what  had  been  foretold 
+him.^  As  this  happened  repeatedly,  the  king  of  Syria 
+suspected  a  traitor  among  his  counsellors,  probably  the  more 
+readily,  that  information  of  the  king  of  Israel's  projected 
+movements  must  in  every  case  have  come  to  the  Syrians 
+from  some  confederate  at  the  Israelitish  court. 
+
+This  explains  how  one  of  the  servants  of  Ben-hadad — 
+probably,  one  of  those  by  whom  these  secret  communications 
+were  carried  on — could  so  readily  point  out  that  the  in- 
+formation was  conveyed  by  Elisha,  whose  prophetic  know- 
+ledge compassed  the  inmost  secrets  of  Syria's  council-chamber.^ 
+It  also  explains  how  the  residence  of  Elisha  could  be  so 
+readily  ascertained,  and  an  expedition  planned  and  hastily 
+carried  out  with  the  view  of  making  him  a  prisoner.  We 
+have  no  difficulty  in  identifying  the  Dothan  which  was  now 
+the  temporary  residence  of  Elisha,  and  the  object  of  Ben- 
+hadad's  attack.  The  spot  still  bears  the  old  designation 
+of  Tell  (hill)  Dothan.  The  ''  twin  wells  "  which  gave  it  that 
+name,  are  north  and  east  of  it.  The  place  itself — about 
+twelve  miles  north  of  Samaria,  and  a  little  to  the  south-west 
+of  Engannim — stands  on  a  green  hill,  or  enclosed  upland 
+basin,-'^  overlooking  (to.  the  north)  one  of  the  richest  pasture- 
+lands,  the  oblong  plain  of  Dothan.     Here  Joseph's  brethren 
+
+^  The  text  sufficiently  vindicates  our  interpretation  of  the  words  in  the 
+Hebrew,  without  entering  here  on  the  critical  grounds  for  our  rendering. 
+
+^  There  is  absolutely  no  reason  for  supposing  that  this  servant  was 
+Naaman ;    but  much  to  the  contrary. 
+
+^  See  Ficttiresque  Palestine  (Vol.  II.  p.  21),  and  Canon  Tristram's  Land 
+of  Israel,  p.  134. 
+
+
+1 64  Elisha. 
+
+could  find  sufficient  sustenance  for  their  flocks  when  they 
+had  exhausted  for  a  time  the  wider  plain  of  Shechem  (Gen. 
+xxxvii.  17).  Just  below  it,  to  the  south,  is  the  great  caravan- 
+route  from  Gilead  to  Sharon,  and  thence  to  Egypt,  where 
+those  Midianites  passed  to  whom  Joseph  was  sold  by  his 
+brethren.  Dothan  is  surrounded  by  an  amphitheatre  of  hills  ; 
+but  northwards  it  looks  out  over  the  plain  towards  those 
+defiles  through  which  the  Syrian  host  advanced  that  was  to 
+capture  Elisha. 
+
+So  far  from  being  surprised  at  the  array  of  "  horses,  and 
+chariots,  and  a  strong  power,"  ^  which  Ben-hadad  despatched 
+on  this  expedition,  we  feel  that  it  is  thoroughly  in  accordance 
+with  the  heathen  notions  of  power.  In  the  course  of  this 
+narrative  we  have  repeatedly  met  instances  of  this,  and  even 
+the  proposal  to  send  fifty  strong  men  for  the  rescue  of  Elijah 
+(2  Kings  ii.  16)  may  be  regarded  as  representing  the  influence 
+of  similar  ideas  in  Israel.  Besides,  it  might  have  been  that 
+the  people  would  rise  in  defence  of  their  prophet.  Elisha 
+knew  all  these  preparations  on  the  part  of  Ben-hadad  ■;  knew 
+also,  that  during  the  night  the  city  had  been  surrounded  by 
+the  Syrians,  so  that,  to  the  eye  of  man,  there  seemed  no  way 
+of  escape.  But  he  rested  quietly,  for  he  also  knew  that  "  He 
+that  keepeth  Israel  neither  slumbers  nor  sleeps."  Nay,  does 
+it  not  seem  as  if  the  language  of  Psa.  cxxi.  quite  specially 
+described  his  experience,  and  as  if  he  had  been  looking  up 
+to  those  "mountains"  from  whence  his  help  was  to  come? 
+And  is  it  not  often  so  in  the  experience  of  God's  people^  as  if 
+the  wording  of  the  Psalms  were  almost  literally  portraying 
+alike  what  they  feel  and  hope,  and  what  happens  to  them  ? 
+
+It  was  early  morning,  and  the  servant  of  the  prophet — not 
+Gehazi  now,  but  perhaps  one  of  "  the  sons  of  the  prophets  " — 
+went   forth^   it   may  be   to  make  preparation    for   the   return 
+
+^  The  expression  is  difficult.  From  the  after-narrative  it  cannot  mean 
+"  a  great  host  "  (see  vv.  22,  23),  and  it  is  even  difficult  to  suppose  that  it 
+can  refer  to  a  large  division  of  footmen,  who  would  be  unsuited  to  such 
+an  expedition.     The  same  expression  occurs  in  i  Kings  x.   2. 
+
+
+At  Dothaii.  165 
+
+of  his  master  1  from  Dothan  to  his  permanent  home  at 
+Samaria  (2  Kings  vi.  32).  This  would  throw  hght  on  the 
+language  which  Elisha  afterwards  held  to  the  Syrians  (2  Kings 
+vi.  19).  But  when  Elisha's  servant  saw  the  town  surrounded 
+by  the  Syrian  host,  his  heart  failed  him,  and  he  turned  to 
+his  master  with  the  despairing  inquiry  what  they  were  to  do. 
+If  our  previous  suggestion  that  they  had  intended  leaving 
+Dothan  that  morning  be  well  founded,  it  is  not  necessary  to 
+suppose  that  the  servant  knew  the  expedition  to  have  been 
+especially  destined  against  Elisha ;  but  he  would  naturally 
+feel  that  not  only  was  their  projected  journey  now  impossible, 
+but  that  his  master  and  himself  were  in  imminent  danger  from 
+which  there  seemed  no  possibility  of  escape.  What  follows 
+is  both  historically  and  symbolically  of  deepest  importance. 
+In  answer  to  the  prayer  of  Elisha  the  eyes  of  the  young  man 
+were  opened,  and  he  beheld  the  height  which  overlooked 
+Dothan — or  else  that  on  which  it  stood — full  of  horses  and 
+chariots  of  fire.  Truly  had  Elisha  said  :  "  Fear  not,  for  more 
+they  with  us  than  they  with  them."  It  was  not  only  the 
+Divine  answer  to  the  Syrian  challenge,  and  the  manifestation 
+of  the  Divine  triumphant  supremacy  over  the  power  of  the 
+enemy,  but  the  revelation  of  the  ever-present,  watchful  help 
+of  Him  Whose  angel  "  encampeth  round  about  them  that 
+fear  Him,  and  delivereth  them  (Psa.  xxxiv.  7;  Iv.  18; 
+xci.  11).  But  although  the  vision  was  vouchsafed  to  the 
+prophet's  servant  when  his  "eyes"  were  "opened"  (Gen. 
+xxi.  19  ;  Numb.  xxii.  31) — that  is,  a  sight  of  objects  granted 
+him,  which,  in  our  present  state,  is  preternatural — we  regard 
+it  as  none  the  less  real.  And  this,  though  the  appearance 
+of  "  fire,"  which  was    the  well-known    symbol  of   the   Divine 
+
+1  Such  peculiarly  early  rising  and  forthgoing  —  that  is,  for  a  special 
+purpose — seems  also  implied  in  the  circumstance  that  apparently  none 
+of  the  townsmen  was  up  to  see  the  Syrian  host.  Such  "  early  "  rising 
+is  very  frequently  mentioned  in  the  Old  Testament  as  in  preparation  for 
+a  journey  (comp.  Gen.  xix.  2,  27  ;  xxi.  14  ;  xxii.  3  ;  xxviii.  18  ;  xxxi.  55  ; 
+Josh.  iii.   I  ;  Judg.  vii.  3  ;   xix.  9,  and  in  other  places). 
+
+
+1 66  E  lis  ha. 
+
+manifestation  (Ex.  xxiv.  17;  2  Kings  ii.  11;  Psa.  1.  3; 
+Isa,  xxix.  6  ;  Ezek.  i.  4,  27),  and  even  the  form  of  "chariots 
+and  horses "  might  be  the  human  mode  of  presentation 
+famihar  to  the  Jewish  mind  (comp.  also  Psa.  civ.  3 ;  Isa.  Ixvi. 
+15;  Habak.  iii.  8).  But  we  entertain  no  doubt  of  the  real 
+and  constant,  though  by  us  unseen,  presence  of  those  angel- 
+hosts,  which  alike  the  Old  and  the  New  Testament  teach 
+us  to  believe  are  the  messengers  of  God's  behests  and 
+ministering  spirits  to  His  saints.  And  this  adds  both 
+solemnity  and  comfort  to  all  our  doing. 
+
+In  view  of  this  heavenly  guard  there  could  be  no  hesitation 
+on  the  part  of  Elisha  and  his  servant  in  carrying  out  what  we 
+have  supposed  to  have  been  their  original  intention  of 
+returning  to  Samaria.  And  so  the  two  went  down  to  the 
+Syrian  host.^  At  the  prayer  of  Elisha  they  were  smitten, 
+not  with  blindness  but  with  blinding,  so  that,  in  the  words  of 
+the  Rabbis,^  "  they  saw,  but  they  knew  not."*"^  It  was  not, 
+therefore,  "a  lawful  stratagem""^  on  his  part,  but  literally  true, 
+when  Elisha  said  to  the  Syrians  who  were  about  to  make 
+their  way  into  Dothan :  "  This  is  not  the  way,  and  this  is 
+not  the  city  \  come  after  me,  and  I  will  bring  you  to  the  man 
+whom  you  are  seeking."  For  Elisha  was  then  on  his  way 
+to  his  home  at  Samaria,  nor  could  he  who  had  just  pointed 
+his  servant  to  the  heavenly  defence  around  them  have  been 
+
+^  In  going  down  from  the  hill  on  which  Dothan  was  built,  in  order 
+to  journey  to  Samaria,  they  would  necessarily  come  into  the  Syrian  host 
+which  surrounded  the  place.  Our  A.  V.  puts  it  as  if  the  Syrians  had 
+come  down  to  Elisha,  which,  from  the  position  of  the  host,  would  have 
+been  simply  impossible.  It  is  true,  that,  in  the  Hebrew,  the  pronoun 
+is  in  the  singular  ("to  him  "  in  the  A.  V.),  but  this  only  means  '*  to  it," 
+viz.  the  host.  Indeed,  according  to  the  A.  V.  there  would  be  no  mention 
+of  Elisha  and  his  servant  having  left  the  city. 
+
+^  Rashi  ad  loc. 
+
+3  The  Hebrew  word  used  does  not  mean  actual  blindness,  but  blinding 
+in  the  sense  that  one  does  not  see  the  actual  object,  but  an  imaginary 
+one.     Besides  the  present  passage  it  is  only  used  in  Gen.  xix.  11. 
+
+4  So  even  Keil  characterises  it. 
+
+
+TJie  Syrians  in  Samaria.  167 
+
+tempted  to  tell  a  lie  in  order  to  escape  the  threatened 
+danger.  His  object  was  to  show  the  Syrians  that  the  God 
+Whose  prophet  he  was  could  not  be  contended  with-  in  such 
+manner  as  they  thought,  nor  His  purposes  frustrated.  And 
+not  the  Syrians  only,  but  Israel  also,  ^  would  have  practical 
+proof  that  He  was  the  living  God  when  Elisha  brought  his 
+blinded  pursuers  as  his  willing  captives  into  Samaria. 
+
+It  must  have  been  a  wonderful  sight,  alike  to  Syrians  and 
+Israelites,  when,  in  answer  to  the  prophet's  prayer,  the  Lord 
+once  more  "  opened  the  eyes  of  the  enemyj"  and  they  found 
+themselves  in  the  midst  of  vSamaria.  We  can  only^ ^indulge 
+in  conjecture,  how,  perhaps,  Elisha  had  hurried  on  with  the 
+swiftest;  how  the  watchman  on  the  tower  would  have 
+announced  the  approach  of  the  strange  band ;  how,  although 
+no  marauding  expedition  would- have  been  expected  to  make  a 
+raid  upon  Samaria_,  yet  the  royal  troops  would  have  mustered 
+under  the  command  of  the  king  himself — and  perhaps,  as 
+Josephus  puts  it,  in  his  somewhat  rationalistic  account  of  the 
+event,  have  surrounded  the  Syrians  at  the  prophet's  bidding  ;> 
+and,  lastly,  what  terrible  surprise  followed  when  they  discovered, 
+where  they  were.  It  is  more  inyportant  to  mark  how  once 'more' 
+all  acted  in  character.  With  an  eagerness  ^  and  a  spiritual  dul- 
+ness  characteristic  of  him,  Joram  would  fain  have  slaughtered 
+these  captives  of  the  Lord.  And  with  characteristic  up- 
+rightness and  large-hearted  generosity,  the  prophet  -almost- 
+indignantly  rebuked  the  spurious  zeal  and.  courage  of  the 
+king  :  "  Thou  shalt  not  smite  !  Them  whom  thou  hast  made 
+captives  with  thy  sword  and  thy  bow  thou  smitest."^  It  would 
+have  been  unmanly  to  have  done  otherwise ;  Jehoijah  had  not 
+
+1  This  appears  even  from  the  repetition :  "  Shall  I  smite  ?-Shall  I  smite  ?  " 
+and  the  very  addition,  "  My  father,"  is  instructive  in'the  circumstances. 
+
+2  For  linguistic  reasons  interpreters  have  generally,  translated  :  "Dost 
+thou  smite,"  etc.  in  the  sense,  that  Joram  did  not  ^ven  kill  his  lawful 
+captives,  how  much  less  these  !  But  this  would  give  a  very  inapt  and 
+imlikely  meaning.  Our  view  of  the  text  is  that  taken  in  Josephus'  account 
+of  the  event. 
+
+
+-t    \ 
+
+
+1 68  E  lis  ha. 
+
+brought  these  blinded  men  there  as  His  own  captives  to  give 
+the  king  of  Israel  an  easy  and  a  cruel  triumph ;  nay,  the 
+whole  moral  purpose  of  this  event,  its  very  character,  would 
+have  been  changed,  if  the  proposal  of  Joram  had  been  carried 
+out.  And  it  was  right  royal  treatment  on  the  part  of  the 
+Heavenly  Conqueror's  ambassador,  when,  at  his  bidding,  they 
+gave  them  a  great  meal,  and  then  dismissed  them  to  their 
+master,  to  report  how^  Jehovah  made  captives  of  the  captors  of 
+His  representative,  and  how  He  entertained  and  released  His 
+captives. 
+
+And  what  is  right  is  also  wise.  We  do  not  wonder  to  read 
+that  after  this  marauding  bands  of  Syrians  no  longer  made 
+incursions  into  the  land.  But  to  us  all  there  are  many  lessons 
+here  :  not  only  of  the  unseen,  but  certain  presence  of  our  God 
+and  of  His  help ;  of  rebuke  to  our  groundless  fears,  and  en- 
+couragement to  go  forward ;  but  also  as  concerning  the  enemies 
+of  the  people  of  God  and  our  dealing  with  them.  How  often 
+w^hen  they  have  surrounded  Dothan,  and  deemed  themselves 
+certain  of  achieving  their  purpose,  have  they  seemed  blinded, 
+and  found  themselves  in  the  midst  of  Samaria.  How  many 
+times  have  arguments  and  measures,  which  were  thought 
+certain  of  success  against  the  truth  or  the  people  of  God, 
+ended  in  quite  the  opposite  result.  And  lastly,  should  we  not 
+learn  to  deal  with  those  whom  not  our  ow^n  power,  but  God, 
+has  made  helpless  captives,  not  as  if  they  were  our  personal 
+enemies,  but  generously,  while  faithfully,  although  in  meekness, 
+instructing  those  who  oppose  themselves,  if  God  peradventure 
+will  give  them  repentance  to  the  acknowledging  of  the  truth 
+(2  Tim.  ii.  25)?  For,  as  harsh  or  self-asserting  bearing  on 
+the  part  of  those  who  may  defend  the  truth  of  God  would 
+tend  to  injure  that  cause,  probably  more  than  anything  else,  so 
+assuredly  would  it  be  palpably  and  painfully  incongruous. 
+And  yet — the  Lord  reigneth,  and  He  will  take  care  of  His 
+own  work. 
+
+
+CHAPTER     XIII. 
+
+Siege  of  Samaria  by  tiie  Syrians— Terrible  Straits  and  Tragody  in 
+the  City— The  King  sends  to  slay  Elisha,  but  arrests  his  Messenger 
+— Announced  Deliverance  and  Judgment  on  the  Unbelieving  "Lord'' 
+—The  Discovery  by  the  Four  Lepers— Flight  of  the  Syrians— Relief 
+of  Samaria— The  Unbelieving  Trodden  to  Death  in  the  Gate. 
+
+(2  Kings  vi.  24— vii.  20.) 
+
+THE  sacred  narrative  now  resumes  the  record  of  public 
+events  in  Israel,  although  still  in  close  connection  with 
+the  ministry  of  Elisha,  which  at  this  crisis  appears  the  primal 
+factor  in  the  history  of  the  northern  kingdom.  Remembering 
+that  it  is  written  from  the  prophetic  standpoint,  we  do  not  here 
+look  for  a  strictly  chronological  arrangement  of  events,  but 
+rather  expect  to  find  them  grouped  according  to  the  one  grand 
+idea  which  underlies  this  history. 
+
+It  is  impossible  to  determine  what  time  may  have  intervened 
+between  the  attempts  and  the  expedition  described  in  the  last 
+chapter  and  the  open  warfare  against  Samaria,  the  incidents  of 
+which  we  are  about  to  relate.  According  to  Josephus  {Anf. 
+ix.  4,  4),  it  followed  immediately — the  narrative  of  those  who 
+had  returned  from  Samaria  having  convinced  Ben-hadad  that 
+any  secret  attempts  upon  the  king  of  Israel  were  hopeless, 
+and  determined  him  to  resort  to  open  warfare,  for  which  he 
+deemed  his  army  sufficient. ^  However  that  may  be,  he  was 
+soon  to  experience  how  vain  were  all  such  attempts  when  God 
+was  in  defence  of  His  people.  And  here  the  question  naturally 
+arises  why  such  Divine  interpositions  should  have  been  made  on 
+
+^  This,  however,  would  scarcely  seem  to  us  the  likely  outcome  of  the 
+events  just  recorded.  We  would  rather  suggest  that  some  time  must  have 
+elapsed  during  which  the  impression  made  by  the  miraculous  help  lo  Israel 
+had  gradually  passed  away. 
+
+
+I70 
+
+
+E  lis  has 
+
+
+behalf  of  Israel.  The  answer  is  not  difficult,  and  it  will  throw 
+light  upon  the  course  of  this  history.  Evidently,  it  was  a 
+period  of  comparative  indecision,  before  the  final  attitude  of 
+the  Jiation  towards" Jehovah  was  taken,  and  with  it  the  ultimate 
+fate  of  Israel  decided.  Active  hostility  to  the  prophet  as  God's 
+representative  and  to  the  worship  of  Jehovah  had  ceased,  and 
+thepe  were  even  tokens  for  good  and  of  seeming  return  to  the 
+Loud.  But,  as  events  soon  showed,  there  was  not  any  real 
+repentance,  and  what  to  a  superficial  observer  might  seem  the 
+beginning  of  a  calm  was  only  a  lull  before  the  storm.  This 
+interval  of  indecision,  or^token  of  pending  decision,  must  be 
+taj^en  into  account.  The  presence  of  the  prophet  in  Israel 
+mbant  the  final  call  of  God  to  Israel,  and  the  possibility  of 
+national  repentance  and  forgiveness.  Every  special  interposi- 
+tion, such  as  those  we  have  described,  was  an  emphatic 
+attestation  of  Elisha's  mission,  and  hence  of  his  message ;  and 
+every  deliverance  indicated  how  truly  and  easily  God  could 
+halp^and  deliver  His  people,  if  only  that  were  in  them  towards 
+which  tiie  presence  of  the  prophet  pointed.  And  the  more 
+minute  and  apparently  unimportant  the  occasions  for  such 
+interposition ,  and  deliverance  wxre,  the  more  strikingly  would 
+all  this  appear.  It  is  with  such  thoughts  in  our  minds  that 
+we  must  study  the  history  of  the  siege  and  miraculous  relief 
+of  Samaria. 
+
+Ben-hadad  was  once  more  laying  -^iege  to  Samaria  (comp. 
+I  Kings  XX.).  And  to  such  straits  was  the  city  reduced  that  not 
+only  levitically  unclean  but  the  most  repulsive  kind  of  meat 
+fetched  a  price  which  in  ordinary  times  would  have  been 
+extravagant  for  the  most  abundant  supply  of  daintiest  food, 
+while  the  coarsest  material  for  cooking  it  sold  at  a  propor- 
+tionally high  rate.  It  must  have  been  from  want  of  provender 
+for  them  that  suchl^egsts  of  burden  as  asses,  so  common  and 
+useful  in  the  East,  were  killed.  Even  their  number  must  have 
+been  terribly  diminished  ^  when  an  ass's  head  would  sell  for 
+eighty  pieces  of  silver  (variously  computed  at  from  £^  to  ^8), 
+1  Comp.  2  Kings  vii.    13. 
+
+
+Straits  in  the  City.  \ji 
+
+and  a  "cab^  of  doves' dung"  ^ — used  when  dried  as  material  for 
+firing — for  five  pieces  of  silver  (computed  at  from  6/  to  io/  3). 
+If  such  were  the  straits  to  which  the  wealthier- were  reduced, 
+we  can  imagine  the  sufferings  of  the  poor.  But  o^ily'  the 
+evidence  of  those  who  themselves  were  actors  in  it  coul^-have 
+made  any  one  believe  in  the-^^ossibility  of  ^uch  'a  tragedy  as 
+that  to  the  tale  of  which  King  Joram  was  to  listen,  ^hile 
+making  the  round  of  the  broad  city*  wall  (the^/^m),  ppofeably 
+to  encourage  as  well  as  to  inspect  the  defenders  of  the  city, 
+and  to  observe  the  movement^  of«the  enerfty,  he  was  arrested 
+by  the  cry  for  help  of  a-  frenzied  ^jj0*tfan.  Probably  too  ntuch 
+accustomed  to  the  state  of  famine-and  miscK^,  the  king  uttsred 
+an  ejaculation,  indicative  not  oril.jT^of  the,  general  distress 
+prevailing  in  the  city,  but  of  his  own  stat^  of  mind.  vHis 
+words  seem  to  imply  that  he  felt  J'ehovahTalone  could  give 
+help,*  perhaps  that  he'vhad  some  d^ii  expectation  of  i^,-,but 
+that  the  Lord  withheld  from  sending  it  ./or  some  reason 
+for  which  neither  king  nor  people  were  to  blan^e..  *  As 
+we    view    it    in    the    light    of    his    after-conduct  (coi-lip. '  vv. 
+
+1  "  A  cab,"  the  sixth  part  of  a  seaii,  'and  comput-*^  'by  the-fRabbis  as 
+of  the  capacity  of  twenty-four  eggs.  •'^ 
+
+"  This  seems  the  undoubted  meaning  of  the  term,  although  sorrj*  writers 
+have  regarded  it  as  the  designation  for  some  kind  of  vegetable  or  coarse 
+peas  (comp.  Bochart,  Hiei'i^oicon^  II.,  pp.  45,  46).  Soipe  of  tfj.e  Rabbis 
+also  regard  the  "  doves'  dung  "  as  used  for  firing,  since  the  city  was  so  shut 
+in  that  wood  could  not  be  got.  ^\        ..^ ^ 
+
+^  Classical  writers  record  similar  straits.  "Thus,  Plutarch  tell^^that  in 
+a  famine  an  ass's  head  was  sold  for  sixty  drachms,  while  at  ordina-ry  times 
+an  ass  was  sold  at  from  twenty-five  to  thirty  drachms,  and  Pliny  that  at  the 
+siege  of  Casalinum  by  Hannibal,  a  mouse  was  sold  for  200  denars.  'A  tale 
+of  even  sorer  distress  comes  to  us  from  the'last  si,©ge^f  Jerusalem,  when  the 
+excrements  of  men  and  animals  were^ search^  for  and  eaten  (Jos.  War 
+V.  13,  7).  ^^^ 
+
+•*  It  is  scarcely  necessary  to  say  that  we'' regard  the  rendering:  *  If 
+Jehovah  do  not  help  thee,  whence  shall  I  help^  thee  ?  "  as  correctly  giving 
+the  meaning  of  the  original.  To  regard  the^fords  as  an  imprecation,  is 
+evidently  incongruous,  although  Josephus  takes  that  view  of  them.  A  similar 
+remark  applies  to  other  interpretations  of  the  words. 
+
+
+1/2  El  is  ha. 
+
+31-33),  King  Joram  connected  the  straits  of  Samaria  with  the 
+prophet  Elisha, — either  they  were  due  to  his  direct  agency, 
+or  else  to  his  failure  to  make  intercession  for  Israel.  Such 
+ignorance  of  the  spiritual  aspect  of  God's  dealings,  even 
+when  they  are  recognised,  together  with  an  unhumbled  state 
+of  heart,  unwillingness  to  return  to  God,  and  the  ascription  of 
+the  evils  befalling  us  to  the  opposite  of  their  true  cause,  are 
+only  too  common  in  that  sorrow  which  Holy  Scripture  charac- 
+terises as  "of  the  world,"  and  working  "death." 
+
+The  horrible  story  which  the  woman  told  to  the  king  was 
+that  she  and  another  had  made  the  agreement  that  each  of 
+them  was  successively  to  kill  her  son  for  a  meal  in  which  they 
+two  were  to  share ;  that  the  one  had  fulfilled  her  part  of  the 
+bargain,  but  that,  after  partaking  of  the  dreadful  feast,  the  other 
+had  hidden  her  son.  Whether  or  not  the  feelings  of  mother- 
+hood had  thus  tardily  asserted  themselves  in  the  second  mother, 
+or  whether,  in  the  avarice  of  her  hunger,  she  wished  to  reserve 
+for  herself  alone  the  unnatural  meal,  matters  not  for  our  present 
+purpose.  But  we  recall  that  such  horrors  had  been  in  warning 
+foretold  in  connection  with  Israel's  apostasy  (Lev.  xxvi.  29; 
+Deut.  xxviii.  53) ;  that  they  seem  to  have  been  enacted  during 
+the  siege  of  Jerusalem  by  Nebuchadnezzar  (Lam.  iv.  10)  ;  and 
+lasdy,  that  we  have  historical  evidence  of  their  occurrence 
+during  the  last  siege  of  Jerusalem  by  Titus  (Jos.  War,  VI.,  3, 
+4).  Even  if  it  had  not  reminded  the  king  of  the  predicted 
+Divine  curse,  such  a  tale  could  not  have  fallen  on  his  ear,  es- 
+pecially in  existing  circumstances,  without  exciting  the  deepest 
+and  strongest  feelings.  The  story  itself  was  sufficiently  har- 
+rowing ;  but  that  a  mother  should,  even  in  the  madness  of 
+self-reproach,  make  public  appeal  to  the  king,  that  her  neigh- 
+bour should  be  kept  to  her  part  of  the  compact,  revealed  a 
+state  of  matters  and  of  public  feeling  which  called  for  that 
+universal  mourning  which  the  king,  as  head  of  the  state,  inau- 
+gurated, when  almost  instinctively  *'he  rent  his  clothes."  And 
+so,  too  often,  they  that  will  not  mourn  for  sin  have  to  mourn 
+for  its  consequences. 
+
+
+The  King's  Anger.  173 
+
+But  as  the  people  watched  their  king  as,  with  rent  clothes, 
+he  passed  on  his  way,  they  took  notice  that  he  wore  other 
+token  of  mourning — that  "he  had  sackcloth  within  upon  his 
+flesh."  And  yet,  strange  as  it  may  seem,  there  is  not  any 
+inconsistency  between  this  and  what  immediately  follows  in 
+the  sacred  narrative.  There  is  no  reason  to  doubt  his  out- 
+ward penitenccj  of  which  this  was  the  token — perhaps,  alas, 
+the  main  part.  Nor  do  we  require  to  suppose,  as  has  been 
+suggested,  either  that  he  had  put  on  sackcloth  in  obedience 
+to  a  general  command  of  Elisha,  or  else  that  his  anger 
+against  the  prophet  was  due  to  the  advice  of  the  latter  that 
+Samaria  should  hold  out  in  expectation  of  Divine  deliverance, 
+and  that  he  (the  king)  had  put  on  sackcloth  in  the  belief 
+that  thereby  he  would  secure  the  promised  help.  For  similar 
+conduct  may  still  be  witnessed  as  regards  its  spirit,  although 
+the  outward  form  of  it  may  be  different.  A  man  experi- 
+ences the  bitter  consequences  of  his  sinful  ways,  and  he 
+makes  sincere,  though  only  outward,  repentance  of  them. 
+But  the  evils  consequent  upon  his  past  do  not  cease ;  per- 
+haps, on  the  contrary,  almost  seem  to  increase^  and  he  turns 
+not  within  himself,  for  humiliation,  but  without^  to  what  he 
+supposes  to  be  the  causes  of  his  misfortunes,  perhaps  often 
+those  very  things  which  are  intended  ultimately  to  bring 
+spiritual  blessing  to  him.  The  sudden  outburst  of  the  king's 
+anger  against  Elisha  indicates  that  he  somehow  connected 
+the  present  misery  of  Samaria  with  the  prophet ;  and  the 
+similarity  of  his  rash  vow  of  Elisha's  death  with  that  of  his 
+mother  Jezebel  in  regard  to  Elijah  (i  Kings  xix.  2)  would 
+lead  to  the  inference  that  Joram  imagined  there  was  a  kind 
+of  hereditary  quarrel  between  the  prophets  and  his  house. 
+This,  although  he  had  but  lately  experienced  personal  de- 
+liverances through  Elisha  (2  Kings  vi.  9,  10).  Perhaps, 
+indeed,  we  may  hazard  the  suggestion  that  one  of  the  reasons 
+for  them  may  have  been  to  show  that  the  controversy  was  not 
+with  the  members  of  the  house  of  Ahab  as  such,  but  with  them 
+as  alike  the  cause  and  tlie  representatives  of  Israel's  apostasy. 
+
+
+1 74  ElisJia. 
+
+But  the  king's  mood  was  fitful.  The  command  to  slay 
+Elisha  was  immediately  succeeded  by  another  resolve,  whether 
+springing  from  fear  or  from  better  motives.  He  hastily  fol- 
+lowed the  messenger  whom  he  had  sent,  in  order  to  arrest 
+the  execution  of  the  sentence  on  which  he  had  gone.  Mean- 
+while the  prophet  himself  had  been  in  his  house  with  the 
+elders  of  the  city — we  can  scarcely  doubt,  making  very  dif- 
+ferent application  of  the  state  of  matters  in  Samaria  than 
+the  king  had  done.  We  do  not  wonder  that  all  that  was 
+happening  should  have  been  Divinely  communicated  to  Elisha, 
+nor  yet  that  he  should  have  described  in  such  language  the  pur- 
+posed judicial  murder  by  Joram  as  characteristic  of  the  son 
+of  Ahab  and  Jezebel.  Plain  and  fearless  as  the  words  were, 
+they  would  also  remind  the  elders  of  the  pending  judgment 
+against  the  house  of  Ahab.  By  direction  of  the  prophet  they 
+who  were  with  him  now  prevented  the  entrance  of  the  king's 
+messenger,  who  was  so  soon  to  be  followed  by  the  monarch 
+himself.  The  words  (ver.  33)  :  "  And  he  said,  Behold  this  the 
+evil  is  from  Jehovah,  why  should  I  wait  [hope]  any  longer  ?  " 
+were  spoken  by  the  king  as  he  entered  the  presence  of 
+Elisha.  They  are  characteristic  of  his  state  of  mind.  It 
+was  perhaps  for  this  reason  that  the  prophet  apparently  gave 
+no  heed  of  any  kind  to  them.  They  only  served  to  bring 
+into  more  startling  contrast  the  abrupt  announcement  which 
+the  prophet  was  commissioned  to  make.  Alike  in  itself  and 
+in  the  circumstances  of  the  city,  it  seemed  to  imply  not  only 
+a  miracle  but  an  absolute  impossibility.  Yet  the  message 
+was  not  only  definite  but  solemnly  introduced  as  "the  word 
+of  Jehovah."  It  was  to  this  effect,  that  about  that  time  on 
+the  morrow,  a  seah  (about  a  peck  and  a  half)  of  fine  flour 
+would  be  sold  in  the  gate  of  Samaria,  where  the  public 
+market  was  held,  for  a  shekel  (about  2s.  "jd.),  and  two  seahs 
+(about  three  pecks)  of  barley  for  the  same  price. 
+
+Such  abundance  as  this  would  imply  could  not  have  been 
+expected  even  in  the  most  fruitful  seasons.  The  words  must 
+have  come  with  such  surprise  upon  all,  that  only  absolute  faith  in 
+
+
+TJlc  Unbelieving  Office}'.  175 
+
+the  prophet^  or  rather  in  the  presence  of  Jehovah  with  him,  could 
+have  secured  credence  for  them.  And  is  it  not  ahvays  so,  when- 
+ever any  real  need  of  ours  is  brought  face  to  face  with  a  pro- 
+mise of  God, — and  are  we  not  always  tempted,  in  the  weakness 
+of  our  faith,  either  to  minimise  and  rationalise  God's  promises, 
+or  else  not  to  realise  nor  lay  hold  on  them  ?  Thus  every  pro- 
+mise is  a  twofold  test  :  of  His  faithfulness — although  only  if 
+we  believe  ;  and  of  our  faith.  And  in  that  assembly  there  was 
+at  least  one  who  did  not  hesitate  to  speak  out  his  disbelief, 
+even  though  the  announcement  had  been  solemnly  made  in 
+the  name  of  Jehovah,  by  one  who  had  previously  often  earned 
+a  claim  to  credence,  however  incredible  his  predictions  might 
+have  seemed.  But  this  is  the  very  test  of  faith — that  the  past 
+never  seems  to  afford  a  quite  sufficient  basis  for  it,  but  that  it 
+must  always  stretch  beyond  our  former  experience,  just  because 
+it  is  always  a  present  act,  the  outcome  of  a  present  life.  And 
+apart  from  the  sneer  which  it  conveyed,  there  was  certainly 
+reason  in  the  retort  of  the  adjutant,^  on  whose  hand  the  king 
+leaned:^  "If  Jehovah  made  windows  in  heaven,  would  this 
+thing  be  ?  "  ^-  But  it  needed  not  the  direct  sending  of  corn 
+through  windows  made  in  the  heavens,  To  the  lessons  of 
+God's  faithfulness  to  His  promise  there  was  now  to  be  added, 
+as  counterpart,  another  of  His  faithfulness  as  regarded  the 
+threatened  judgments  upon  unbelief.  The  officer  who  had 
+disbelieved  the  announcement  should  see  but  not  share  in  the 
+good  of  its  fulfilment. 
+
+As  we  transport  ourselves  into  the  circumstances,  it  must 
+have  been  impossible  to  imagine  any  fulfilment  of  the  predic- 
+tion without  the  most  direct  Divine  interposition.  And  yet  it 
+was  only  because  they  were   ignorant  of  what  would  evolve 
+
+^  No  really  satisfactory  explanation  of  the  Hebrew  term  has  been  given. 
+But  the  rendering,  "adjutant,"  gives  at  least  the  true,  even  if  it  should  not 
+be  the  literal,  meaning. 
+
+-  Comp.  2  Kings  v.    18. 
+
+^  Other  renderings  have  also  been  proposed,  Imt  it  seems  to  me  that  this 
+most  tiuly  gives  the  meaning  of  the  original. 
+
+
+176  E  lis  ha. 
+
+that  any  miracle,  in  the  sense  in  which  we  use  that  expression, 
+seemed  necessary.  As  they  were  so  soon  to  learn,  and  as  we 
+understand  it,  all  happened  in  the  orderly  and  reasonable  suc- 
+cession of  events.  But  the  miracle  lies  in  the  Divinely  arranged 
+concurrence  of  natural  events,  with  a  definite  view  to  a  Divine 
+and  pre-arranged  purpose.  And  so — if  we  would  only  learn 
+it — miracles  are  such,  because  we  view  God's  doings  from  earth, 
+and  in  the  light  of  the  present  and  the  seen ;  miracles  are  the 
+sudden  manifestation  of  the  ever-present  rule  of  God ;  and,  if 
+we  had  but  eyes  to  see  and  ears  to  hear,  we  are  still  and  ever 
+surrounded  by  miracles. 
+
+The  means  employed  in  the  promised  deliverance  wTre  as 
+unexpected  and  strange  as  the  deliverance  itself.  There  were 
+four  lepers^  who,  according  to  the  law  (Lev.  xiii.  46;  Numb. 
+V.  2),  were  kept  outside  the  city,  at  the  entrance  to  the  gate. 
+In  the  straits  to  which  Samaria  was  reduced,  they  could  no 
+longer  expect  even  the  scantiest  provision  which  charity 
+within  the  city  might  supply,  or  careful  search  without  its  walls 
+might  discover.  In  the  alternative  of  certain  starvation  if  they 
+remained  where  they  were^  or  possible  death  if  they  fell  into 
+the  hands  of  the  Syrians,  they  naturally  chose  the  latter.  As 
+the  twilight  deepened  into  gloom,  they  started  to  carry  out 
+their  purpose.  As  we  understand  it,  they  made  a  long  circuit 
+to  approach  the  Syrian  camp  at  its  "  uttermost  part,"  ^  that  is, 
+the  part  furthest  from  Samaria.  This  would  naturally  be  their 
+best  policy,  as  they  would  neither  be  observed  from  the  city, 
+nor  by  those  in  the  camp  of  the  enemy,  who,  as  nearest  to 
+Samaria,  might  be  expected  to  be  most  on  the  watch,  while  at 
+the  same  time  it  might  enable  the  lepers  to  present  themselves 
+as  if  they  were  not  connected  with  the  beleagured.  And  this 
+also  allows  sufficient  time  for  the  flight  of  the  Syrians  having 
+
+^  According  to  Jewish  tradition  these  were  Gehazi  and  his  sons. 
+
+2  Generally  the  expression,  "  the  uttermost  part  of  the  camp  of  Syria,"  is 
+understood  to  refer  to  the  part  nearest  the  city.  But  this  would  not  be  the 
+obvious  meaning  of  the  expression,  and,  for  the  reasons  mentioned  in  the 
+text,  we  have  adhered  to  the  primary  sense  of  the  words. 
+
+
+Flight  of  tJie  Syrians.  lyy 
+
+taken  place  without  being  observed  by  the  lepers,  who  pro- 
+bably had  made  a  wide  detour  around  the  hills.  For  while 
+they  crept  about  the  camp  there  was  a  strange  movement 
+within  it.  It  is  not  necessary  to  suppose  that  the  "  noises  of 
+chariots,"  "  of  horses,"  and  "  of  a  great  host,"  which  the  Syrians 
+seemed  to  hear  in  the  falling  darkness,  depended  on  a  super- 
+naturally  caused  illusion  of  their  senses  (comp.  2  Kings  vi. 
+19,  20);  nor  yet  that  the  noise  itself  was  supernaturally  caused. 
+Such  noises  are  said  to  be  occasionally  heard  in  valleys  shut 
+in  by  mountains,  and  to  have  been  popularly  regarded  as  por- 
+tending war.^  The  Syrians,  at  any  rate,  thought  they  heard  the 
+approach  of  relieving  armies.  Tribes  from  the  great  Hittite 
+nation  in  the  north,  and  bands,  if  not  the  armies  of  Egypt,  had 
+been  hired  against  them  by  Joram,  and  were  now  simultaneously 
+advancing  on  them  from  the  north  and  the  south.  This  would 
+seem  to  explain  hew  Samaria  had  held  out  amid  such  terrible 
+straits.  They  had  been  looking  for  this  succour  all  along. 
+Terror  peopled  the  night  with  the  forms  as  well  as  the  sounds 
+of  the  dreaded  host.  We  imagine  that  the  panic  began  at  the 
+extremity  of  the  camp.  Presently  they  were  in  full  flight, 
+abandoning  their  horses,  their  asses,  their  tents,  with  all  the 
+provisions  and  treasures  which  they  contained,  and  hastening 
+to  put  Jordan  between  them  and  their  imaginary  pursuers. 
+
+When  the  four  lepers  reached  the  extremity  of  the  Syrian 
+camp,  the  fugitives  were  already  far  away.  They  listened,  but 
+heard  not  a  sound  of  living  men.  Cautiously  they  looked  into 
+one  tent,  and  finding  it  deserted,  sat  down  to  the  untasted 
+meal  which  lay  spread,  ate  and  drank,  and  then  carried  away, 
+and  hid  what  treasures  they  found.  They  entered  the  next 
+tent,  and  found  it  similarly  deserted.  By  the  time  they  had 
+carried  aw^ay  and  hid  its  treasures  also,  it  became  quite  evident 
+to  them  that,  for  some  unknown  reason,  the  enemy  had  left 
+the  camp.  It  was,  however,  not  so  much  the  thought  that  this 
+was  a  day  of  good  tidings  to  Samaria,  in  which  they  must  not 
+hold  their  peace,  as  the  fear  that  if  they  tarried  till  the  morning 
+^  See  Bahr  on  the  passage. 
+
+
+1/8  E  lis  ha. 
+
+without  telling  it,  guilt  would  attach  to  them,  that  induced 
+them  hastily  to  communicate  with  the  guard  at  the  gate^  who 
+instantly  reported  the  strange  tidings.  But  so  far  from  re- 
+ceiving the  news  as  an  indication  that  the  prediction  of  Elisha 
+was  in  the  course  of  fulfilment,  the  king  does  not  even  seem 
+to  have  remembered  it.  He  would  have  treated  the  report  as 
+a  device  of  the  Syrians,  to  lure  the  people  in  the  frenzy  of 
+their  hunger  outside  the  city  gates.  Foolish  as  the  seeming 
+w^isdom  of  J  Oram  was,  there  are  only  too  many  occasions  in 
+which  neglect  or  forgetfulness  of  God's  promise  threatens  to 
+rob  us  of  the  liberty  and  blessing  in  store  for  us.  In  the  pre- 
+sent instance  there  were,  happily,  those  among  the  king's 
+servants  v/ho  would  put  the  matter  to  the  test  of  experiment. 
+From  the  few  remaining  troops,  five  ^  horsemen  and  two  - 
+chariots  were  to  be  dispatched  to  report  on  the  real  state  of 
+matters. 
+
+The  rest  is  soon  told.  They  found  it  as  the  lepers  had 
+informed  them.  Not  only  was  the  Syrian  camp  deserted,  but 
+all  along  the  way  to  Jordan  the  track  of  the  fugitives  was 
+marked  by  the  garments  and  vessels  which  they  had  cast  away 
+in  their  haste  to  escape.  And  as  the  messengers  came  back 
+with  the  tidings,  the  stream  of  people  that  had  been  pent  up 
+in  the  city  gate  poured  forth.  They  "  spoiled  the  tents  of  the 
+Syrians."  Presently  there  was  abundance  and  more  than  that 
+within  Samaria.  Once  more  market  was  held  within  the  gate, 
+wiiere  they  sold  for  one  shekel  two  sacks  of  barley,  or  else  one 
+sack  of  fine  flour.  And  around  those  that  sold  and  bought  surged 
+and  swayed  the  populace.  Presumably  to  keep  order  among 
+them,  the  king  had  sent  his  own  adjutant,  the  same  "  on  whose 
+hand"  he  had  "leaned"  when  Elisha  had  made  his  prophetic 
+announcement ;  the  same  who  had  sneered  at  its  apparent 
+impossibility.  But  it  was  in  vain  to  seek  to  stem  the  torrent 
+of  the  people.     Whether  accidentally  or  of  purpose  they  bore 
+
+^  Five  :  half  of  ten,  which  is  the  number  of  completeness. 
+
+-  Two  chariots — probably  in  order  that  if  one  were  attacked,  the  other 
+mi,:^ht  make  its  way  back  into  the  city. 
+
+
+Close  of  his  MinisUy.  1 79 
+
+down  the  king's  adjutant,  and  trod  him  under  foot  in  the  gate. 
+''And  he  died,  as  the  man  of  God  had  said." 
+
+We  mark  at  the  close  of  this  narrative  the  emphatic  repeti- 
+tion of  the  circumstances  connected  with  this  event.  For, 
+assuredly,  as  it  was  intended  to  show  the  faithfulness  of  God 
+in  the  fulfilment  of  His  promise  for  good,  so  also  that  of  the 
+certain  and  marked  punishment  of  unbelief  And  both  for  the 
+teaching  of  Israel,  and,  let  us  add,  for  that  of  all  men,  and 
+in  all  ages. 
+
+
+CHAPTER     XIV. 
+
+Close  0f  ^lisha's  f  xibltr  JEimstrjJ :  the  f  ^ginmuQ 
+
+of  Juligment. 
+
+The  Shiinammite  on  her  Return  from  Philisfia  restored  to  her  Property— 
+E/isha's  Visit  to  Damascus— The  Embassy  of  Hazael— Prediction  of 
+Future  Judgment  through  him— The  Murder  of  Ben-hadad  and 
+Accession  of  Hazael. 
+
+(2  Kings  viii.  1-15.) 
+
+*-  pHE  two  narratives  which  follow  that  of  the  siege  of  Samaria 
+1  may  be  characterised  as  in  some  sense  supplementary  to 
+it.  On  the  one  hand,  they  mark  the  relations  between  Elisha 
+and  Joram ;  and  on  the  other,  those  between  the  prophet  and 
+Syria.  They  also  close  what  seems  the  more  personal  account 
+of  Elisha's  activity.  After  that  we  have  only  an  account  of  his 
+death  and  burial  (chap,  xiii.),  drawn,  as  we  suppose,  from  the 
+same  "  memoirs  "  to  which  the  whole  of  this  series  is  due;  the 
+reference  to  Elisha's  activity  in  the  anointing  of  Jehu  (chap, 
+ix.)  forming  part  of  the  more  general  history.  Accordingly  we 
+again  remind  ourselves  that  what  is  about  to  be  described 
+must  not  be  regarded  as  following  in  strict  chronological  sue- 
+
+
+1 80  Elisha. 
+
+cession  what  had  preceded,  but  rather  as  in  internal  con- 
+nection with  it. 
+
+The  first  narrative  introduces  once  more  the  Shunammite 
+and  her  heaven-given,  heaven- restored  son,  although  in  circum- 
+stances far  different  from  those  in  which  we  first  knew  them. 
+Indirectly  we  learn  and  mark  that  the  relations  between  the 
+prophet  and  the  family  of  Shunem  had  not  ceased  with  the  re- 
+storation of  the  child  to  life,  although  Holy  Scripture  has  not 
+preserved  any  record  of  such  intercourse.  And  this  also  is 
+instructive  as  regards  Bible  history.  Further,  we  mark  the 
+affectionate  interest  of  Elisha,  and  his  care  for  the  outward 
+well-being  of  this  family. .  Among  the  other  dealings  of  God 
+with  Israel  we  learn  that  He  "  called  for  a  famine  " — a  most 
+emphatic  expression  (comp.  Psa.  cv.  16;  Hag.  i.  11).  This 
+dearth  was  to  last  for  seven  out  of  the  twelve  years  of  Joram's 
+reign.  Before  its  commencement  the  prophet  "had  spoken" 
+to  the  Shunammite,  warning  her  to  betake  herself  to  any  place 
+outside  the  land  of  Israel  where  she  might  be  able  to  secure 
+a  temporary  home ;  and  "  the  woman  had  arisen  and  done  ^ 
+after  the  saying  of  the  man  of  God."  Although  we  have  evi- 
+dence that  this  famine  pressed  severely  on  the  people  (comp. 
+iv.  38),  yet  the  advice  of  the  prophet  must  have  been  deter- 
+mined by  special  circumstances.  From  the  absence  of  any 
+reference  to  him,  it  is  probable  that  the  Shunammite  had  lost 
+her  husband,  and  with  him  her  mainstay  in  times  of  trouble 
+and  difficulty. 
+
+We  are  told  that  she  went  to  the  land  of  the  Philistines — 
+probably  as  that  nearest  to  her  home,  and  at  the  same  time 
+least  likely  to  suffer,  both  on  account  of  its  fertility  and  its  easy 
+communication  with  grain -producing  Egypt,  When  the  pre- 
+dicted seven  years  of  famine  ended,  the  woman  who,  as  the 
+original  expressly  marks,  had  only  gone  "  to  sojourn  as  a 
+stranger,"  returned  to  her  home  at  Shunem.  But  here  her 
+faith,  which  had  led  her  so  literally  to  obey  the  words  of  the 
+
+^  The  verbs  in  vers.  I.  2  musl  be  given  in  the  pluperfect,  not  the  im- 
+perfect tense. 
+
+
+The  Shunaviinite  and  the  King.  i8[ 
+
+prophet,  was  to  receive  a  rude  shock.  *'  Her  house,"  to  which 
+so  many  loving  and  sacred  memories  attached,  and  "her  land  " 
+— her  own  and  her  child's  property— were  occupied  by  strangers. 
+We  remember  the  proud  feeling  of  independence  with  which 
+she  had  on  a  former  occasion  declined  Elisha's  offer  to  speak 
+for  her  to  the  king  (2  Kings  iv.  13),  since  she  dwelt  among 
+her  own  people.  But  since  then,  and  in  the  troubles  connected 
+with  famine  and  Syrian  invasion,  times  had  sadly  changed. 
+And  in  the  circumstances  it  seems  scarcely  less  indicative  of 
+the  Shunammite's  independence  of  character,  that  she  now 
+appealed  directly  to  the  king,  not  for  favour,  but  for  justice. 
+It  was  surely  in  the  good  providing  of  God,  Who  ordereth  all 
+things  wisely  and  well,  that  the  Shunammite  addressed  her 
+appeal  to  the  king  just  as  he  was  talking  with  Gehazi,  and  the 
+latter  at  his  request  was  telling  all  the  great  things  that  Elisha 
+had  done.  But  we  cannot  infer  from  this  conversation  that 
+their  meeting  occurred  before  the  heaUng  of  Naaman,  after 
+which  Gehazi  was  smitten  with  life-long  leprosy,  since,  although 
+lepers  were  banished  from  the  cities,  all  intercourse  with  them 
+was  not  prohibited,  especially  under  such  peculiar  circum- 
+stances. On  the  other  hand,  it  was  evidently  the  period  when 
+the  authority  of  the  prophet  with  the  king  was  at  its  highest,  and 
+hence  either  after  the  capture  of  the  Syrians  in  Samaria  (2  Kings 
+vi.  21),  or,  as  we  think,  after  the  fulfilment  of  Elisha's  prediction 
+of  the  relief  of  Samaria,  and  the  death  of  the  disbelieving 
+"lord."  This  would  best  accord  with  the  present  narrative. 
+In  any  case,  the  appearance  of  the  woman  with  her  son  during 
+Gehazi's  conversation  would  not  only  confirm  its  truth,  but 
+naturally  augment  the  interest  of  the  king  in  her  complaint. 
+And  so  he  ipimediately  ordered  not  only  the  restoration  of  her 
+property,  but  a  return,  probably  from  the  royal  treasury,  of  the 
+value  of  the  produce  of  the  land  during  the  previous  years.  But 
+to  us  and  to  all  time  this  history  is  chiefly  interesting  as  showing 
+how  the  obedience  of  faith  will,  despite  trials  or  appearances 
+to  the  contrary,  be  met  by  the  faithful  care  of  the  God  of 
+promise — and  still  further,  how  God  will  not  allow  the  day  of 
+
+
+i82  E  lis  ha. 
+
+His  people  to  set  in  trouble^  but  cause  the  light  to  break  forth 
+at  eventide. 
+
+The  second  narrative  in  this  history  shows  how  the  name 
+and  work  of  Elisha  were  known,  not  only  in  Israel,  but  beyond 
+it,  even  in  hostile  Syria.  This,  after  what  we  have  already 
+learned,  cannot  surprise  us.  Although  there  is  not  any  express 
+statement  to  that  effect,  we  cannot  but  connect  the  journey  of 
+Elisha  "  towards  Damascus,"  1  with  the  commission  formerly 
+given  to  Elijah  to  anoint  Hazael  king  over  Syria  (i  Kings  xix. 
+15).  This  may  help  us  to  understand  that  the  Word  of  God  has 
+a  wider  than  the  barely  hteral  application  which  so  often  tends 
+to  perplex  the  superficial  reader.  It  also  shows  that  its  fulfil- 
+ment may  be  delayed^  and  when  made,  come  in  other  manner 
+than  was  expected;  and,  lastly,  that  the  prophets  may  for  many 
+years  have  borne  about  the  painful  secret  of  some  trouble  to 
+come — forbearing  to  take  any  part  till  the  moment  for  action, 
+or  rather  for  their  obedience,  was  indicated  to  them  from 
+above. 
+
+It  was,  surely,  not  an  accidental  circumstance  that  when 
+Elisha  arrived  in  Syria  Ben-hadad  was  on  that  sick-bed  from 
+which  his  treacherous  servant  intended  he  should  never  rise. 
+For  the  prophet  was  not  to  come  until  all  was  ready  and  pre- 
+pared for  the  deed  by  which  Hazael  would  ascend  the  throne  of 
+Syria,  that  while  in  its  sequences  necessarily  connected  with 
+the  judgments  foretold  upon  Israel,  yet  no  part  of  the  incentive 
+to  the  crime  could  be  imputed  to  the  agency  of  the  Divine 
+messenger.  Evidently,  if  Hazael  had  not  intended  to  murder 
+his  master,  and  to  pretend  that  he  had  died  of  his  disease, 
+the  words  of  Elisha  would  have  had  no  meaning,  nor  could 
+they  have  suggested  to  him  his  crime. 
+
+On  hearing  of  the  near  approach  of  the  great  prophet  of 
+Israel,  Ben-hadad  charged  Hazael,  probably  his  vizier  or 
+chief  general,  to  meet  Elisha,  and  inquire  through  him  of 
+Jehovah,  whether  he  would  recover  from  his  sickness.  After 
+the  manner  of  the  time,  Hazael  went  to  meet  the  prophet  with 
+^  Ver.  8  shows  that  it  could  not  liave  been  "to  Damascus." 
+
+
+Intervieiv  zvitJi  HazaeL  183 
+
+a  present.  We  are  not  to  understand  that  those  forty  camels 
+which  bore  "  of  every  good  thing  of  Damascus,"  were  Hterally 
+fully  laden.  This  magnifying  of  a  present  by  distributing  and 
+laying  it  on  a  great  many  bearers  or  beasts  of  burden,  is  charac- 
+teristic of  the  East,  and  is  not  uncommonly  witnessed  in  our 
+own  days.  Hazael  delivered  his  master's  message  with  un- 
+blushing hypocrisy.  But  Elisha  had  read  his  purpose,  and 
+replied  m  language  which,  while  it  unmasked,  could  never 
+have  suggested  his  murderous  scheme  :  "  Go,  say  to  him,  [viz. 
+as  thou  intendest  to  do]  Thou  shalt  surely  live  ;  howbeit 
+Jehovah  has  shown  me  that  he  shall  surely  die."  And  as  we 
+recall  the  hypocritical  words  by  which  Hazael  had  tried  to 
+disguise  his  purpose  and  deceive  the  prophet,  we  feel  that 
+this  was  the  most  fitting  answer  to  his  pretended  humility 
+and  care. 
+
+Yet  this  was  only  the  beginning  of  what  Elisha  had  to  say 
+to  Hazael.  "  And  he  [Elisha]  steadied  his  face,  and  set  it  till 
+he  [Hazael]  was  ashamed,"  when  reading  not  only  his  inmost 
+thoughts,  but  his  future  history  also,  the  prophet  ^burst  into 
+weeping.  When  Hazael  inquired  as  to  the  reason  of  his  tears, 
+Ehsha  told  the  terrible  cruelties  which  he  knew  the  Syrian 
+would  perpetrate  upon  Israel,  The  mock  humility  of  Hazael's 
+answer  :  *'  But  what  is  thy  servant,  the  dog,  that  he  should  do 
+this  great  thing?"  reveals  at  least  the  spirit  in  which  he  contem- 
+plated such  deeds  against  Israel.  If  Hazael  had  still  thought 
+to  deceive  Elisha,  the  announcement  that  God  had  shown  to 
+his  prophet  Hazael  as  king  of  Syria,  must  have  convinced  him 
+that  disguise  was  useless.  Little  more  requires  to  be  told. 
+Hazael  returned  to  his  master,  and  gave  him  the  lying  assurance 
+of  recovery,  as  Elisha  had  foretold.  Then  as  in  his  sore 
+sickness  Ben-hadad  lay  prostrate  and  helpless,  Hazael  laid 
+upon  his  face  a  coverlet  which  had  been  soaked  and  made 
+heavy  with  water.  And  so  Ben-hadad  died,  and  his  murderer, 
+whose  crime  remained  probably  unknown,  ascended  the  throne. 
+
+The  accession  of  Hazael  was  only  part  of  the  burden  of 
+judgment  upon  Israel  which  had  been  announced  to  Ehjah. 
+
+
+1 84  E  lis  ha. 
+
+The  other  part  was  the  usurpation  of  the  throne  of  Israel 
+by  Jehu.  With  this  twofold  accession  began  the  decay  of 
+the  northern  kingdom  of  Israel.  Presently  we  shall  read 
+(x.  32) :  "  In  those  days  Jehovah  began  to  cut  Israel  short  ; 
+and  Hazael  smote  them  in  all  the  coasts  of  Israel," — a 
+smiting  which  inclu  led  the  loss  of  the  entire  territory  east 
+of  the  Jordan.  xVnd  we  believe  that  it  was  to  declare, 
+perhaps  to  warn  of,  this  judgment  upon  Israel,  that  Elisha 
+was  sent  to  Damascus,  and  made  to  have  this  interview  with 
+Hazael. 
+
+For  Divine  judgment  cannot  be  arrested,  though  it  may 
+be  deferred,  and  what  Israel  had  sown  when  on  the  morrow 
+of  the  decisive  contest  on  Carmel  it  cast  out  Elijah,  that 
+would  it  reap,  when,  notwithstanding  all  mercies  shown,  the 
+son  of  Ahab  and  Jezebel  could  order,  though  he  dared  not 
+carry  out,  the  execution  of  Elisha.  They  would  have  none 
+of  His  prophets,  however  clearly  their  mission  was  attested 
+of  God ;  nay,  rather,  they  would  have  none  of  that  God 
+Whose  prophets  Elijah  and  Elisha  had  been.  And  yet  in 
+faithfulness  God  would  reveal  the  coming  judgment  to  His 
+servants,  and  through  them  to  Israel. 
+
+But  quite  a  peculiar  feeling  comes  over  us  in  these  far-off 
+islands  of  the  West,  when  now,  thousands  of  years  after  these 
+events,  we  stand  before  the  black  obelisk  on  which  this  part  of 
+the  history  of  ancient  Assyria  is  recorded/  and  there  read  the 
+names  of  Ben-hadad  and  of  Hazael  of  Damascus — the  former 
+in  connection  with  "  Ahab  of  Jezreel,"  who  was  at  one  time 
+his  ally  against  Assyria  ;  the  latter,  as  humbly  offering  rich 
+tribute  to  the  king  of  Assyria,  as  also  does  Jehu,  who  is 
+styled  "  the  son  of  Omri  "  (the  founder  of  the  dynasty  suc- 
+ceeding that  of  Omri).  And  here  these  histories  commingle, 
+and  the  records  of  the  one  will  be  found  to  throw  welcome 
+light  upon  those  of  the  other. 
+
+^  At  present  in  the  British  Museum. 
+
+
+CHAPTER     XV. 
+
+Jchovitm  m\b  Jlha^iah,  ( Jifth  aivb  (Sixth)  Jlincjs  of  Jiibnh. 
+Jontm,  ('cUcntli)  giing  of  isracl. 
+
+Accession  of  Jehoram— Murder  of  the  Royal  Princes— Introduction  of  the 
+service  of  Baal  in  Judah— Revolt  of  Edom—and  of  Libnah—The  Writing 
+from  Elijah—incursion  of  the  Philistines  and  of  Arab  tribesSicl<ness,. 
+Death,  and  Burial  of  Jehoram— State  of  public  feeling. 
+
+(2  Kings  viii,  16-24 ;    2  Chron.  xxi.) 
+
+THE  tangled  skein  of  Judeean  and  Israelitish  history  is  now 
+once  more  taken  up.^  It  is  a  period  of  fast-hastening 
+judgment,  luridly  lit  up  by  the  horrors  attending  Jehoram's 
+accession  to  the  throne  of  Israel,  though  retarded  in  Judah  by 
+the  mercy  of  God  towards  the  house  of  David,  and  the  temporary 
+repentance  and  return  to  Jehovah  in  the  land.  The  account 
+in  2  Kings  viii.  i6  introduces  almost  abruptly  the  accession  of 
+Jehoram  to  the  throne  of  Judah,  after  the  death  of  his  father 
+Jehoshaphat.  It  was  probably  for  this  reason,  and  because  of 
+the  long  gap  between  this  and  the  previous  historical  notice 
+about  Judah  (i  Kings  xxii.  51),  that  the  somewhat  difficult  ex- 
+planatory clause  (supposing  it  to  be  genuine)  may  have  been 
+inserted  in  2  Kings  viii.  16  :  "And  Jehoshaphat  /lad  been  king 
+of  Judah."-  In  2  Kings  viii.  (vers.  16-24)  the  history  of  Judah 
+and  of  the  reign  of  Jehoram  is  given  only  in  briefest  outline. 
+For  details  we  must,  as  in  other  cases,  turn  to  the  Book  of 
+Chronicles  (2  Chron.  xxi.),  whose  narrative  we  now  follow. 
+The  historical  notices  with  which  the  reign  of  Jehoram  is 
+
+^  On  the  somewhat  complicated  and  difficult  chronology  of  this  period, 
+comp.  the  Appendix  at  the  end  of  this  Volume. 
+
+-  Supposing  this  clause  to  be  genuine,  as  to  which  we  have  doubts,  it 
+must  be  translated  as  in  the  text,  and  not  as  in  the  A.  V.  "Jehoshaphat 
+being  then  king  of  Judah  "  ;  for  which  the  original  offers  no  warrant, 
+
+O 
+
+
+S6  JeJiorain  and  Joram. 
+
+
+introduced  are  almost  identical  in  2  Kings  and  2  Chronicles. 
+Both  state  that  Jehoram  was  thirty-two  years  old  at  his  acces- 
+sion, and  that  his  reign  lasted  eight  years.  The  Book  of 
+Chronicles  connects,  as  usually,  this  accession  with  the  death 
+and  burial  at  Jerusalem  of  the  former  king,  while  the  Book  of 
+Kings  marks  that  Jehoram  ascended  the  throne  of  Judah  "in  the 
+fifth  year  of  Joram,  the  son  of  Ahab,  king  of  Israel."  And 
+since  the  reign  of  the  latter  extended  over  twelve  years  ^  (comp. 
+2  Kings  viii.  25),  their  rule  must  for  seven  years  have  been 
+cotemporaneous — that  is,  to  within  one  year  of  the  death  of 
+Joram  of  Israel.  Even  more  important  is  the  notice  given  in 
+the  same  words  in  the  two  narratives — quite  prominently  in 
+the  Book  of  Kings — to  the  effect  that  Jehoram  "walked  in  the 
+way  of  the  kings  of  Israel,  as  did  the  house  of  Ahab  :  for  the 
+daughter  of  Ahab  [Athaliah]  was  his  wife  :  and  he  did  the 
+evil  in  the  sight  of  Jehovah  "  (comp.  2  Chron.  xxi.  6).  That 
+notice  explains  alike  the  history  of  the  reign  of  Jehoram  and 
+the  hastening  ruin  of  Judah.  Nor  can  it  have  been  without 
+evil  influence  even  upon  Joram  and  Israel. 
+
+The  fatal  combination  of  political  devices  with  earnest  re- 
+ligion, which  constituted  the  weakness  of  Jehoshaphat's  reign, 
+and  led  to  his  alliance  with  the  house  of  Ahab,  appeared  also 
+in  his  disposition  regarding  his  children.  Besides  Jehoram,  who 
+as  the  eldest  succeeded  to  the  throne,  he  had  left  six  sons.^ 
+For  these  he  had — apparently  during  his  lifetime — made  not 
+only  ample  provision  in  treasure,  but  assigned  to  them  certain 
+
+1  But  in  all  these  notices  the  well-known  rule  must  always  be  kept  in 
+mind  that  as  regards  the  reigns  of  kings  the  year  was  counted  from  the 
+month  Nisan  to  Nisan.  Thus  a  reign  of  two  years  might  really  represent 
+only  one  of  fourteen  months. 
+
+2  We  must  here  call  attention  to  the  remarkable  use  of  the  term  "Israel," 
+not  Judah,  as  applied  to  the  southern  kingdom,  2  Chron.  xxi.  2,  and  also 
+ver.  4.  The  same  expression  occurs  in  2  Chron.  xii.  i,  6 ;  again  in  xv.  17, 
+and  in  xxviii.  19,  27.  In  all  these  passages  the  name  seems  used  with 
+some  reference  to  the  law  of  God — as  that  which  gave  to  Israel  its  name, 
+and  made  it  the  people  of  Israel.  It  is  almost  an  anticipation  of  the  New 
+Testament  use  of  that  name. 
+
+
+State  of  J2idah.  187 
+
+"fenced  cities  in  Judah."  This  was  to  imitate  the  policy  of 
+Rehoboam  (xi.  23),  and,  no  doubt,  with  the  same  purpose  of 
+securing,  in  troublous  times,  the  allegiance  of  the  country 
+districts  and  of  their  aristocracy,  by  assigning  these  "  fenced 
+cities  "  as  residences  to  the  royal  princes.  But  in  the  pre- 
+sent instance  the  device  proved  fatal  to  them.  Jehoram  had 
+nothing  to  fear  from  his  brother-in-law  Joram — as  Rehoboam 
+had  from  Jeroboam.  But  the  semi-royal  position  of  his 
+brothers,  supported — as  it  would  almost  seem — by  intrigues  of 
+the  chiefs  of  the  local  aristocracy,  roused  his  fears.  With  the 
+same  unscrupulousness  that  characterised  the  house  of  Ahab 
+and  Jezebel,  he  rid  himself  of  any  possible  rivals  by  the  murder 
+of  all  his  brothers,  and  of  their  adherents  among  "the  princes." 
+And  throughout,  Jehoram's  reign  was  in  accordance  with  its 
+beginning.  Following  closely  in  the  steps  of  the  house  of 
+Ahab,  he  not  only  abolished  all  the  pious  ordinances  and 
+arrangements  of  his  father,  but  actually  rebuilt  "the  high 
+places,"  which  his  grandfather  Asa  (xvii.  3),  and  his  father 
+Jehoshaphat  (xvii.  6),  had  destroyed,  and  introduced  the  wor- 
+ship of  Baal  with  all  its  abominations. 
+
+We  cannot  be  mistaken  in  attributing  a  large  share  in  these 
+evil  doings  to  Athaliah,  although  her  name  is  not  expressly 
+mentioned.  For,  besides  the  repeated  reference  to  the  house 
+of  Ahab,  we  have  the  statement  that  his  "brethren"  of  his 
+"  father's  house  were  better "  than  Jehoram,  which  seems  to 
+imply  that  his  special  circumstances  had  made  him  different 
+from  the  other  members  of  Jehoshaphat's  family,  and  also  this 
+— in  our  view,  very  significantly— that  there  came  to  him 
+a  writing  from  Elijah  the  prophet.  For,  as  there  is  not  any 
+other  reference  to  Elijah  throughout  the  Books  of  Chronicles, 
+we  infer  that  his  activity  had  been  confined  to  the  northern  king- 
+dom, and  that  this  solitary  prophecy  in  regard  to  the  kingdom  of 
+Judah  must  have  been  due  to  the  connection  of  Jehoram  with 
+the  house  of  Ahab,— or,  to  be  more  particular,  to  his  marriage 
+with  Athaliah  and  her  influence  upon  him.  And  we  would 
+date  the  composition  of  this  "  writing,"  or  it  may  be  its  com- 
+
+
+1 88  JeJioram  and  Joravi. 
+
+mission,  shortly  after  that  ill-fated  union. ■"  For  it  seems  of 
+quite  secondary  importance  whether  Elijah  himself  wrote  this 
+letter,  with  direction  to  have  it  delivered  at  the  proper  time 
+to  the  husband  of  Athaliah,  or  else  commissioned  one  of  his 
+disciples  to  write  it  in  his  name,  when  the  circumstances  of 
+the  case  indicated  it.  And  as  regards  this  latter  view,  we 
+remember  that  the  direction  to  Elijah  to  anoint  Hazael  king  of 
+Syria,  was  executed  six  or  seven  years  after  the  death  of  Ahab, 
+that  to  anoint  Jehu  fourteen  years  after  Ahab  :  in  both  cases, 
+therefore,  many  years  after  the  commission  had  been  given 
+(i  Kings  xix.  15,  16);  in  both  cases  also,  not  by  Elijah  himself, 
+nor  yet  with  precisely  literal  fulfilment  of  the  commission 
+given. 
+
+The  "  writing  from  Elijah  "  announced,  for  the  public  and 
+personal  sins  of  Jehoram,  public  and  personal  judgments.  But 
+even  before  that  warning  came  from  the  dead  prophet,  witli 
+all  the  solemnity  of  a  message  straight  from  heaven,  the 
+judgment  upon  Judah  had  begun.  Indeed,  as  the  sacred 
+writer  remarks,^  it  would  have  extended  to  the  destruction  of 
+the  whole  family  of  Jehoram — and  with  it  of  the  common- 
+wealth of  Israel — but  for  the  gracious  promise  to  David  of 
+the  continuance    of   his  house  till  his  rule  should  merge  in 
+
+^  It  is  neetlless  to  discuss  at  length  the  various  views  propounded  in 
+regard  to  this  writing  from  Elijah  the  prophet.  There  cannot  be  any 
+reasonable  doubt  that  Elijah  the  Tishbite  is  meant  by  that  designation. 
+Nor  yet  can  we  believe  that  his  life  extended  beyond  the  marriage  of 
+Jehoram  with  Athaliah.  The  history  as  hitherto  traced  seems  incompatible 
+with  any  other  view  of  the  chronology.  This  idea  that  this  letter  came  from 
+heaven  deserves  as  little  serious  consideration  as  the  opposite  notion  of  its 
+spurious  insertion  from  some  other  document  by  a  later  writer,  who  thought 
+Elijah  must  also  have  been  connected  with  the  affairs  of  the  southern 
+kingdom  of  Judah.  But  in  that  case  we  would  have  expected  more  frequent 
+and  prominent  introduction  of  Elijah,  and  the  solitariness  of  the  mention  of 
+his  name  is  evidence  of  the  genuineness  of  the  notice. 
+
+^  This  is  the  more  noteworthy,  and  the  more  clearly  points  to  the  expected 
+Messianic  fulfilment  of  the  promise,  that  at  the  time  when  the  Book  of 
+Chronicles  appeared  no  scion  of  the  house  of  David  occupied  the  throne, 
+nor  was  there  any  human  prospect  of  the  restoration  of  that  rule. 
+
+
+Revolt  of  Edoni.  i'6^ 
+
+that  of  "  David's  greater  Son"i  (2  Sam.  vii.  12,  13;  1  Kings 
+xi.  36).  Still  most  serious  calamities  befell  the  country,  both 
+in  the  east  and  in  the  west.  In  the  south-east,  Edom  had 
+for  one  hundred  and  fifty  years  been  subject  to  Judah.  It 
+now  rebelled.  Josephus  reports  that  the  governor,  whom 
+Jehoshaphat  had  appointed,  was  murdered ;  while,  from  the 
+prophecies  of  Joel  (iii.  19),  we  infer  that  the  rebellion  was 
+attended  by  a  massacre  of  the  Jud^an  settlers  in  Edom. 
+From  the  account  of  the  expedition  against  Edom— given 
+with  only  slight  variations  in  the  Books  of  Kings  and 
+Chronicles — we  learn  that  Jehoram  started  from  Jerusalem 
+with  the  host,  and  notably  war-chariots  j^  that  he  was  sur- 
+rounded by  the  Edomites,  but  that  he  and  the  captains  of 
+his  chariots — representing  the  standing  army — fought  their 
+way  through  the  Edomites,  while  the  people — that  is,  the 
+probably  undisciphned  multitude  that  had  followed  Jehoram, 
+fled  to  their  homes.  Thus  ended  the  brief  campaign,  with 
+the  permanent  loss  of  Edom,  which,  except  temporarily  and 
+for  a  short  period  (comp.  2  Kings  xiv.  7,  22),  did  not  again 
+become  subject  to  Judaea,  till  its  subdual  under  the  Macca- 
+bean  prince  Hyrcan,  about  a  century  before  Christ.  It  after- 
+wards returned  to  Palestine  the  terrible  gift  of  a  Herod. 
+
+Nor  was  Edom  the  only  loss  which  the  southern  kingdom 
+sustained.  In  the  west,  not  far  from  the  borders  of  Philistia, 
+Libnah,^  the  ancient  Canaanitish  royal,  and  afterwards  a 
+priest  city,  revolted  (comp.  Josh,  xv.  42;  xii.  15;  xxi.  13). 
+Its  site  has   not  been  localised  with  certainty,  though  it  has, 
+
+^  The  expression  "to  give  a  light"  is  sufficiently  explained  by  the 
+passages  quoted.  In  2  Kings  viii.  19  the  words  are  :  "as  He  [the  Lord] 
+promised  him  to  give  him  [David]  a  light  as  regards  his  sons  always  [all 
+the  days]."  In  2  Chron.  xxi.  7  the  words,  "and  to  his  sons"  must  be 
+paraphrased  in  the  same  sense,  "  and  that  to  his  sons." 
+
+2  In  2  Kings  viii.  21  we  read  that  "Joram  went  over  to  Zair."  This  is 
+probably  a  copyist's  error  for  "  Seir  "  (HTV^  for  HTi^ip),  and  similarly 
+the  strange  expression  in  that  connection  in  2  Chron.  xxi.  9  :  "with  his 
+princes  "  (l'*'^^  Di?),  may  originally  depend  on  a  similar  misreading  and 
+an  attempt  at  a  gloss. 
+
+'  Comp.  Robinson,  Bible  Researches,  II.,  pp.  27-30, 
+
+
+IQO  Jehoraiii  and  Jorani. 
+
+with  some  probability,  been  suggested  that  it  is  represented 
+by  the  modern  Tell-es-Safieh,  somewhat  to  the  south-east  of 
+Ascalon,  and  on  the  edge  of  the  great  Philistine  plain.  The 
+hill  on  which  the  site  stands  was  known  in  crusading  times 
+as  "  bright  hill "  {coUis  clams),  and  the  fort  built  upon  it  as 
+"  white  garde"  (Blanche  Garde,  alba  specula  or  alba  custodta). 
+The  name  not  only  corresponds  to  the  ancient  Ltbnali, 
+"whiteness/'  "  sheen,"  but  to  the  description  of  the  place,i 
+as  in  its  white  sheen  visible  in  all  directions.  If  Libnah  was 
+at  the  time  inhabited  by  priests,  it  may  have  been  that 
+Jehoram's  apostasy  from  the  faith  led  to  its  revolt  from  his 
+rule.  This  may  have  been  prompted  by  the  success  of  the 
+rising  in  Edom,  and  the  movement  itself  have  been  en- 
+couraged by  the  Philistines. 
+
+This  view  is  supported  by  the  account  in  the  Book  of 
+Chronicles,  that  the  Philistines,  aided  by  certain  Arab  tribes 
+from  the  neighbourhood  of  Ethiopia — probably  hired  for  the 
+purpose — made  an  incursion  into  Judaea,  and  literally  "  clave 
+it."  We  know  sufficient  of  the  fierceness  of  these  Arabs 
+"by  the  side  of  the  Cushites,"  when  their  spirit  is  roused, 
+to  understand  that  Judah,  divided  and  enfeebled,  and  under 
+the  rule  of  a  Jehoram,  could  not  withstand  their  onset.  The 
+invading  host  seems  to  have  taken,  if  not  Jerusalem  -  itself, 
+yet  the  place  where  the  king  and  his  household  were ;  and 
+they  carried  away  with  them  what  of  the  royal  property  they 
+found,  as  well  as  the  wives  and  sons  of  Jehoram,  and  indeed 
+killed  all  the  latter  except  the  youngest,  Jehoahaz,  who,  from 
+some  reason  unknown,  escaped  death. 
+
+This  was  the  beginning  of  that  "  great  stroke  "  with  which, 
+as  foretold  in  the  writing  from  Elijah,  Jehovah  would  smite 
+Jehoram   in  his    people,  his  children,  his  waives,  and   all    his 
+
+^  Comp.  Robinson,  Bible  Researches,  II.,  pp.  27-30. 
+
+^  It  is  generally  supposed  that  Jerusalem  was  taken.  But  of  tliis  there  is 
+no  mention  in  the  text,  and  the  non-mention  of  the  plunder  of  the  Temple 
+as  well  as  the  reference  to  "the  camp"  in  2  Ch;on.  xxii.  i  seems  incon- 
+sistent with   it. 
+
+
+Religious  Decline  in   JudaJi.  191 
+
+substance.  For  even  this  more  public  calamity  had  a  personal 
+character,  since,  as  we  read,  "Jehovah  stirred  up  against 
+Jehoram  the  spirit "  of  these  enemies ;  and  very  markedly 
+their  plunder  was  confined  to  the  royal  property.  And  when 
+the  second  part  of  the  threatened  judgment  befell  the  king, 
+and  that  incurable  internal  disease  ^  attacked  him  of  which 
+he  ultimately  died,  it  seems  difficult  to  understand  how  those 
+who  witnessed  all  this,  and  still  more^  they  who  succeeded 
+him,  could  have  maintained  the  same  attitude  as  he  towards 
+Jehovah.  We  can  only  account  for  it  by  the  rooted  belief 
+that  Jehovah  was  only  a  national  deity,  who  was  angry  with 
+those  who  forsook  His  service ;  but  that  the  new  deity,  Baal, 
+who  had  proved  so  mighty  a  god  to  the  surrounding  nations, 
+would  by  and  by  take  them  under  his  protection.  And  as 
+between  the  stern  demands  and  the  purity  of  the  service  of 
+Jehovah,  Whp  claimed  of  royalty  absolute  submission  and 
+simple  stewardship  and  Who  elevated  all  His  people  into  a 
+royal  priesthood,  and  the  voluptuous  luxuriousness  of  the 
+worship  of  Baal,  who  placed  king  and  people  in  so  very 
+different  a  relationship  to  each  other  and  to  himself,  rulers 
+of  the  character  of  Jehoram  or  Ahaziah  would  not  hesitate 
+in  their  choice.^ 
+
+We  have  evidence  that  the  ungodly  rule  of  Jehoram  was  not 
+popular  in  Judah.  "  He  departed  without  being  desired  "  by 
+his  people,  nor  did  they  make  any  burning  of  precious  spices 
+at  his  funeral,  such  as  was  customary  at  the  obsequies  of  kings 
+(comp.  2  Chron.  xvi.  14;  Jer.  xxxiv.  5).  And  although  "they 
+buried  him  in  the  city  of  David,"  yet  "  not  in  the  sepulchres 
+
+^  As  regards  the  special  disease  of  which  Jehoram  died,  the  curious 
+reader  may  consult  Trusen,  Siiten,  Gcbr.,  u.  Krankh.  d.  alien  Hebr.  pp. 
+212,  213,  where  the  author  notes  a  similar  case  in  his  experience  from 
+the  indiscriminate  use  of  a  well-known  English  quack-medicine. 
+
+-  We  mark,  as  significant  synchronisms  with  the  reign  of  Jehoram,  the 
+building  of  Carthage,  and  that  the  throne  of  Tyre  was  occupied  by  the 
+brother  of  Dido,  Pygmalion  :  scelere  ante  alios  iinmanior  otnnes.  What  a 
+conjunction  in  Tyre,  Israel,  and  Judah  ;  and  what  light  it  casts  upon  what 
+some  persons  call  the  exclusiveness  of  the  Old  Testament  ordinances  ! 
+
+
+192  JcJioram  and  Joraiii. 
+
+of  the  kings."  ^  If  these  notices  ceem  to  indicate  a  hostile 
+popular  feeling,  the  same  inference  comes  to  us  from  the 
+unusual  statement  that  ^'  the  inhabitants  of  Jerusalem  made 
+Ahaziah,  his  youngest  son,  king  in  his  stead"  (2  Chron.  xxii.  i). 
+It  would  probably  be  too  much  to  conclude  that  there  was 
+opposition  to  the  accession  of  one  who  must  have  been  known 
+to  be  like-minded  with  his  father  on  the  part  of  the  Levite 
+and  Priest  party,  although  the  revolt  of  the  priest  city  Libnah 
+and  the  later  activity  of  the  high  priest  Jehoiada  and  of  the 
+Levites  on  behalf  of  Joash  (xxii.  11  ;  xxiii.)  seem  to  point  in 
+that  direction.  But  we  cannot  be  mistaken  in  concluding  that 
+Ahaziah  was  placed  on  the  throne  by  a  faction  in  Jerusalem 
+favourable  to  the  new  order  of  things.  And  it  needs  no 
+elaborate  argument  to  convince  us  that,  alike  religiously  and 
+politically,  a  regime  must  have  been  profoundly  unpopular 
+which  had  reversed  the  whole  former  order  of  things,  was 
+associated  with  the  permanent  loss  of  Edom,  the  defection  of 
+so  important  a  centre  as  Libnah,  and  the  victorious  incursions 
+of  Philistines  and  Arab  bands.  To  these  outward  calamities 
+must  be  added  the  paramount  sway  of  a  woman,  such  as  the 
+daughter  of  Ahab,  and  the  remodelling  of  Judah  after  the 
+pattern  of  Israel,  which  even  mere  patriots  must  have  felt 
+to  be  a  most  humiliating  abdication  of  supremacy  in  favour  of 
+the  northern  kingdom.  And  in  the  history  of  the  brief  reign 
+of  Ahaziah,  as  well  as  in  the  later  rising  which  resulted  in  the 
+death  of  Athaliah,  the  existence  of  two  parties  in  Judah  must 
+be  kept  in  view ;  the  one  representing  the  corrupt  court  faction, 
+the  other  the  growing  popular  feeling  in  favour  of  return  to 
+the  old  order  of  things. 
+
+^  Only  a  hypercriticism  can  see  any  real  difference  between  this  statemeht 
+and  that  in  2  Kings  viii.   24. 
+
+
+CHAP  T  E  R     X  V'  i. 
+
+Joram  luib  Jehu,  (liieutli  imi)  ^Itbcnth)  liingfs  of  fsvacl. 
+J^ha^iith,  (<§ixth)  'gun^  of  Juiiah. 
+
+Accession  cf  Ahaziah— Character  of  his  Reign— Expedition  of  Joram  and 
+Ahaziah  against  Hazael  and  talking  of  Ramoth-Gilead— Joram  returns 
+Wounded  to  Jezreei— Visit  of  Ahaziah—Jehu  anointed  King—Rapid 
+March  on  Jezreei— Joram  Id  lied — Pursuit  and  Death  of  Ahaziah 
+— Jezebel  trilled — Fulfilment  of  the  Divine  sentence  by  Elijah. 
+
+(2  Kings  viii.  25— ix.  37  ;  2  Chron.  xxii.  i-g.) 
+
+THE  brief  reign  of  Ahaziah,  or  Jehoahaz  (2  Chron.  xxi.  17) — 
+for  the  names  are  precisely  the  same,  the  two  words  of 
+which  they  are  compounded  being  only  reversed  ^) — may  be 
+regarded  as  marking  the  crisis  in  the  history  alike  of  the 
+northern  and  the  southern  kingdom.  The  young  prince  was 
+twenty-two  years  old  ^  when  he  ascended  the  throne  (2  Kings 
+viii.  26).  To  say  that  he  followed  the  evil  example  set  by  his 
+father,  would  not  express  the  whole  truth.  Holy  Scripture 
+designates  his  course  as  a  walking  "  in  the  ways  of  the  house 
+of  Ahab,"  explaining  that  his  mother  Athaliah  ^  was  his  coun- 
+
+1  Jeho-achaz,  "Jehovah  seizes"  or  "hokls,"  Achaz-jah,  "seizes"or  "holds 
+Jehovah."  We  are  unwilHng  to  hazard  any  speculation  why  the  name 
+should  have  been  thus  transposed  at  the  accession  of  the  young  king. 
+
+-  The  number  "forty  and  two"  in  2  Chron.  xxii.  2  is  evidently  the 
+mistake  of  a  copyist  (73  40  for  D  20).  It  must  be  remembered  that 
+Jehoram,  his  father,  died  at  the  age  of  forty  (2  Chron.  xxi.  5).  This 
+implies  that  he  was  a  father  at  the  age  of  eighteen.  Even  so,  we  know 
+that  Jehoram  had  sons  older  than  Ahaziah  (2  Chron.  xxii.  i),  although, 
+no  doubt,  from  different  wives.  But  we  know  that  marriages  of  princes 
+in  the  East  were  very  early — probably  at  the  age  of  thirteen. 
+
+^  In  2  Kings  viii.  26  she  is  called  "  the  daughter  of  Omri,"  either  grand- 
+daughter, or  perhaps  with  intentional  reference  to  Omri  as  the  wicked 
+founder  of  the  wicked  dynasty  of  Ahab. 
+
+
+194  AJiaziaJi  and  Jo  ram. 
+
+sellor,  and  that  he  was  also  influenced  by  the  other  members 
+of  that  family.  It  was  by  their  advice  that  he  united  with 
+his  uncle  Joram  in  that  expedition  which  ended  in  the  death  of 
+the  two  kings,  although  there  is  no  evidence  that  a  Judsean 
+army  was  actually  joined  to  the  forces  of  Israel.^ 
+
+We  remember  that  fourteen  years  before,  Jehoshaphat,  the 
+grandfather  of  Ahaziah,  had  joined  Ahab  in  a  similar  under- 
+taking, which  had  proved  unsuccessful,  and  in  which  Ahab 
+lost  his  hfe.  We  might  wonder  at  the  renewal  of  an  attempt 
+upon  Ramoth-Gilead,  when  a  man  like  Hazael  occupied  the 
+throne  of  Syria;  but  the  Assyrian  monuments  explain  alike  the 
+expedition  and  its  opening  success.  From  these  we  learn  that 
+there  was  repeated  war  between  Assyria  and  Hazael,  in  which, 
+to  judge  from  the  number  of  Syrian  war  chariots  captured 
+(ii2i)^the  whole  force  of  the  country  must  have  been  engaged 
+and  exhausted.  On  another  occasion  we  read  of  a  war  in 
+which  after  a  great  victory  ^  an  Assyrian  monarch  pursued  his 
+enemy  from  city  to  city^  and  even  into  the  mountains,  burning 
+and  destroying  everything  before  him.^  We  may  therefore 
+conjecture  that  if  Joram  was  not  actually  in  league  with  Assyria 
+— as  Jehu  afterwards  was — the  Israelitish  king  availed  himself 
+of  the  opportunity  for  an  attack  upon  Ramoth-Gilead.  In 
+this  he  seems  to  have  been  successful  (2  Kings  ix.  14),  although 
+he  was  wounded  by  the  Syrians — as  Josephus  has  it,  by  an 
+arrow  during  the  siege  {A7it.  ix.  6,  i).  Leaving  Ramoth-Gilead, 
+which  he  had  taken,  in  the  keeping  of  Jehu,  his  chief  captain, 
+Joram  went  back  to  the  summer  palace  of  Jezreel,  to  be  healed 
+of  his  wounds,  both  as  nearer  to  the  field  of  action,  and 
+because  the  court  was  there  at  the  time. 
+
+^  There  is  at  least  no  express  reference  to  a  Juda:an  army,  and  the 
+circumstances  of  Jehu's  advance  and  of  Ahaziah's  attempted  flight  seem 
+most  consistent  with  the  idea  that  there  was  no  Judcean  contingent. 
+
+-  For  the  sake  of  any  who  may  have  wondered  at  the  large  numbers 
+recorded  in  the  Bible  as  slain  in  battle,  it  may  be  stated  that  they  are  quite 
+as  large  011  the  Assyrian  monuments. 
+
+^  Conip.  Schrader,  d.  KciUnscJn:  ti.  d.  A.  Test.  pp.  206-210. 
+
+
+Anoiiithig  of  JeJui.  195 
+
+It  was  to  Jezreel  that  Ahaziah  went  to  see  his  uncle,  and 
+during  this  fatal  visit  the  "destruction^'  overtook  him,  which, 
+as  the  writer  of  the  Book  of  Chronicles  notes,  "was  of  God." 
+It  came  together  with  that  of  Joram  and  the  whole  house  of 
+Ahab.  The  judgment  which  more  than  fourteen  years  before 
+had  been  pronounced  upon  Ahab  (i  Kings  xxi.  21-24)  I'^^d 
+only  been  deferred  till  the  measure  of  the  guilt  of  his  house 
+was  filled.  And  now  the  hour  had  come.  In  that  awful 
+vision  on  Mount  Horeb,  Elijah  had  received  the  commission 
+to  "  anoint  Jehu  the  son  of  Nimshi  ...  to  be  king  over  Israel " 
+(i  Kings  xix.  16),  with  special  view  to  the  work  of  punishment 
+which  he  was  to  execute.  The  commission,  which  Elijah 
+himself  could  not  discharge,  had  devolved  on  Elisha;  and,  the 
+proper  time  for  its  execution  having  arrived,  the  prophet  now 
+sent  one  of  the  "  sons  of  the  prophets  " — a  young  man  (ix.  4), 
+possibly  his  personal  attendant.  As  no  doubt  he  literally 
+obeyed  the  injunctions  of  his  master,  we  shall  best  learn  what 
+these  were  by  following  the  detailed  account  of  what  he 
+actually  said  and  did. 
+
+As  directed  by  Elisha,  he  went  to  Ramoth-Gilead,  carrying 
+with  him  a  vial,  probably  of  holy  oil,  which  the  prophet  had 
+given  him.  Even  this  is  significant.  On  his  arrival  he  found, 
+as  so  often  in  this  history,  all  apparently  arranged  so  as  to 
+carry  out  the  special  purpose  of  God.  He  had  been  told  to 
+"  look  out "  Jehu,  and  here  were  all  the  captains  of  the  host 
+sitting  together,  probably  in  deliberation.  Remembering  that 
+the  chief  command  devolved  on  Jehu,  it  would  not  be  difficult 
+to  single  out  the  object  of  the  young  man's  mission.  He  had 
+only  to  say,  "  I  have  a  word  to  thee,  O  captain,"  and  Jehu 
+as  president  would  naturally  answer.  It  w^as  so  ;  and  on  Jehu's 
+inquiry  to  which  of  them  the  message  was,  the  young  prophet 
+replied:    "To  thee,  O  captain." 
+
+The  captains  had  been  sitting  in  the  great  court,  and  Jehu 
+now  took  his  strange  visitor  "  into  the  house,"  no  doubt,  as 
+Elisha  had  directed,  into  '"'an  inner  chamber,"  one  that  opened 
+out  of  another,  where  what  passed  between  them  could  not 
+
+
+196  Aha::iah  and  Jorajn. 
+
+be  observed  from  the  court.  Here,  without  further  explanation 
+— for  abruptness  of  deUvery  was  part  of  the  object  in  view, 
+and  indeed  characteristic  of  the  direct  Divine  message — the 
+young  man  poured  the  oil  on  the  head  of  Jehu,  and  stated  the 
+terms  of  his  commission.  It  was  in  the  name  of  "  Jehovah, 
+God  of  Israel,"  and  on  behalf  of  Israel,  viewed  as  "  the 
+people  of  Jehovah  "  (2  Kings  ix.  6).  This  emphatic  intro- 
+duction of  Jehovah  marked  the  character  of  the  work  to  which 
+Jehu  was  called.  He  was  now  Divinely  anointed  king,  to 
+execute  judgment  on  the  house  of  Ahab,  and  to  avenge  at  the 
+hand  of  Jezebel  the  blood  of  the  prophets,  and  of  ail  the 
+servants  of  Jehovah.  And  the  whole  house  of  Ahab  was  to 
+perish  like  that  of  Jeroboam  (1  Kings  xiv.  lo),  and  that  of 
+Baasha  (i  Kings  xvL  3).  But  upon  Jezebel  would  special 
+personal  judgment  descend,  commensurate  to  the  terrible 
+crime  against  Naboth,  which  she  had  planned  and  executed 
+(i  Kings  xxi.).  Thus  would  all  men  see  that  Jehovah  was  the 
+living  and  true  God ;  thus  also  would  the  loudest  but  also  the 
+last  call  to  national  repentance  come  to  Israel,  ere  the  storm 
+of  judgment  burst  over  the  land. 
+
+It  is  in  this  hght  that  what  seem  from  our  point  of  view  the 
+horrible  events  of  the  beginning  of  Jehu's  reign  must  be  re- 
+garded. But  then  our  point  of  view  was  not  that  of  Israel  at 
+that  time,  and  if  the  commencing  judgment  on  national 
+apostasy,  and  the  final  call  to  repentance  which  it  implied, 
+were  to  be  effective,  they  must  be  suited  to  their,  not  to  our, 
+standpoint.  Let  it  be  remembered  that  the  long  ministry  of 
+Elijah  and  Elisha,  with  all  the  exceptionally  direct  and  striking 
+Divine  interpositions  connected  with  them,  had  passed  without 
+producing  any  appreciable  effect  on  the  people.  The  years  of 
+sudden  famine,  and  its  equally  sudden  cessation ;  the  scene  at 
+the  sacrifice  on  Carmel,  as  well  as  the  prolonged  public  and 
+privateactivityof  Elisha,  had  apparently  only  wrought  this  result: 
+that  the  great  prophets  came  to  be  regarded  as  possessing  some 
+absolute  power  to  influence  the  God  of  Israel  (comp.  2  Kings 
+vi.  31  ;  viii.  4).     A  very  different  kind  of  ambassador  was  now 
+
+
+The  Mission  of  Jehu.  197 
+
+to  do  God's  behest  and  to  execute  His  judgments,  although 
+perhaps  just  because  he  would  do  that  for  which  he  was  called 
+in  his  own  wild  Eastern  manner,  and  in  accordance  with  the 
+spirit  of  the  time.  It  is  in  this  sense  that  we  can  understand 
+the  Divine  approbation  conveyed  to  Jehu  (2  Kings  x.  30), 
+even  while  feeling  that  the  man  himself  and  his  modes  of 
+acting  were  contrary  to  God.  And,  indeed,  this  fact  is  dis- 
+tinctly brought  out  in  the  verse  which  follows  the  expression 
+of  the  Divine  approbation  (ver.   31). 
+
+We  have  said  that  Jehu  did  his  work  as  a  Jehu,  not  as  an 
+Elisha,  and  in  accordance  with  the  spirit  of  his  times.  We 
+may  add  that,  as  the  experience  of  the  past  showed,  no  other 
+mode  would  have  been  understood  by  Israel.  It  was  a  very 
+dark  night,  and  only  the  flashes  of  lightning  and  the  flames 
+of  burning  palaces  which  they  had  kindled  could  show  what 
+tempest  of  judgment  had  gathered  in  the  sky.  Yet  even  so 
+might  men  have  learned  the  possibility  of  brightness  and  calm 
+with  the  sunrise  of  the  morrow.^ 
+
+Returning  to  our  history,  we  follow  Elisha's  messenger  as, 
+obedient  to  his  directions,  after  having  executed  his  commis- 
+sion, he  opens  the  door  and  literally  flees  through  the  court 
+where  the  assembled  captains  are  in  waiting  for  Jehu.  He  must 
+not  give  explanations  to  any  man ;  he  must  not  be  arrested  nor 
+questioned  by  any.  His  business  was  with  Jehu — that  done, 
+alike  in  character  with  the  Divine  message,  and  even  for  the  sake 
+of  its  success,  he  must  withdraw.  And,  although  so  widely 
+differing  in  character,  there  is  in  this  also  a  practical  lesson  for 
+those  who  have  some  work  to  do  for  God.  Let  us  avoid  all 
+mere  talking,  and,  if  we  can,  all  explanation.  God's  work  will 
+best  explain  itself,  we  cannot  explain  it.  We  must  withdraw 
+our  personality  as  soon  and  as  completely  as  may  be ;  do  the 
+commission   which  we  feel  to  be  of  God,  and   eschew  in   it 
+
+^  It  may  possibly  be  with  reference  to  this,  that  the  young  "son  of  the 
+prophets  "  was  really  a  messenger  of  near  judgment  upon  Israel,  together 
+with  the  dim  outlook  on  possible  repentance,  that  some  of  the  Rabbis  have 
+regarded  the  messenger  of  Elisha  as  the  prophet  Jonah. 
+
+
+198  AJiaziaJi  and  J  or  am. 
+
+saluting  any  man  by  the  way  (Luke  x.  4).  And  so  the  young 
+prophet  would  be  outside  the  walls  of  Ramoth-Gilead,  and  on 
+his  way  back  to  Samaria,  when  Jehu  rejoined  the  "  servants 
+of  his  lord."i 
+
+They  must  all  have  recognised  the  garb  and  appearance  of 
+one  of  "  the  sons  of  the  prophets,"  and  inferred  that  something 
+of  supreme  importance  was  about  to  take  place.  For  the 
+proper  understanding  of  this  history  it  is  necessary  to  bear  in 
+mind  that  it  was  possible  to  be  opposed  to  the  worship  of 
+Baal;  and  in  favour  of  that  of  the  God  of  Israel,  without  any 
+personal  or  true  religion.  In  point  of  fact,  Jehu  exterminated 
+fi)r  the  time  alike  the  service  and  the  servants  of  Baal,  although 
+he  "took  no  heed  to  walk  in  the  way  of  Jehovah,  God  of 
+Israel,  with  all  his  heart ;  he  departed  not  from  the  sins  of 
+Jereboam,  which  made  Israel  to  sin"  (2  Kings  x.  31).  It 
+was  the  service  of  Baal  which  Ahab  had  initiate  J,  while  Jero- 
+boam's worship  of  God  under  the  symbol  of  the  golden  calf 
+might  be  represented  as  tlie  ancient  Israelitish  (in  opposition  to 
+the  Judsean  and  Levitic)  service  of  the  God  of  Israel.  We 
+can  readily  believe  that  there  might  be  a  large  and  influential 
+national  party  in  the  northern  kingdom,  intensely  opposed  to  the 
+anti-Israelitish  and  foreign  policy  and  ways  in  State  and  Church 
+of  the  house  of  Ahab.  And  both  from  his  antecedents  (comp. 
+2  Kings  ix.  25,  26),  and  his  subsequent  conduct,  we  infer  that 
+Jehu  was  a  leader — perhaps  the  leader — of  this  national  party, 
+which  naturally  would  have  many  adherents  throughout  the 
+country. 
+
+Quite  consistent  with  this  view  is  the  deep  interest  taken  by 
+the  captains  in  the  mission  of  the  young  prophet  to  Jehu,  and 
+their  readiness  to  take  up  his  cause,  even  while  at  the  same 
+time  the  messenger  was  slightingly  spoken  of — just  as  men  of 
+the  world  might  characterise  such  an  one  as  a  "mad"  enthusiast. 
+It  is  difficult  to  decide  the  reason  of  what  seems  the  evasive 
+
+^  The  peculiar  expression  here,  and  the  similar  allusion  in  ver.  7,  seems 
+to  me  designedly  chosen  to  bring  out  the  work  of  Jehu  as  the  sentence  of 
+the  higher  Master. 
+
+
+The  Conspiracy.  199 
+
+answer  first  made  by  Jehu.  But  when  perceiving  by  their 
+interest  the  hkeUhood  of  their  joining  the  national  cause,  he 
+told  them  at  least  that  part  of  the  message  which  appointed 
+him  king  over  Israel.^  If  Jehu  possessed  the  ferocity,  he 
+evidently  had  also  the  cunning  of  an  Eastern.  Perhaps  he 
+could  scarcely  have  been  prepared  for  the  rapidity  with  which 
+the  military  revolution  was  accomplished.  The  assembled 
+captains  took  off  their  upper  garments,  and  spread  them,  in 
+token  of  homage,  as  a  carpet  "  on  the  platform  of  the  steps,"  ^ 
+that  is,  the  steps  which  led  up  to  a  platform  or  balcony,  and 
+then,  amidst  the  blast  of  trumpets,  the  usual  signal  at  a  corona- 
+tion (i  Kings  i.  39;  2  Kings  xi.  14),  Jehu  was  proclaimed  king. 
+
+The  formal  conspiracy  against  Joram,  now  hastily  made, 
+was  immediately  carried  out.  At  the  proposal  of  Jehu,  the 
+city  gates  were  watched,  lest  any  fugitive  might  bring  tidings 
+to  Jezreel.  Jehu  himself,  with  Bidkar  as  his  chief  captain,  in 
+his  chariot  (ver.  25),  and  attended  by  a  "multitude"  (ver.  17) 
+— no  doubt,  of  horsemen — rapidly  made  his  way  to  Jezreel. 
+From  incidental  notices  in  the  account  (vers.  17,  30,  31)  we 
+gather  that  the  royal  palace  formed  part  of  the  fortifications  of 
+the  town, — perhaps,  as  in  other  places,  that  the  palace  was  the 
+only  fortified  part  of  Jezreel,^  the  town  straggling  beyond,  and 
+lying,  as  it  were,  in  the  shelter  of  the  palace  fort,  which  would 
+occupy  the  height.  Thus  the  "watchman  on  the  tower  of 
+Jezreel "  would  really  hold  that  place  of  observation  in  the 
+palace,  and  when  "Jehu  came  to  Jezreel,"  Jezebel  could 
+address  him  from  a  window  above,  as  he  "entered  in  at  the 
+gate." 
+
+From  the  knoll — about  500  feet  high,  forming  a  low  spur  of 
+
+^  Mark  the  omission  of  the  words,  "over  the  people  of  Jehovah," 
+in  ver.  6. 
+
+2  But  the  expression  is  difficult,  and  is  generally  translated,  "  the  very 
+stairs,"  or  "the  stairs  themselves." 
+
+3  Canon  Tristram  remarks  that  "not  a  vestige  of  it  remains,"  although 
+he  found  sarcophagi  "  with  the  figure  of  the  crescent  moon,  the  symbol  of 
+Ashtaroth"  {Land  of  Israel,  pp.  131  ;  comp.  Conder,  Tent-Work  in 
+Palestine,  I.  p.    125). 
+
+
+200  AhaziaJi  and  Jorani. 
+
+Mount  Gilboa — on  which  Jezreel  stands^  two  roads  diverge, 
+keeping  close  to  Mount  Gilboa.  The  one  turns  east  and  south, 
+and  then  sharply  round  the  corner  at  Beth-Shean  ;  the  other 
+crosses  the  plain  of  Esdraelon,  almost  straight  south  to  En- 
+gannim  ("the  fount  of  the  gardens,"  the  modern  Jenin),  where 
+the  direct  road  leads  to  Samaria,  but  whence  also  we  might 
+turn  off  eastwards  to  Beth-Shean  and  the  Jordan.  It  is  almost 
+needless  to  say  that  it  was  along  the  former  of  these  roads  that 
+the  watchman  on  the  tower  of  Jezreel  saw  Jehu  and  his  com- 
+pany advancing  at  ''  mad  "  haste.  For  miles  they  must  have 
+been  visible  on  the  road  that  led  up  to  Beth-Shean.  When  the 
+watchman  announced  their  approach  to  the  king,  Joram,  in  his 
+false  security,  directed  that  a  single  horseman  should  be  sent 
+to  inquire  what  tidings  they  brought.  As  he  reached  Jehu, 
+the  rebel  general  imperiously  bade  him  join  his  troop.  This 
+movement  also  the  watchman  observed  and  reported  to  Joram. 
+If  the  despatch  of  the  first  horseman  may  be  understood, 
+that  of  a  second  one  seems  in  the  circumstances  little  short  of 
+fatuity. 
+
+By  the  time  the  second  messenger  from  Jezreel  had  obeyed 
+the  orders  of  Jehu  and  joined  his  companion,  the  troop  was 
+sufficiently  near  for  the  experienced  eye  of  the  watchman  to 
+recognise,  not  indeed  the  face  of  Jehu,  but  that  the  driving  of 
+the  foremost  chariot  was  like  none  other's  than  that  of  the 
+bold,  reckless  chief  captain  of  Israel's  host.  When  the  watch- 
+man reported  it  to  the  king,  this  would  probably  coincide  with 
+what  had  been  his  own  idea  from  the  first.  A  troop  advancing 
+from  that  direction  could  only  have  come  from  the  army  in 
+Ramoth-Gilead — probably  to  bring  tidings  of  some  victory,  or 
+of  the  final  retreat  of  the  Syrians,  or  of  proposals  of  peace.  The 
+announcement  that  it  was  Jehu  himself  would  tend  to  confirm 
+such  anticipations.  Accordingly  Joram  had  his  war  chariot 
+and  that  of  Ahaziah  hastily  made  ready,  and  the  two  kings 
+went  to  meet  Jehu. 
+
+As  we  descend  from  Jezreel  on  the  road  to  Beth-Shean  there 
+are  on  the  east  and  south-east  of  the  city  "  rock-cut  wine-presses 
+
+
+Slaughter  of  the   Two  Kings.  201 
+
+on  the  rugged  hiils,"  marking  no  doubt  where  '^  the  portion  of 
+Naboth  "  and  his  vineyard  had  been.  It  was  here  that  the  royal 
+party  encountered  Jehu  and  his  troop.  To  the  Hght-hearted 
+question  of  Joram,  "Is  it  peace,  Jehu  ?"  ^  such  answer  came 
+as  must  at  once  and  rudely  have  dispelled  any  illusions. 
+"  What  !  '  is  it  peace  ?  '  (until)  so  long  as  the  whoredoms  of 
+Jezebel  thy  mother,  and  her  witchcrafts,  the  many?"  the 
+former  expression  referring,  as  frequently,  to  idolatry  (comp. 
+Jer.  iii.  2,  3  ;  Ezek.  xxiii.  27)  ;  the  latter  to  the  enchantments 
+and  heathen  rites  practised  in  connection  with  it.^  From  which 
+words  we  also  learn  that  in  popular  opinion  Jezebel  exercised 
+paramount  influence  over  her  son,  and  that  the  un-Israelitish 
+rites  prevalent  were  attributed  to  her. 
+
+With  the  short  cry,  "Deceit,  Ahaziah  ! "  Joram  turned  his 
+horses'  heads  to  flee  into  Jezreel,  when  Jehu,  drawing  his  bow, 
+sent  the  arrow  with  such  strength  between  the  shoulders  of 
+Joram  that  it  passed  out  at  his  heart,  and  the  king  fell  dead 
+in  his  chariot.  Then  reminding  his  "  adjutant  "  Bidkar  of  the 
+burden  or  punitive  sentence  which  Jehovah  had  in  their  pre- 
+sence laid  upon  Ahab,  on  the  day  they  two  had  ridden  behind 
+the  king  as  his  attendants,  when  he  had  gone  to  take  possession 
+of  the  property  of  murdered  Naboth,  he  commanded  the  body 
+of  Joram  to  be  cast  into  that  very  plat  of  ground,  "  according 
+to  the  word  of  Jehovah." 
+
+Meanwhile  Ahaziah,  perceiving  the  turn  of  matters,  sought 
+safety  in  flight.  Leaving  Jezreel  aside^  he  turned  sharp  round 
+the  shoulder  of  Gilboa,  and  struck  the  direct  road  southwards  : 
+"fled  the  way  of  the  Beth-Gan,"  which  we  regard  as  another 
+name  for  En-gannim,  the  modern  Jenin,  at  the  southern  end  of 
+the  plain  of  Jezreel.^    Unwilling  to  allow  his  escape,  Jehu,  while 
+
+^  Here  probably  equivalent  to,  What  news  ?  or  rather,  What  good  news  ? 
+
+2  As  to  this  comp.  Ex.  xxii.  18  ;  Deut.  xviii.  10. 
+
+^  It  need  scarcely  be  said  that  the  whole  passage  is  very  difficult  as 
+compared  with  the  account  in  2  Chron.  xxii.  9.  Although  we  are  nowise 
+concerned  to  conciliate  trifling  dififerences  of  detail  which  may  depend  on 
+different  records  of  the  same  event,  or  perhaps  only  seem  such  from  our 
+ignorance  of  some  of  the  circumstances,  we  have  endeavoured  to  give  in 
+
+P 
+
+
+202  Jehu. 
+
+himself  preparing  to  enter  Jezreel,  gave  rapid  directions  to 
+pursue  Ahaziah.  "  Him  also  smite — in  the  going  up  to  Gur  ! 
+which  is  by  Ibleam."^  We  can  at  least  thus  far  identify  "the 
+going  up  to  Gur,"  that  the  neighbouring  town  of  Ibleam  has 
+been  localised  in  the  modern  Bir  el  Belemeh,  south  of  En- 
+gannim.  It  is  here  then  that  we  must  place  the  "ascent 
+to  Gur,"  where  Jehu  had  expected,  although  mistakenly,  that 
+the  pursuers  might  overtake  the  chariot  of  Ahaziah. 
+
+As  we  infer,  the  object  of  Ahaziah  was  to  reach  Megiddo  in 
+safety.  That  place  has  generally  been  located,  but,  as  recently 
+shown,  erroneously,  at  the  western  edge  of  the  plain  of  Jezreel, 
+under  Mount  Carniel.  In  truth  Megiddo  lay  in  the  opposite 
+direction — south  and  east  from  Jezreel — being  "  the  large  ruin 
+between  Jezreel  and  Beth-shean,  which  still  bears  the  name 
+Mujedd'a."2  This  location  of  Megiddo  greatly  helps  the 
+understanding  of  our  narrative.  As  already  stated,  Ahaziah's 
+hope  was  that  in  reaching  Megiddo  he  would  have  not  only 
+out-distanced,  but  out-wearied  his  pursuers.  And  his  purpose 
+may  have  been  to  make  his  way  to  the  Jordan,^  and  along  its 
+eastern  banks  till  he  could  cross  into  Judsea.  But  in  this  hope, 
+as  we  imagine^  he  was  disappointed.  Pursued  to  Megiddo, 
+he  fled  to  Samaria  (2  Chron.  xxii.  9).  The  knowledge  that 
+the  sons  of  Ahab  were  brought  up  in  the  houses  of  the  prin- 
+cipal men  of  the  city  (2  Kings  x.  i)  led  him  to  expect  that 
+he  might  be  able  to  hide  for  a  time  among  the  adherents  of 
+his  grandfather.  We  know  how  little  the  loyalty  of  the  nobles 
+of  Samaria  was  to  be  depended  upon  (2  Kings  x.  1-7),  and  we 
+do  not  wonder  to  read  that  Ahaziah  was  "  caught "  in  Samaria, 
+brought  back  to  Megiddo,  and  there  slain  by  order  of  Jehu. 
+
+
+the  text  an  account  of  the  event  which  will  harmonise  the  narrative  in 
+2  Kings  with  the  notice  in  2  Chron. 
+
+^  The  punctuation  is  of  course  ours  :  but  intended  to  indicate  the 
+meaning  which  we  attach  to  the  words. 
+
+'^  Conder  //.   s.  pp.    128-130. 
+
+3  He  might  deem  himself  the  more  safe  that  Jehu — and  presumably 
+those  who  might  follow  him  from  Ramoth-Gilead— had  taken  the  road  on 
+the  other  (the  eastern)  side  of  Gilboa. 
+
+
+Death  of  Jezebel.  203 
+
+Nor  does  it  seem  strange  that  his  body  was  given  up  to  his 
+servants  to  be  taken  to  Jerusalem  and  buried  there,  as  being 
+a  descendant  of  that  Jehoshaphat  ''who  sought  Jehovah  with 
+all  his  heart."  For  the  whole  movement  of  Jehu  was  ostensibly 
+for  the  purpose  of  abolishing  the  worship  of  Baal,  and  restoring 
+that  of  Jehovah,  the  God  of  Israel. 
+
+We  return  to  sketch,  as  briefly  as  we  may,  the  closing  hours 
+of  that  day  in  Jezreel.  Tidings  of  all  that  was  passing 
+had  rapidly  reached  Jezebel.  Her  course  was  soon  chosen. 
+She  knew  she  must  die ;  and  she  would  die  as  a  princess  of 
+her  race,  and  a  queen.  After  the  Oriental  fashion,  she  put 
+paint  on  her  eyes,^  "and  tired  her  head."  Thus  arrayed  as  a 
+queen,-  she  took  her  place  at  the  window,  awaiting  the  arrival 
+of  Jehu.  As  he  appeared,  she  called  to  him  from  above — 
+taking  up  and  adapting  the  word  with  which  the  messengers  of 
+Joram,  and  then  the  unfortunate  king  himself,  had  unsuspect- 
+ingly greeted  Jehu ;  "  Is  it  peace  ?  Zimri,  murderer  of  his 
+master  ! "  The  words  were  intended  to  remind  Jehu  of  the 
+fate  of  Zimri,  whose  reign  lasted  only  seven  days  (i  Kings  xvi. 
+9-19),  perhaps  to  stir  up  feelings  which  would  lead  to  a  similar 
+counter-revolution.  Even  if  no  other  motive  had  been  actuating 
+him,  self-preservation  dictated  quick  and  decisive  action 
+on  the  part  of  Jehu.  Looking  up,  he  exclaimed  in  his  impatient 
+way:  "Who  is  on  my  side?  Who?"  and  when  some  of  the 
+eunuchs  immediately  responded,  Jezebel  was,  at  his  command, 
+thrown  from  the  window.  Her  blood  bespattered  the  wall  and 
+the  horses,  and  the  chariot  of  Jehu,  as  he  passed  through  the 
+gate,  crushed  her  mangled  body. 
+
+And  now  King  Jehu  is  at  his  royal  banquet  within  the  palace 
+of  the  murdered  princes.     Was  it  statecraft,  dictating  regard 
+
+1  A  mixture  of  antimony  and  zinc,  prepared  with  oil,  with  which  the 
+eyebrows  and  lashes  were  painted  black,  and  which,  according  to  Pliny, 
+had  the  effect  of  making  the  eyes  appear  larger  (comp.  also  Jer.  iv.  30 ; 
+Ezek.  xxiii.  40,  besides  references  to  the  custom  in  profane  writers). 
+
+-  Her  adornment  could  not  have  been  intended  to  attract  Jehu,  since, 
+having  a  grandson  twenty-three  years  old  (2  Kings  viii.  26),  she  was  of  an 
+age  when  no  adornment  could  have  given  charms  to  an  Eastern  woman. 
+
+
+204  Jehu. 
+
+for  the  Tyrian  princess ;  or  some  pity  for  the  fallen  greatness 
+of  one  who  had  died  a  proud  queen  ;  or  a  rising  feeling  that, 
+for  his  own  sake,  a  descendant  of  royalty  should  not  be  exposed 
+to  the  extreme  of  popular  contempt,  which  prompted  him  to  give 
+orders  for  the  burial  of  Jezebel?  But  whatever  his  motives,  the 
+command  came  too  late.  Only  the  skull,  the  hands,  and  the 
+feet  of  Jezebel  were  found ;  the  rest  had  been  food  for  those 
+wild  dogs  which  prowled  about  Jezreel.  And  if  Jehu  did  not 
+in  his  heart  recognise  the  meaning  and  lessons  of  the  terrible 
+judgment  which  had  fallen  with  such  literality  on  the  wretched 
+queen,  he  at  least  declared  and  owned  :  "This  is  the  word  of 
+Jehovah,  w^hich  He  spake  by  His  servant  Elijah  the  Tishbite." 
+And  so  there  was  testimony  in  Israel  for  Jehovah  and  His  Word 
+in  the  judgments  upon  Ahab  and  his  house — even  as  many 
+centuries  afterwards  there  was  testimony  of  judgment  for  the 
+Christ  in  the  flames  which  consumed  Jerusalem  and  its  Temple.^ 
+
+
+CHAPTER     XVII. 
+
+Jehtt,  ((Skbentk)  lliug  of  l0rjtel.    Jlth^tliah,  (gcbcnth) 
+(^ueen  of  Jxtiinh. 
+
+Murder  of  the  ''sons  "  of  Ahab  and  of  Joram— Destruction  of  the  adherents 
+of  Ahab  in  Jezreel— March  on  Samaria — Slaughter  of  the  "brethren  " 
+of  Ahaziah—Jehonadab  the  son  of  Rechab— Meaning  of  the  Rechabite 
+movement— The  Feast  of  Baal  at  Samaria— Destruction  of  the  Wor- 
+shippers—Character of  the  Reign  of  Jehu— Decline  of  the  Northern 
+Kingdom— Commencing  Decline  of  the  Southern  Kingdom. 
+
+(2  Kings  x;  2  Chron.  xxi.  10;    xxiv.  17-26.) 
+
+WE  have  learned  enough  of  tiiis  history  to  understand  the 
+seeming  inconsistencies  in  the  conduct  of  Jehu.     Ab- 
+solutely speaking,  he  was  the  instrument  selected  for  executing 
+
+^  According  to  the  Rabbis  both  Jeroboam  and  Jehu  were  of  the  tribe  of 
+Manasseh,  and  became  kings  in  fulfilment  of  Gen.  xlviii.  19  (Ber.  7v'.  82). 
+
+
+Work  of  Destruction,  205 
+
+the  Divine  punishment  on  the  house  of  Ahab ;  and  also  in 
+whose  reign  the  national  judgment  upon  Israel  was  to  begin. 
+Jehu  himself  clearly  understood  his  mission  as  regarded  the 
+house  of  Ahab  and  the  worship  of  Baal.  But  he  accepted  it 
+<is  a  national  and,  if  the  term  may  be  used,  a  Jehovistic  move- 
+ment, without  implying  the  necessity  of  true  fear  of  the  Lord, 
+or  of  return  to  Him  ;  and  he  carried  it  out  as  a  Jehu.  Alike 
+as  regarded  his  feelings  and  his  methods,  he  was  the  instru- 
+ment, not  the  servant  of  the  Lord. 
+
+To  such  an  one  as  Jehu  even  common  prudence  would 
+have  dictated  to  do  what  work  he  had^  quickly,  sharply,  and 
+completely.  A  dynasty  that  had  extended  over  four  reigns 
+must  have  numbered  many  adherents,  while  on  the  other  hand 
+the  demoralizing  influence  of  the  worship  of  Baal  must  have 
+widely  spread  in  the  land.  There  was  more  than  merely  a 
+mocking  taunt  in  the  reminder  of  Jezebel  about  the  fate  of 
+Zimri.  The  mission  as  well  as  the  rule  of  Jehu  depended 
+upon  a  rapid  succession  of  measures  which  would  alike 
+anticipate  the  possibility  of  a  counter-revolution,  and  render 
+a  return  to  the  former  state  of  things  impossible.  This 
+explains  the  measures  taken  by  the  new  king.  Samaria  was 
+not  only  the  capital,  but  a  fortified  city,  where  the  main  body 
+of  the  standing  army  ^  lay.  Here,  as  we  know,  had  been 
+placed  the  "  seventy  sons  of  Ahab  " — understanding  the  term^ 
+in  its  wider  sense,  common  in  Hebrew,  which  included,  besides 
+the  sons  of  Ahab,  his  grandsons,  the  children  of  Joram  (comp. 
+2  Kings  X.  3).  These  royal  princes  of  the  house  of  Ahab 
+were  entrusted^  some  (in  the  Eastern  fashion)  for  supervision, 
+
+1  We  imagine  that  there  was  always  the  nucleus  of  a  standing  army, 
+consisting  of  the  king's  body-guard,  war-chariots,  and  horses  (horsemen), 
+as  well  as  an  arsenal,  and  that  the  rest  of  the  host  consisted  of  levies 
+hastily  made,  and  only  partially  drilled  and  disciplined. 
+
+2  Similarly  we  must  take  the  term  "  brethren  "  in  a  wider  sense.  The 
+elder  *' brethren  "  of  Ahaziah  had  all  been  killed  in  the  invasion  of  the 
+Philistines  and  Arabs  ;  and  yet  they  were  "brethren  "  of  Ahaziah — in  the 
+wider  sense — who  went  to  salute  the  children  of  the  king  (ver.  13),  and 
+who  were  slain  by  Jehu. 
+
+
+2o6  Jehu. 
+
+the  younger  for  education  to  the  "princes,"^ — that  is,  the 
+governor  of  the  palace  and  the  governor  of  the  city  (x.  i, 
+comp.  X.  5) — to  the  "elders,"  and  to  certain  prominent  persons 
+who  had  charge  of  them.  These  officials  in  Samaria  would 
+embody  the  possibility  of  a  counter-revolution,  and  to  them 
+Jehu  addressed  on  the  morrow  of  his  entry  into  Jezreel  what 
+really  amounted  to  a  challenge,  to  declare  themselves  for  the 
+house  of  Ahab,  or  else  to  make  submission  to  his  rule.  The 
+motives  which  decided  their  choice  (ver.  4)  show  that  their 
+inclination  was  in  favour  of  the  old  regime^  while  their  fears 
+dictated  submission  to  the  usurper.  So  Jehu  had  judged 
+wisely  in  forcing  an  immediate  decision,  without  exposing 
+himself  by  marching  with  his  small  troop  against  Samaria. 
+
+But  this  was  not  all.  Neither  their  allegiance  nor  his  rule 
+was  safe  so  long  as  any  of  the  royal  princes  lived  :  and,  indeed, 
+their  destruction  was  part  of  his  work  and  mission.  To  have 
+killed  them  himself  would  have  been  a  doubtful  expedient, 
+which^  even  if  successful,  might  have  given  rise  to  popular 
+reaction,  and  at  all  events  brought  him  ill-will,  while  it  would 
+have  left  free  the  hands  of  the  adherents  of  Ahab.  It  was 
+therefore,  from  his  point  of  view,  the  wisest  policy  on  receiving 
+the  submission  of  the  leaders  of  Samaria  to  order  them  to  kill 
+all  the  royal  princes  and  bring  their  heads  to  Jezreel.^  This 
+would  not  only  accomplish  the  primary  object  of  Jehu,  but,  by 
+making  them  participate  in  the  crimes  of  his  revolution,  render 
+any  future  movement  against  his  rule  impossible.  At  the  same 
+time  the  ghastly  sight  of  those  heads,  sent  to  Jezreel  by  the 
+chief  representatives  of  the  old  regime,  would  offer  an  excellent 
+opportunity  for  an  appeal  to  the  people.  When,  therefore, 
+next  day  the  heads  of  the  seventy  princes  were  brought  in 
+baskets  to  Jezreel,  he  ordered  them  to  be  laid  "at  the  entering 
+
+^  vSo  literally;  the  words  "  of  Jezreel  "  are  manifestly  a  clerical  error, 
+whether  we  emendate  it  into  "of  Israel"  or  "of  the  city." 
+
+^  That,  instead  of  coming  with  them  to  Jezreel,  as  they  had  been  ordered 
+(ver.  7),  they  sent  the  gory  heads,  is  another  indication  of  their  feelings. 
+
+
+March  on  Samaria.  207 
+
+in  of  the  gate,"  ^  where  the  blood  of  Jezebel  had  so  lately 
+bespattered  the  wall,  and  the  chariot  of  the  conqueror  passed 
+ovei  her  body.  And  in  the  morning  Jehu,  pointing  to  the 
+gory  heaps,  could  tell  the  people  ^  that  not  only  himself,  but 
+all  the  chief  personages  under  the  late  government,  had  part 
+in  the  destruction  of  the  house  of  Ahab  ;  that  those  to  whom 
+they  had  been  entrusted  had  chosen  rather  to  slay  these 
+princes  in  cold  blood  than  to  take  up  their  cause — that  all  had 
+perished,  and  so  the  word  spoken  by  the  Lord  through  the 
+great  prophet  Elijah  had  been  fulfilled.  Thus  his  rule  and 
+the  slaughter  of  the  house  of  Ahab  had — as  he  put  it — the 
+support  of  all  men  and  the  sanction  of  God  Himself. 
+
+It  was  now  possible  for  Jehu  to  take  possession  of  his 
+capital  without  danger  of  opposition,  and  there  to  carry  out 
+his  final  measures  against  the  old  order  of  things.  But  before 
+doing  so  he  took  care,  so  to  speak,  to  secure  his  rear  by 
+killing  all  that  had  been  connected  with  the  house  of  Ahab 
+in  Jezreel,  "all  his  great  men,"  his  friends,^  and  his  chief 
+officials."* 
+
+On  his  way  to  Samaria  another  tragedy  was  to  be  enacted. 
+It  was  at  a  solitary  place,  in  a  locality  which  has  not  been 
+ascertained,  but  which  bore  the  name  of  "  house  of  binding 
+of  the  shepherds  " — or,  as  the  Chaldee  Paraphrast  calls  it : 
+"The  house  of  assembly  of  the  shepherds."  Here,  where 
+evidently  the  roads  from  Jezreel  and  Jerusalem  joined,  Jehu 
+
+^  The  practice  of  bringing  in  the  heads  of  enemies  in  evidence  of  their 
+being  killed  was  frequent  in  antiquity,  and  on  the  Assyrian  monuments 
+also  we  see  them  laid  in  heaps. 
+
+^  The  expression  "ye  are  righteous"  (ver,  9)  probably  meant :  Ye  have 
+taken  no  part  in  this  revolution,  and  are  unbiassed  ;  I  appeal  to  you  as 
+judges  !  Josephus  adds  the  somewhat  realistic  touch,  that  the  messengers 
+from  Samaria,  bearing  the  seventy  heads,  arrived  as  Jehu  and  his  friends 
+were  feasting  at  supper,  and  that  this  was  the  i^eason  why  he  ordered  them 
+to  be  heaped  up  against  the  morning. 
+
+3  So,  and  not  "kinsfolks,"  as  in  the  A.  V. 
+
+■*  So  the  word  should  be  rendered  here  as  in  2  Sam.  viii.  18  ;  I  Kings 
+iv.  5.     The  "priests"  of  Ahab  were  slain  in  Samaria. 
+
+
+2o8  Jehu, 
+
+and  his  followers  met  the  forty-two  princes,  "  the  brethren 
+of  Ahaziah,  king  of  Judah,"  ^  who  were  going  on  a  friendly 
+visit  to  "the  children  of  the  king  [Joram]  and  the  children 
+of  the  mistress,"  [lady-ruler,  Gebhirah — evidently  Jezebel]. ^ 
+So  rapid  had  been  the  movements  of  Jehu,  and  so  greac  was 
+the  fear  of  him,  that  tidings  of  what  had  passed  in  Israel  had 
+not  travelled  so  far  as  to  arrest  the  journey  of  the  princes  of 
+Judah.  Jehu's  order  was  to  "  take  them  alive."  Whether 
+they  offered  resistance,  or  this  was  part  of  the  original  order  of 
+Jehu,  certain  it  is  that  they  were  all  killed  "  at  the  cistern  of 
+Beth-Eqed,"^  into  which  their  bodies  were  probably  thrown. 
+
+As  Jehu  passed  from  the  scene  of  slaughter  he  met  a 
+figure  that  seems  strange  and  mysterious.  ^'Jehonadab,  the 
+son  of  Rechab,"  who  had  come  from  Samaria  to  meet  the  new 
+king,  belonged  to  the  Kenites  (j  Chron.  ii.  55).  This  tribe, 
+which  was  probably  of  Arab  nationality,  appears  so  early  as 
+the  days  of  Abraham  (Gen.  xv.  19).  Jethro,  the  father-in-law 
+of  Moses,  belonged  to  it  (Judg.  i.  16).  Part  at  least  of  the 
+tribe  accompanied  Israel  into  the  Land  of  Promise  (Numb. 
+X.  29-32),  and  settled  in  the  south  of  Judah  (Judg.  i.  16), 
+where  we  find  them  by-and-by  mixed  up  with  the  Amalekites 
+(i  Sam.  XV.  6).  Another  part  of  the  tribe,  however,  seems  to 
+have  wandered  far  north,  where  Jael,  the  wife  of  Heber  the 
+Kenite,  slew  Sisera  on  his  flight  from  Barak  (Judg.  iv.  17, 
+etc. ;  V.  24,  etc.)  Thus  they  appear  to  have  occupied  the 
+extreme  south  and  north  of  the  country,  and  would  even  on 
+that  ground  possess  political  importance.     But  what  interests 
+
+^  The  expression  "  Lrethren  "  must  here  be  taken  in  the  \\ider  sense. 
+lu  2  Chron,  xxii.  8  they  are  calle'l  "the  princes  of  Judah,  and  the  5-ons 
+of  the  brethren  of  Ahaziah." 
+
+^  Most  commentators  suppose  that  they  were  going  to  Jezreel,  but  from 
+X.  I  we  infer  that  the  royal  princes  of  Israel  were  at  Samaria.  As  Jehu 
+met  them  coming  from  the  south,  we  must  assume  that  he  did  not  follow 
+the  direct  road  from  Jezreel.  If  he  had  gone  first  to  Me^iddo,  and  thence  to 
+Samaria,  this  would  explain  how  he  might  have  met  the  "brethren  of 
+Ahaziah  "  coming  from  the  south. 
+
+^  This,  and  not  "  at  the  pit  of  the  shearing  house  "  (x.  14). 
+
+
+Jehonadab.  209 
+
+us  more  is  their  religious  relationship  to  Israel.  P>om  the 
+deed  of  Jael  we  infer  that  they  were  intensely  attached  to 
+the  national  cause.  Again,  from  the  circumstance  that 
+Jehonadab,  the  son  of  Rechab — evidently  the  chief  of  the  tribe 
+— came  from  Samaria  to  meet  Jehu,  and  from  the  anxiety 
+which  the  latter  displayed  as  to  Jehonadab's  views  and  inten- 
+tions, as  well  as  from  the  manner  in  which  he  treated  him, 
+we  gather  that  the  chieftain  was  a  person  of  considerable 
+political  importance,  while  the  invitation  of  Jehu  :  "  Come 
+with  me,  and  see  my  zeal  for  Jehovah,"  shows  that  he  and 
+his  tribe  were  identified  with  the  service  of  Jehovah  in  the 
+land.  All  this  throws  fresh  light  on  the  special  injunction 
+which  from  that  time  onward  Jehonadab  laid  upon  his  tribe 
+(Jer.  XXXV.  1-16).  They  were  neither  to  build  houses,  nor 
+to  sow  seed,  nor  to  plant  or  have  vineyards ;  but  to  dwell  in 
+tents,  and  so  both  to  be  and  to  declare  themselves  strangers 
+in  the  land. 
+
+This  rule,  which  the  descendants  of  Rechab  observed  for 
+centuries,  must,  from  its  peculiarity,  have  had  a  religious, 
+not  a  political, 1  bearing.  It  has  with  great  probability  been 
+connected  with  Elijah, ^  but  the  important  question  has  not 
+yet  been  mooted  whether  it  originated  before  or  after  the 
+occupation  of  Samaria  by  Jehu.  We  believe  the  latter  to 
+have  been  the  case,  and  it  seems  evidenced  even  by  the 
+circumstance  that  Jehonadab  came  from  Samaria  to  meet  Jehu. 
+We  suppose  that  the  ministry  of  Elijah  had  made  the  deepest 
+impression  on  Jehonadab  and  his  tribe.  The  very  appear- 
+ance and  bearing  of  the  prophet  would  appeal  to  them,  and 
+his   words    seem    as   those    of  a   second    Moses.     Earnestly 
+
+^  This  is  the  view  of  Hitzig  (on  Jer.  xxxv),  who  cites  the  instance  of  the 
+Nabatreans,  who,  to  ensure  their  freedom,  abstained  from  agriculture. 
+But  this  does  not  explain  the  abstinence  from  wine.  Besides,  why  should 
+this  rule  have  only  been  laid  down  by  Jehonadab,  and  if  its  reason  had  been 
+to  secure  their  freedom,  would  not  the  flight  of  the  Rechabites  to  Jerusalem 
+in  the  lime  of  Jeremiah  have  been  in  direct  contravention  of  their  object  ? 
+
+2  So  Ewald  {Gesch.  d.  Volk.  Isr.  Vol.  III.  pp.  542-544),  although  parts 
+of  his  analysis  are  fanciful. 
+
+
+2IO  Jehii. 
+
+they  waited  for  the  resuUs  of  his  mission  and  of  that  of 
+EUsha.  And  when  the  word  of  Jehovah  to  and  by  EHjah 
+was  being  fulfilled — Hazael  made  king  of  Syria,  Jehu  king  of 
+Israel,  and  the  house  of  Ahab  destroyed,  root  and  branches — 
+they  would  naturally  turn  to  Jehu^  in  the  hope  that  a  national 
+return  to  Jehovah  would  follow.  It  was  a  kind  of  Old  Testa- 
+ment John  the  Baptist's  hope  of  a  kingdom  of  God.  Feelings 
+such  as  these  prompted  Jehonadab  to  go  and  meet  Jehu,  while 
+the  latter,  knowing  the  deep  impression  which  the  Rechabite 
+movement  in  favour  of  the  reformation  of  Elijah  had  pro- 
+duced in  the  land,  would  be  anxious  to  secure  his  public 
+support,  perhaps  even — so  strange  and  mixed  are  our  motives 
+— to  gain  his  approbation.  But  what  Jehonadab  saw  of  Jehu 
+must  soon  have  convinced  him  that  he  was  not  one  to  carry 
+out  an  Elijah-movement  in  its  positive  and  spiritual  aspect, 
+however  fitted  an  instrument  he  might  be  to  execute  Divine 
+punishment.  And  so  Jehonadab  left  Jehu  to  perpetuate  in 
+his  own  tribe  the  testimony  of  Elijah,  by  making  them 
+Nazarites  for  ever,  thus  symbolising  their  dedication  to  God, 
+and  by  ordering  them  to  be  conspicuously  strangers  in  the 
+land,  thus  setting  forth  their  expectation  of  the  judgments 
+which  Elijah  had  predicted  upon  apostate  Israel. 
+
+We  are  now  prepared  to  accompany  Jehonadab,  as  after 
+responding  to  Jehu's  anxious  challenge  about  his  feelings  to- 
+ward him,  he  mounted  Jehu's  chariot  to  go  with  him  and 
+see  his  zeal  for  Jehovah.  The  first  measure  of  the  conqueror 
+was  to  repeat  in  Samaria  what  he  had  done  in  Jezreel, 
+and  to  kill  all  related  to  or  connected  with  the  family  of 
+Ahab.  His  next  was,  by  a  truly  Eastern  device,  to  seize  and 
+destroy  the  adherents  of  the  religious  rites  introduced 
+under  the  late  regime.  Although  this  was  in  fulfilment  of 
+his  mission,  it  will  be  observed  that  it  also  afforded  the 
+best  means  of  establishing  his  own  rule,  since  the  national 
+worship  of  Baal  was  identified  with  the  house  of  Ahab.  Ac- 
+cordingly we  imagine  that  when  Jehu  publicly  announced  that 
+he  meant  to  serve  Baal  even  much    more    than   Ahab,    and 
+
+
+Tlie  Feast  to  Baal.  2ii 
+
+proclaimed  a  solemn  assembly  for  Baal,  the  gathering  would 
+be  thoroughly  representative.  First,  as  we  understand  it, 
+Jehu  summoned  all  the  prophets  and  priests  of  Baal,  and 
+"  all  his  servants  " — either  the  leading  laity  generally,  or  else 
+those  in  Samaria  itself — ostensibly  to  make  preparation  for 
+his  great  sacrifice.  Next,  similar  proclamation  was  made 
+throughout  the  country.  In  both  cases  the  object  was  to 
+secure  the  attendance  of  all  professed  worshippers  of  Baal.  On 
+the  day  appointed,  the  courts  of  the  Temple  of  Baal  were 
+thronged  "  from  one  opening  to  the  other  [the  opposite]." 
+To  make  the  leaders  of  the  new  religion  the  more  prominent, 
+Jehu  now  directed  that  each  of  them  should  be  arrayed  in 
+festive  vestments,^  and  then,  to  prevent  any  possible  mistake, 
+since  some  of  the  servants  of  Jehovah  might  have  followed  Jehu 
+and  Jehonadab  to  the  house  of  Baal,  he  ordered,  on  his  arrival, 
+to  search  for  and  remove  any  worshippers  of  the  Lord. 
+
+Neither  of  these  measures  would  excite  surprise,  but  would 
+only  be  regarded  as  indications  of  Jehu's  zeal,  and  his  desire 
+that  the  rites  of  Baal  should  not  be  profaned  by  the  presence 
+of  strangers.  The  attendance  of  Jehonadab  might  seem 
+strange  ;  but  he  was  in  the  train  of  the  king  whom  he  was  known 
+to  have  served,  in  whose  company  he  had  returned  to  Samaria, 
+and  with   whom  he  had  continued  while  he  issued  his  man- 
+
+^  The  vestments  of  the  priests  of  Baal  are  also  referred  to  by  classical 
+writers.  They  seem  to  have  been  of  bysstis.  Generally  it  is  supposed  that 
+all  the  worshippers  in  that  temple  received  these  vestments,  in  which  case 
+they  must  have  been  supplied  from  the  royal  chamber  of  vestments,  since 
+the  temple-vestry,  however  well  filled,  could  scarcely  have  furnished  suffi- 
+cient for  such  a  multitude.  But  a  more  attentive  consideration  will  lead  to 
+the  conclusion  that  the  "  servants  of  Baal "  who  were  so  robed  were  only 
+the  prophets,  priests,  and  other  leaders  of  the  movement.  For  a  universal 
+robing  would  imply  an  almost  impossible  scene  of  bustle  and  confusion  in 
+that  crowded  edifice,  while  the  possession  of  a  distinctive  dress  would  have 
+rendered  needless  the  next  direction  (ver.  23),  to  see  that  those  with  them 
+were  not  of  the  servants  of  Jehovah.  Lastly,  Josephus  distinctly  states  that 
+the  vestments,  which  we  imagine  not  to  have  been  ordinary  priestly,  but  festive 
+robes  were  given  to  "a//  the  p7'iests,'^  and  he  lays  stress  on  the  subsequent 
+slaughter  as  that  of  "the  prophets"  of  Baal.  On  other  grounds  also  this  view 
+seems  to  commend  itself,  and  it  is  certainly  not  incompatible  with  the  text. 
+
+
+2 1 2  Jehu. 
+
+dates,  and  prepared  for  the  feast  of  Baal.  He  might  there- 
+fore be  simply  an  adherent  of  Jehu,  and  now  prepared  to 
+follow  his  lead. 
+
+The  rest  may  be  briefly  told.  As  the  sacrifices  were  offered 
+Jehu  surrounded  the  building  with  eighty  of  his  trusted 
+guards,  who,  on  the  given  word  of  command,  entered  the 
+building,  threw  down  all  they  encountered,  and  penetrated  into 
+"  the  sanctuary  ^  of  the  house  of  Baal,"  where  all  Avho  had 
+been  marked  out  to  them  were  slaughtered.  Then  they 
+brought  out  the  wooden  images  and  burnt  them,  while  the 
+large  stone  statue  of  Baal,  as  well  as  the  Temple  itself,  were 
+destroyed.  And  completely  to  desecrate  the  site,  and  mark 
+the  contempt  attaching  to  it,  Jehu  converted  it  into  a  place  for 
+public  convenience. 
+
+"  Thus,"  as  Scripture  marks,  "  Jehu  destroyed  Baal  out  of 
+Israel."  Yet,  as  the  cessation  of  idolatry  after  the  return  from 
+the. exile  did  not  issue  in  true  repentance  towards  God,  nor  in 
+faith  in  the  Messiah^  so  did  not  this  destruction  of  Baal-worship 
+lead  up  to  the  service  of  Jehovah.  Rather  did  king  and  people 
+stray  farther  from  the  Lord  their  God.  Of  the  succeeding 
+events  in  Jehu's  reign,  which  lasted  no  less  than  twenty- 
+eight  years,  no  account  is  given  in  Scripture,  except  this 
+notice,  that  "  in  those  days  Jehovah  began  to  cut  Israel  short : 
+and  Hazael  smote  them  in  all  the  coasts  of  Israel ;  from 
+Jordan  eastward,  all  the  land  of  Gilead,  of  the  Gadites,  and 
+the  Reubenites,  and  the  Manassites,  from  Aroer,  which  is  by 
+the  river  Arnon,  even  Gilead  and  Bashan."  And  the  As- 
+syrian monuments  throw  farther  light  upon  this  brief  record. 
+They  inform  us  about  the  wars  of  Hazael  against  Assyria, 
+and  they  represent  Jehu  as  bringing  tribute  to  the  king  of 
+Assyria.  The  inference  which  we  derive  is  that  Jehu  had 
+entered  into  a  tributary  alliance  with  the  more  powerful 
+empire  of  Assyria    against  Hazael,  and    that  when  the  latter 
+
+^  This,  as  surrounded  by  walls — is  distinctive  from  the  open  court  where 
+the  general  worshippers  were  gathered — is  designated  by  the  words  rendered 
+in  the  A.  V.  "the  city  of  the  house  of  Baal." 
+
+
+Decline  of  Israel  and  Jiidah.  213 
+
+had  made  his  peace  with  Assyria,  he  turned  against  Jehu, 
+and  inflicted  on  Israel  the  losses  thus  briefly  noticed  in 
+Scripture.  Be  this  as  it  may,  this  at  least  is  certain,  that 
+with  the  loss  of  the  whole  trans-Jordanic  territory,  the  decline 
+of  the  northern  kingdom  had  commenced. 
+
+Nor  was  the  state  of  matters  more  hopeful  in  the  southern 
+kingdom  of  Judah.  The  brief  and  bloody  reign  of  Athaliah 
+was,  indeed,  followed  by  the  counter-revolution  of  Jehoiada, 
+and  the  elevation  of  Joash  to  the  throne.  But  the  reforma- 
+tion then  inaugurated  was  of  short  duration.  After  the  death 
+of  Jehoiada,  the  worship  of  Jehovah  was  once  more  forsaken 
+for  that  of  "  groves  and  idols,  and  wrath  came  upon  Judah 
+and  Jerusalem  forthis  their  trespass"  (2  Chron.  xxiv.  18).  And 
+although  the  Lord  sent  them  prophets  to  bring  them  again 
+unto  the  Lord,  they  not  only  would  not  give  ear,  but  actually 
+at  the  commandment  of  the  king,  and  in  the  very  house  of 
+Jehovah,  shed  the  blood  of  Zechariah,  which,  according  to 
+Jewish  legend,  could  not  be  wiped  out,  but  continued  to 
+bubble  on  the  stones,  till  the  Assyrians  entered  and  laid  low 
+the  sanctuary  thus  profaned.  And  even  before  that,  the  army 
+of  Hazael,  though  greatly  inferior  in  numbers,  defeated  that  of 
+Judah,  desolated  and  despoiled  the  land,  and  laid  siege  to 
+Jerusalem.  The  Syrian  army  was,  indeed,  bought  off,  but  the 
+hand  of  God  lay  heavy  on  the  king.  Stricken  down  by  disease 
+he  was  murdered  in  his  bed  by  his  own  servants,  and  they  the 
+sons  of  strangers.  Thus  had  inward  and  outward  decline  come 
+to  Judah  also.  And  darker  and  yet  darker  gathered  th^  clouds 
+of  judgment  over  a  land  and  people  which  had  '^  forsaken 
+Jehovah,  the  God  of  their  fathers." 
+
+
+APPENDIX. 
+
+
+CHRONOLOGICAL   NOTE  TO    CHAPTER   XV. 
+
+To  aid  such  readers  as  are  interested  in  the  somewhat  difficult 
+study  of  the  chronology  of  that  period,  we  shall  put  together 
+the  principal  points  in  the  elaborate  note  of  Dr.  Bahr  in  his 
+Co)nnientary  on  2   Kings  viii.    16. 
+
+Let  it  be  kept  in  mind  that  the  accession  of  Jehu  forms  the 
+beginning  of  a  new  period,  alike  as  regards  the  kings  of  Israel 
+and  those  of  Judah,  since  both  Joram  and  Ahaziah  were  killed 
+in  the  revolution  of  Jehu.  Again,  let  it  be  remembered  that 
+chronologists  fix,  with  singular  unanimity,  on  the  year  884 
+B.C.  as  that  of  the  accession  of  Jehu,  and  the  death  of  the 
+two  kings. 
+
+Starting  from  this  point,  we  can  reckon  backwards  the  years 
+of  the  various  kings  in  the  past,  and  forward  those  of  the 
+reigns  that  followed  Joram  and  Ahaziah.  In  all  such  compu- 
+tations we  must,  however,  bear  in  mind  that  the  Jews  always 
+reckoned  the  years  of  a  king  from  the  month  Nisan  to  the 
+month  Nisan,  so  that  not  only  a  month,  but  even  a  day  before 
+or  after  that  month,  was  reckoned  as  if  it  had  been  a  year. 
+It  will  be  seen  that  the  computation  of  a  fragment  of  a  year  as 
+if  it  had  been  a  whole  year  must  frequently  introduce  elements 
+of  confusion  in  our  attempts  to  piece  together  the  statements 
+of  the  various  reigns.  And  this  must  therefore  be  taken  into 
+account  when  studying  the  chronology.  Keeping  this  in  view, 
+and  counting  backwards  from  the  year  884,  we  have  : — 
+
+I.    KINGS   OF  JUDAH. 
+
+1.  Ahaziah  :  died,  884  ;  reigned  one,  not  full,  year  (2  Kings  viii 
+26)  ;  acceded  in  884  or  885  B.C. 
+
+2.  Jehoram  :  died,  885  ;  reigned  eight  years  (2  Kings  viii.  17) 
+acceded  in  891  or  892  B.C. 
+
+3.  Jehoshaphat  :  reigned  twenty-five  years  (i  Kings  xxii.  42) 
+acceded  in  916  or  917  B.C. 
+
+
+Chronological  Note.  215 
+
+II.    KINGS   OF   ISRAEL. 
+
+1.  Ahab  :  reigned  twenty-two  years  (i  Kings  xvi.  29).  Since 
+the  first  year  of  the  reign  of  Jehoshaphat  coincided  with  the  fourth 
+of  that  of  Ahab,  Ahab  acceded  in  919  or  920  B.C. 
+
+2.  Ahaziah  :  reigned  two,  not  full,  years  (i  Kings  xxii.  51  ;  cp. 
+2  Kings  iii.  i)  ;  acceded  between  897  and  898  B.C. 
+
+3.  JORAM  :  died  in  884  ;  reigned  twelve  years  (2  Kings  iii.  i)  ; 
+acceded  between  895  and  896  B.C. 
+
+III.     CORRESPONDENCE    BETWEEN   THE    YEARS    OF 
+REIGNS  OF  THE  KINGS  OF  JUDAH  AND  ISRAEL. 
+
+1.  Ahaziah  of  Judah  acceded  in  the  twelfth  year  of  Joram  of 
+Israel  (2  Kings  viii.  26;  ;  and  as  the  two  were  killed  in  884,  the 
+one  year  of  Ahaziah's  reign  cannot  have  been  a  full  one. 
+
+2.  Jehoram  of  Judah  acceded  in  the  fifth  year  of  Joram  of 
+Israel  (2  Kings  viii.  16).  Since  Joram  acceded  in  895  or  896  B.C., 
+the  fifth  year  of  his  reign  must  have  coincided  with  that  of  the  ac- 
+cession of  Jehoram  in  891  or  892,  as  indicated  under  I. 
+
+3.  Ahaziah  of  Israel,  and  his  successor  Joram,  acceded  respec- 
+tively in  the  seventeenth  (i  Kings  xxii.  51  j  and  the  eighteenth  (2 
+Kings  iii.  i)  years  of  Jehoshaphat,  whence  it  follows  that  (as  indi- 
+cated under  II.)  the  two  years  of  Ahaziah  of  Israel  were  not  full 
+years.  As  Jehoshaphat  acceded  in  916,  the  seventeenth  year  of 
+his  reign  would  have  been  899  B.C.,  and  the  eighteenth  year  898  ; 
+while  according  to  the  computation  under  II.,  Ahaziah  acceded 
+between  897  and  898,  and  Joram  between  895  and  896.  But  these 
+slight  discrepancies  are,  no  doubt,  due  to  the  Jewish  mode  of  cal- 
+culating the  years  of  a  reign,  to  which  reference  has  been  made  above. 
+
+4.  If  we  add  the  sum  of  the  three  reigns  in  Judah  (Jehoshaphat 
+twenty-five,  Jehoram  eight,  and  Ahaziah  one),  we  obtain  the  number 
+thirty-four,  or,  making  allowance  for  the  Jewish  mode  of  computa- 
+tion, thirty-two  years.  Again,  the  sum  of  the  three  reigns  in  Israel 
+(Ahab  twenty-two,  Ahaziah  two,  and  Joram  twelve),  gives  thirty- 
+six,  not  full,  years.  The  whole  period  from  the  reign  of  Ahab  to 
+that  of  Jehu  comprised  between  thirty-five  and  thirty-six  years, 
+and  as  Jehoshaphat  acceded  in  the  fourth  year  of  Ahab,  the  figures 
+will  be  seen  to  agree. 
+
+The  only  exception  to  this  general  agreement  in  the  numbers 
+is  2  Kings  i.  17,  where  we  read  that  Joram  acceded  to  the 
+throne  of  Israel  in  the  second  year  of  Jehoram,  king  of  Judah. 
+But  in  that  case  Jehoshaphat  could  only  have  reigned  seven- 
+
+
+2i6  Chronological  Note. 
+
+teen,  not  twenty-five  years ;  nor  could  Joram  have  become 
+king  of  Israel  in  the  eighteenth  year  of  Jehoshaphat,  as  we 
+read  in  2  Kings  iii.  i  ;  while  Jehorara  of  Judah  would  have 
+reigned  not  eight  years  (2  Kings  viii.  17),  but  fourteen;  nor 
+would  he  have  acceded  in  the  fifth  year  of  Joram  (2  Kings 
+viii.  16),  but  a  year  earlier  than  he.  Accordingly,  most  writers 
+have  supposed  a  co  regency  of  Jehoram  with  his  father  Jehosh- 
+aphat. But  as  the  text  gives  no  hint  of  any  such  co-regency,^ 
+and  there  are  many  and  strong  reasons  against  this  supposi- 
+tion,2  Bahr  has  argued  that  the  clause  in  2  Kings  i.  17,  '^  in 
+the  second  year  of  Jehoram,  the  son  of  Jehoshaphat,  king  of 
+Judah,"  is  spurious.  The  usual  chronological  notice  which, 
+as  always,  appears  in  the  account  of  a  reign,  follows  in  2  Kings 
+iii.    I,  and  there  correctly. 
+
+As  regards  the  comparison  between  the  Biblical  chronology 
+and  that  based  on  the  Assyrian  monuments,  we  may  note 
+
+1.  That  there  are  differences  between  the  two  from  the  reign  of 
+Ahab  to  that  of  Manasseh,  but  that  these  differences  strangely  vary, 
+for,  whereas  the  differences  amount  in  one  reign  perhaps  to  forty- 
+three  years  and  more,  they  amount  in  another  reign  to  nine  years, 
+and  even  less.  This  varying  divergence  leads  us  to  suppose  that 
+the  differences  may  depend  on  something  as  yet  to  us  unknown, 
+and  which,  if  known,  might  establish  a  harmony  between  the  two 
+chronologies. 
+
+2.  As  regards  the  capture  of  Samaria  in  722,  the  two  chronologies 
+absolutely  agree  ;  and  substantially  also  as  regards  the  reign  of 
+Manasseh. 
+
+3.  It  is  admitted  that,  taken  as  a  whole,  the  record  in  the  Bible 
+of  persons  and  events  which  were  contemporaneous  accords  with 
+the  record  on  the  Assyrian  monuments,  so  that  (despite  any  minor 
+discrepancies)  "the  Bible  receives,  as  regards  chronology  also,  a 
+happy  vindication  and  confirmation"  from  the  Assyrian  monuments.^ 
+
+1  The  words  2  Kings  viii.  16  "Jehoshaphat  being  then  king  of  Judah," 
+have  been  already  explained  in  the  text. 
+
+2  These  are  fully  enumerated  by  Bahr,  but  need  not  be  here  set  forth. 
+
+^  Comp.  Schrader,  d.  Kcilinschr.  ti,  d.  A.  Test,  (revised  edition,  1883), 
+pp.  465-567. 
+
+
+London:   knujhj,  printkh,  miuj>lk  strekj 
+
+
+^uWitatioirs  of  iljt  |lcHgio«s  ^md  Stfcietg. 
+
+WORKS   BY  DR.    EDERSHEIM. 
+
+
+THE  GOLDEN  DIARY  OF  HEART  CONVERSE  WITH 
+JESUS  IN  THE  BOOK  OF  PSALMS. 
+
+Arranged  for  every  Sunday  in  the  Year.     Gilt  Edges,  4s. 
+
+ELISHA  THE   PROPHET :  the  Lessons  of  his 
+History  and  Times. 
+
+New  and  Revised  Edition.     Crown  8vo. ,  'I':-.  Gd.  cloth  boards. 
+
+This  book  is  intended  to  follow  the  Scriptural  account  of  the  life  and  work  of 
+the  prophet  Elisha  with  a  view  of  pointing  out  their  moral,  and  learning  their 
+lessons. 
+
+THE  TEMPLE :  its  Ministry  and  Services,  as  they 
+were  at  the  Time  of  Jesus  Christ. 
+
+Imperial  16mo.,  5s.  cloth,  gilt  edges. 
+
+"  The  author  knows  the  varied  topics  he  discusses  better  than  most  scholars  in 
+England.  There  are  few  who  will  not  learn  from  a  volume  which  has  the  results, 
+with  little  of  the  show  of  learning." — Athouenm. 
+
+SKETCHES   OF  JEWISH   SOCIAL  LIFE   IN   THE 
+DAYS  OF   CHRIST. 
+
+Imperial,  16mo.,  5s.   cloth,  gilt  edges. 
+
+"Clergymen  will  find  many  facts,  illustrations,  and  details  of  real  value  to  them 
+in  preparing  their  sermons  ;  while  to  parents  and  teachers  they  will  be  invaluable.'* 
+
+The  Standard. 
+
+THE   BIBLE   HISTORY. 
+
+2s.  6d.  each  Volume.     Each  Volume  is  complete  in  itself,  and  may  be  had 
+separately. 
+
+The  writer  possesses  e.xtensive  information,  and  the  faculty  of  imparting  it  in  a 
+pleasing  and  instructive  manner.  These  books  will  be  found  both  by  those  who 
+teach  and  those  who  learn  to  be  valuable  aids  to  the  study  of  the  Holy  Scriptures. 
+
+1.  The  World   before  the  Flood,   and  the  History    of    the 
+
+Patriarchs. 
+
+2.  The  Exodus  and  Wanderings  in  the  Wilderness. 
+
+3.  Israel  in  CanaAxN  under  Joshua  and  the  Judges. 
+
+4.  Israel  under  Samuel,   Saul,   and  David,   to  the  Birth  of 
+
+Solomon. 
+
+5.  Israel  and  Judah  from  the  birth  of  Solomon  to  the  Reign 
+
+OF  Ahab. 
+
+
+London  :  The  Religious  Tract  Society,  56,  Paternoster  Row. 
+
+1 
+
+
+Jpublirations  oi  the  ^eliQiott©  '^rart  (Society, 
+jaiissianarij   Baahs. 
+
+AMONG  THE  MONGOLS.  By  the  Rev.  James  Gilmour,  M.A., 
+of  Pekin.  \Yith  Map  and  Numerous  Engravings  from  Photographs 
+and  Native  Sketches.     8vo.,  6s.,  cloth. 
+
+BUDDHISM  PAST  AND  PRESENT.  By  the  Right  Rev.  j.  H. 
+
+TiTCOMB,  D.D.,  First  Bishop  of  Rangoon.      Crown  8vo.,  3s.  cloth. 
+
+EVERYDAY  LIFE  IN  CHINA;  or,  Scenes  along  River 
+and  Road  in  the  Celestial  Empire.    By  Edwin  Joshua 
+
+Dukes.  With  Illustrations  from  the  Author's  Sketches,  engraved  by 
+E.  Whymper.     Crown  8vo.,  cloth  boards,  5s. 
+
+EVERYDAY  LIFE  IN  SOUTH  INDIA ;  or,  the  Story  of 
+
+CoopOOSWamey.  An  Autobiography,  By  H.  A.  Hutchinson, 
+B.  Sc,  nine  years  resident  in  S.  India.   Fine  Engravings.   Cloth,  3s.  6d. 
+
+HINDUISM,  OUTLINES  OF.     By  J.  Murray  Mitchell, 
+
+M.A. ,  LL.D.,  With  an  account  of  Recent  Hindu  Reformers,  and  a 
+brief  comparison  between  Hinduism  and  Christianity.  Crown  8vo., 
+cloth  boards,  4s. 
+
+IN  SOUTHERN  INDIA.  A  Visit  to  some  of  the  chief 
+Mission  Stations  in  the  Madras  Presidency.  By  Mrs.  Murray  Mit- 
+chell.    With  Map  and  many  Illustrations.      Cr.  8vo.,  6s.  cloth  bds, 
+
+HOME   WORKERS   FOR  FOREIGN   MISSIONS.     By  E. 
+
+Jane  Whately.     Is.  6d.  cloth. 
+
+In  the  form  of  narrative  Miss  Whately  has  shown  how  best  to  work  at  home  for 
+foreign  missions,  with  a  notice  of  some  of  the  difficulties  that  beset  the  path  of  such 
+workers. 
+
+JOTTINGS  FROM  THE  PACIFIC.     By  W.  Wyatt   Gill, 
+
+B.A.,  Author  of  "  Life  in  Southern  Isles."    Illustrated.  5s.  cloth  gilt. 
+
+This  book  comes  from  the  psn  of  a  writer  well  known  in  missionary  and  scientific 
+circles.  In  a  small  volume  Mr.  Gill  has  brought  together  an  enormous  amount  of 
+information  about  the  life,  religious  beliefs,  and  progress  in  civilization  of  the  South 
+Sea  Islanders.  He  also  gives  with  his  usual  insight  and  accuracy  of  observation  a 
+large  amount  of  first-hand  information  about  the  botany  and  zoology  of  the  islands 
+where  he  has  spent  so  great  a  part  of  his  life. 
+
+LIFE  IN  THE  SOUTHERN  ISLES;  or,  Scenes  and  In- 
+cidents in  the  South  Pacific  and  New  Guinea.    By 
+
+the  Rev.  W.  Wyatt  Gill,  B.A.  With  Maps  and  Illustrations. 
+Imp.   16mo.,  5s.  cloth  boards,  gilt  edges. 
+
+MADAGASCAR  AND  FRANCE.    With  some  account  of  the 
+
+Island,  its  People,  its  Resources,  and  Developments.  By  George  A. 
+Shaw,  F.Z.S.,  London  Mission,  Tamatave.  With  Illustrations  and 
+Map.     6s.  cloth, 
+
+"Altogether  this  is  the  most  satisfactory  and  comprehensive  work  of  its  kind  re- 
+garding Madagascar  that  has  appeared  in  England  for  several  years.     It  is  excel- 
+lently illustrated,  and  the  outline  map  is  sufficient  to  indicate  most  that  is  required 
+for  reference." — AtJieiuFian. 
+2 
+
+
+Jpublications  oi  the  glcligious  '^xnd  §ocui^. 
+MADAGASCAR  AND  ITS  PEOPLE.    Notes  of  a  Four  Years' 
+
+Residence,  With  a  Sketch  of  the  History,  Position,  and  Prospects 
+of  Mission  Work  amongst  the  Malagasy.  By  James  Sibree,  Junior. 
+IHustrated.     6s.   6d.  cloth  boards. 
+
+NEW  GUINEA,  WORK  AND  ADVENTURE  IN,  1877  TO 
+
+1885.  By  James  Chalmers,  of  Port  Moresby,  and  W,  Wyatt 
+Gill,  B.A.,  author  of  "  Life  in  the  Southern  Isles,"  etc.  With  a  Map 
+and  many  Illustratioiis.     Crown  8vo.,  5s.  cloth  boards. 
+
+"Altogether  this  volume  should  prove  a  welcome  addition  to  our  information 
+about  New  Guinea.'' — AthenaiDii. 
+
+OLD  HIGHWAYS  IN  CHINA.     By  Isabelle  Williamson, 
+
+of  Chefoo.     Illustrations  and  Map.     Crown  8vo.,  6s.,  cloth  boai-ds. 
+
+"  This  book,  written  as  it  is  by  an  acute  and  experienced  observer,  and  in  a 
+pleasant  and  lively  stjde,  is  certainly  well  worth  reading." — Spectator. 
+
+OUR   EASTERN   SISTERS,  AND  THEIR  MISSIONARY 
+
+HELPERS.     By  Harriet  Warner  Ellis.    Crown  8vo.,  2s.  6d, 
+
+cloth  boards. 
+
+A  sketch  of  the  rise  and  present  condition  of  female  missionary  work  amongst  the 
+women  of  the  East.  It  is  a  story  full  of  interest,  and  all  who  read  it  will  find  thefr 
+interest  in  this  important  field  of  labour  greatly  increased. 
+
+PROTESTANT    MISSIONS    IN    INDIA    FROM    THEIR 
+
+COMMENCEMENT  IN  1706  TO  1882.    By  the  Rev.  M.  A. 
+
+Sherrixg,  M.A.,  LL.B.  Newly  Revised  and  brought  down  to  date. 
+By  the  Rev.  E.  Storrow,  formerly  of  Benares.  With  Four  Maps. 
+Crown  8vo.,   6s.   cloth  boards. 
+
+SEVENTEEN  YEARS  IN  THE  YORUBA  COUNTRY. 
+
+Memorials  and  Portrait  of  Anna  Hinderer,  wife  of  the  Rev.  David 
+Hinderer,  C.M.S.  Missionary  in  Western  Africa.  With  an  Intro- 
+duction by  Archdeacon  Hone.     Illustrated.     Crown  Svo.,  3s.  cloth. 
+
+
+Missioriart)  Baol^s  for  th^  ^aung% 
+
+CHILD  LIFE  IN  CHINESE  HOMES.      By  Mrs.   Bryson, 
+
+of  Wuchang,  China.  With  many  Illustrations.  Small  Quarto,  5s. 
+cloth   boards. 
+
+THE  VANGUARD  OF  THE  CHRISTIAN  ARMY;  Or, 
+Sketches  of  Missionary  Life,    illustrated,   imperial  i6mo., 
+
+5s.  cloth  boards,  gilt  edges. 
+
+TULSIPUR  FAIR.     Glimpses  of  Missionary  Life  and  Work 
+
+in  North  India.  A  Book  for  the  Ciiildren.  By  the  Rev.  B.  H. 
+Badley,  M.A.,  for  Ten  Years  a  Missionary  in  North  India.  With 
+many  fine  Engravings.  4s.  cloth,  gilt. 
+
+THE  CHILDREN  OF  INDIA.  W^ritten  for  the  Children  of 
+England  by  one  of  their  Friends.  With  Illustrations  and  Map.  4s. 
+cloth,  gilt  edges. 
+
+3 
+
+
+IJublJnttions  oi  the  Jvcligious  ^rart  ^oncty. 
+
+Btj-l?aths  ol  Bible  Knmt;li3dgx3, 
+
+"  The  volumes  which  the  Committee  of  the  Religious  Tract  Society  is  issuing  under  the 
+above  title  fully  deserve  success.  Most  of  them  have  been  entrusted  to  scholars  who  have 
+a  special  acquaintance  with  the  subjects  about  which  they  severally  trea.t."— A t/ie/iauvi 
+
+1.  CLEOPATRA'S  NEEDLE.     A    History  of  the    London 
+
+Obelisk,    with  an  Exposition    of  the   Hieroglyphics.     By   the    Rev. 
+J.  King,  M.A.,  Lecturer  for  the  Palestine  Exploration  Fund.     With 
+Illustrations.     Crown  8vo.,  2s.  Od.  cloth  boards. 
+"In  every  way  interestingly  written."— Z/V6'mr_j/  CJmrcJunan. 
+
+2.  FRESH  LIGHT  FROM  THE  ANCIENT  MONUMENTS. 
+
+By  A.  H.  Sayce,  INI. a.,  Deputy  Professor  of  Comparative  Philology, 
+Oxford,  &c.  A  Sketch  of  the  most  striking  confirmations  of  the  Bible 
+from  recent  discoveries  in  Egypt,  Assyria,  Babylonia,  Palestine,  and 
+Asia  Minor.      With  Facsimiles  from  Photographs.     3s.  cloth  boards. 
+
+3.  RECENT  DISCOVERIES  ON  THE  TEMPLE  HILL  AT 
+
+JERUSALEM.    By  the  Rev.  J.  King,  M.A.     With  Maps,  Plans, 
+and  Illustrations.     8vo.,  2s.  6d.  cloth. 
+"An  interesting  little  book,  well  deserving  of  perusal."--  Literal  y  C/uerc/nitafi. 
+
+4.  BABYLONIAN  LIFE  AND  HISTORY.    By  E.  A.  Wallis 
+
+BUDCiE,   B.A.   Cambridge,   Assistant  in   the  Department  of  Oriental 
+Antiquities,  British  Museum.     Illustrated.     Crown  8vo.,  3s.  cl.  bds. 
+"An  admirable  addition  to  this  excellent  series." — Saturday  Revieiu. 
+
+5.  GALILEE    IN    THE    TIME  OF  CHRIST.      By   Selah 
+
+]Merrill,  D,D.,  author  of  "  East  of  the  Jordan,"  &c.  With  a  Map. 
+Crown  8vo.,  2s.  6d.  cloth  boards. 
+
+"_  Will  be  of  great  service  to  all  who  desire  to  realize  the  actual  surroundings  amid 
+which  our  Lord  spent  His  life  on  earth,  and  will  be  specially  useful  in  correcting 
+some  false  notions  which  have  obtained  wide  currency,  e.g.,  the  common  idea  that 
+Nazareth  was  a  small,  obscure,  and  immoral  ^\2iCe..^'—Congregatiofialist. 
+
+6.  EGYPT  AND  SYRIA.     Their   Physical  Features  in  Re- 
+
+lation to  Bible  Ilistcrv.  By  Sir  J.  W.  Dawson,  Principal  of  McGill 
+College,  Montreal,  F.G.S.,  F.R.S.,  author  of  "  The  Chain  of  Life 
+in  Geological  Time."     Many  Illustrations.     Crown  8vo.,  ^s.  cloth. 
+
+7.  ASSYRIA  :  Its  Princes,  Priests  and  People.    By  A.  H. 
+
+Savce,  M.A,  LL.D.,  autiior  of  "Fresh  Light  from  Ancient  Monu- 
+ments," "Introduction  to  Ezra,  Nehemiah  and  Esther,"  &c.  Illus- 
+trated.    3s.  cloth  boards. 
+
+.Trofessor  Sayce  gives  in  a  small  space  all  that  is  known  definitely  and  that  will 
+interest  the  Biblical  student,  about  the  history,  habits,  literature,  and  religion  of 
+the   Assyrians. 
+
+8.  THE  DWELLERS  ON  THE  NILE.      Chapters  on   the 
+
+Life,  Literature,  History  and  Customs  of  Ancient  Egypt.  By  E.  A. 
+Wallis  Budge,  M.A.  Crown  Svo.,  cloth  boards.  With  many 
+Illustrations.     3s.  cloih. 
+
+A  careful  and  complete  sketch  of  the  ancient  ICgyptians,  giving  sp^uil  prominence 
+to  all  points  that  illustrate  the  Old  'I'estamciu.  ^  \ 
+
+London  :  The  Religious  Tract  Society,  50,  Paternoster  Row. 
+
+4 
+
+
+'  H  ^^^ 
+
+
+'  ^J;m 
+
+
+:  '   ^-'^-kM 
+
+■ 
+
+;    ..-'.  Vt/^ 
+
+™ 
+
+''   '     '"  >\- 
+
+'  iy 
+
+1 
+
+i 
+
+■ 
+
+\.  \  T  hV 
+
+.*,^V1 
+
+.-■■'  v-^i^^. 
+
+^k  ;7tV«f 
+
+('"s    "    "  ■^     ' ' 
+
+¥*^ 
+
+„ ' , :  :i\< 
+
+int^ 
+
+•^-M^ 
+
+^11::^ 
+
+y 
+
+> 
+
+^'5^ 
+
+'     V::i 
+
+H 
+
+,  t: 
+
+
+r-.(>>; 
+
+
+li:^t:>f 
+
+
+•••■'  ->;• 
+
+
+<<i 
+
+
+r  -  ■  ^''-■. 
+
+.-■';  :■!:-¥ 
+
+^,y- 
+
+
+.;i-.    .• 
+
+
+BS1197.E21V.6 
+The  Bible  history 
+
+Princeton  Theological  Semmary-Speer  Library
