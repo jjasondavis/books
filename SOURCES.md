@@ -86,8 +86,10 @@ dedicated sacred-texts/clean-source pass (noted below).
   gratis-bible OSIS XML, clean verse text. (KJV + Douay-Rheims already present.)
 - **The Jewish Encyclopedia (1901-06)** (`jewish/jewish-encyclopedia/`) — **complete 12 vols**,
   archive.org OCR. Huge reference for Jewish law/custom/history ("what did the Jews know").
-- **Rodkinson Babylonian Talmud** (`jewish/talmud/`) — archive.org OCR, **partial** (tracts from
-  vols 1, 7, 9, 17, 19; the archive scan numbering is inconsistent). Complete clean set pending.
+- **Rodkinson Babylonian Talmud** (`jewish/talmud/`) — **complete, all 20 books** (the 1918 New
+  Edition, `neweditionofbaby1918NNrodk`), archive.org OCR — verify before quoting. A *clean
+  transcription* (sacred-texts) remains blocked (Cloudflare JS challenge as of 2026-07-23); the OCR
+  set is complete and searchable, so a clean re-capture is optional polish, not a coverage gap.
 - **Edersheim, *Bible History: Old Testament*** (`jewish/edersheim/`) — partial (~4 of 7 vols, OCR).
 - **Emil Schürer, *History of the Jewish People*** (`jewish/schurer/`) — vol. 3 (OCR); rest pending.
 - **Spurgeon, *The Treasury of David*** (`tradition/charles-spurgeon/`) — vols 1-3 (OCR); vols 4-7 pending.
@@ -174,8 +176,9 @@ All public-domain English text (no scans). Division: `tradition/`.
 - **The Philokalia — English** (Priority 5) — the Palmer/Sherrard/Ware (Faber) English translation is copyrighted and is NOT captured; research-only. The public-domain **Greek** 1782 first edition WAS captured as a base text (see the Philokalia row above).
 - **John Climacus, English translation** — no public-domain English exists; the Greek PG 88 base text was captured instead (above). English wording must come from a future working translation or a rights-checked source.
 - **Still genuinely pending** (2026-07-23, after the deferred-pass round — all PD, but no clean
-  complete text reachable yet): a *complete clean* **Rodkinson Talmud** and **Treasury of David**
-  vols 4-7 (need a sacred-texts / clean-source pass; only partial archive OCR captured); the
+  complete text reachable yet): a *clean transcription* of the **Rodkinson Talmud** (the complete
+  20-book OCR set is captured; only a cleaner text is pending, and sacred-texts is Cloudflare-gated)
+  and **Treasury of David** vols 4-7 (need a clean-source pass; only partial archive OCR captured); the
   remaining **Schürer** and **Edersheim Bible History** volumes; **Plutarch *Moralia* vol. 4** (not
   yet on Gutenberg); James Allen *Above Life's Turmoil*, Spurgeon *Lectures to My Students* &
   *John Ploughman's Talk*, Ryle *Expository Thoughts* on Mark/Luke/John, *The Way of a Pilgrim*
