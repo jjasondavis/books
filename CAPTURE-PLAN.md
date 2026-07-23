@@ -8,6 +8,11 @@ Execution layer under `COLLECTION-ROADMAP.md`. This file is what the capture age
   Wikisource, Standard Ebooks, New Advent). Do NOT capture image-only PDFs expecting to OCR
   them for quotation. The existing Greek scans (Philokalia 1782, Climacus PG 88) stay as
   reference *witnesses* only — never OCR-quote them.
+- **No binaries in the repo — ever.** This repo is text-only. Any scanned PDF, image, e-book
+  binary, audio/video, or archive belongs in `D:\repos\scans` (Axcient-backed, off-repo),
+  mirroring its sub-path, NOT here. A `.gitignore` blocks these extensions as a safety net;
+  if a capture agent lands a binary in the repo tree, relocate it to `D:\repos\scans` and
+  record it in `D:\repos\scans\CHECKSUMS.sha256`.
 - **Model policy (cost).** Bulk fetching runs on **Sonnet** subagents (reliable for site
   structure). **Haiku** may run pure known-URL fetch loops. **Opus** (the orchestrator) does
   planning, tricky source-hunting, and QC only. The download itself is tool calls, so the

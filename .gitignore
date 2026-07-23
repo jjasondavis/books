@@ -1,0 +1,45 @@
+# This is a TEXT-ONLY library. Scanned page-image PDFs and any image/binary files
+# must NOT live here — they belong in D:\repos\scans (Axcient-backed, off-repo).
+# These patterns are a safety net so a stray binary can never be committed.
+
+# Page-image / scanned PDFs and e-book binaries
+*.pdf
+*.epub
+*.mobi
+*.azw
+*.azw3
+*.djvu
+
+# Images
+*.jpg
+*.jpeg
+*.png
+*.gif
+*.bmp
+*.tif
+*.tiff
+*.webp
+*.svg
+*.ico
+
+# Audio / video
+*.mp3
+*.mp4
+*.m4a
+*.m4b
+*.ogg
+*.wav
+*.avi
+*.mov
+
+# Archives / compressed
+*.zip
+*.gz
+*.tar
+*.7z
+*.rar
+
+# Stray scratch/temp files agents might leave
+scratch_*
+scratchpad_*
+*.tmp
