@@ -76,11 +76,33 @@ All public-domain English text (no scans). Division: `jewish/`.
 | Pseudepigrapha — *The Book of Enoch*; Charles's *Apocrypha & Pseudepigrapha* vol. 2 | sacred-texts.com; archive.org (Charles, Oxford 1913) | `jewish/pseudepigrapha/` | public domain; the APOT vol. 2 file is archive.org **OCR — verify before quoting** |
 | The Targums of Onkelos & Jonathan (Pentateuch) | archive.org (Etheridge 1862) | `jewish/targums/` | public domain; archive.org **OCR — verify before quoting** |
 
+## Added 2026-07-23 (Phase 2 — Evangelical & revival)
+
+All public-domain English text (no scans). Division: `tradition/`.
+
+| Author | Source | Works | Rights |
+|---|---|---|---|
+| Charles Spurgeon | CCEL | *Morning and Evening*; *All of Grace* | Public domain (d. 1892) |
+| J. C. Ryle | CCEL, Gutenberg | *Holiness*; *Practical Religion*; *Expository Thoughts on Matthew* | Public domain |
+| Andrew Murray | CCEL, Gutenberg | *Humility*; *With Christ in the School of Prayer* | Public domain |
+| E. M. Bounds | CCEL | *Power Through Prayer*; *Purpose in Prayer*; *The Necessity of Prayer*; *The Essentials of Prayer* | Public domain |
+| John Wesley | CCEL | *A Plain Account of Christian Perfection*; *Journal* (Parker abridgment); *Sermons on Several Occasions* | Public domain |
+| George Whitefield | CCEL | *Selected Sermons* (the 6-vol *Works* is also on Gutenberg, PD) | Public domain |
+| Charles Finney | CCEL, archive.org | *Lectures on Revivals of Religion*; *Memoirs, Written by Himself* (archive.org **OCR — verify**) | Public domain |
+| Hannah Whitall Smith | CCEL | *The Christian's Secret of a Happy Life* | Public domain |
+| George MacDonald | Gutenberg | *Unspoken Sermons* (I–III); *The Diary of an Old Soul* | Public domain |
+| Horatius Bonar | CCEL | *God's Way of Peace* | Public domain |
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
 - **The Philokalia — English** (Priority 5) — the Palmer/Sherrard/Ware (Faber) English translation is copyrighted and is NOT captured; research-only. The public-domain **Greek** 1782 first edition WAS captured as a base text (see the Philokalia row above).
 - **John Climacus, English translation** — no public-domain English exists; the Greek PG 88 base text was captured instead (above). English wording must come from a future working translation or a rights-checked source.
+- **Evangelical phase — deferred items** (2026-07-23, all PD, archive.org-only / no clean text yet):
+  Spurgeon's *Lectures to My Students* (4 series; only messy per-series archive OCR),
+  *John Ploughman's Talk*, and *The Treasury of David* (7 vols; CCEL hosts it image-only) —
+  a dedicated Spurgeon pass; Bonar's *Night of Weeping*; Murray's *Abide in Christ*; and
+  Ryle's *Expository Thoughts* on Mark/Luke/John.
 - **Jewish phase — deferred items** (2026-07-23): the **Rodkinson Babylonian Talmud** (public
   domain, but only as ~124 messy multi-edition archive.org OCR scans or the rate-limited
   sacred-texts text — needs a dedicated careful pass, not a quick grab); **Edersheim's *Bible
