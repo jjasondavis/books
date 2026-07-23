@@ -185,13 +185,39 @@ customary, and idiomatic background a 2026 reader lacks. All public domain (text
 - **The Jewish Encyclopedia (1901–1906)** — massive PD reference on Jewish law, custom, daily
   life, idiom; ideal for the "cultural references someone in 2026 won't know" goal → jewishencyclopedia.com / archive text
 
+### Phase 10 — World religions & comparative texts (apologetics reference)
+For apologetics / comparative work. Text only, English, public domain. The monumental
+umbrella source is **Max Müller's *Sacred Books of the East* (SBE)**, 50 vols, Oxford
+1879–1910 (all PD); plus **sacred-texts.com** and Gutenberg.
+- **Islam:** The Qur'an — PD English: George Sale (1734); J. M. Rodwell (1861); E. H. Palmer
+  (SBE 6 & 9, 1880); Muhammad Ali (1917). ⚠ Pickthall (1930) is now US-PD as of 2026;
+  Yusuf Ali (1934) is NOT PD. ⚠ Major hadith collections (Bukhari, Muslim) survive mostly in
+  copyrighted modern translations — capture only if a confirmed PD English exists.
+- **Hinduism:** *Bhagavad Gita* (Edwin Arnold, *The Song Celestial*, 1885; Telang, SBE 8);
+  *The Upanishads* (Müller, SBE 1 & 15; R. E. Hume, *Thirteen Principal Upanishads*, 1921);
+  *Rig Veda* (Griffith, 1896); *Ramayana* (Griffith); *Mahabharata* (Ganguli/Roy, complete,
+  1883–96); *The Laws of Manu* (Bühler, SBE 25); *Vishnu Purana* (H. H. Wilson, 1840);
+  *Yoga Sutras / Raja Yoga* (Vivekananda, 1896).
+- **Buddhism:** *The Dhammapada* (Müller, SBE 10); *Buddhist Suttas* (Rhys Davids, SBE 11);
+  *The Jataka* (Cowell, 1895–1907); *The Questions of King Milinda* (Rhys Davids, SBE 35–36);
+  *Lotus Sutra / Saddharma-Pundarika* (Kern, SBE 21); *Buddhism in Translations* (H. C. Warren,
+  1896); *The Gospel of Buddha* (Paul Carus, 1894); *Buddhacarita / Life of Buddha* (Cowell,
+  SBE 49); *The Tibetan Book of the Dead* (Evans-Wentz, 1927, now US-PD).
+- **Cheap breadth from the same PD sources:** Confucian *Analects*, *Mencius*, *Doctrine of the
+  Mean*, and the *Tao Te Ching* (James Legge, SBE); the Zoroastrian *Avesta* (SBE); the
+  *Book of Mormon* (1830).
+
+Store under a new top-level division `world-religions/<tradition>/<author-or-work>/`. Primary
+sources: sacred-texts.com and archive.org (text), Gutenberg, and the SBE set.
+
 ## Run order & mandate
 
 - **Mandate:** capture aggressively — local storage is abundant and cheap relative to the value
   of the material and of time; token costs may rise, so build the corpus now. **Text only**
   (no image scans). Keep going phase to phase without stopping for confirmation between phases.
 - **Run order:** Phase 1 (Puritan/Reformed) → **Phase 9 (Jewish/Second-Temple, elevated)** →
-  Phase 2 → 3 → 4 → 5 → 6 → 8 → 7. Adjust as sources dictate; log deviations.
+  Phase 2 → 3 → 4 → 5 → 6 → 8 → 7 → **Phase 10 (world religions, apologetics)**. Adjust as
+  sources dictate; log deviations.
 - **Execution:** Sonnet worker agents per author-cluster write only their own author
   directories and return a manifest; the orchestrator (Opus) consolidates `SOURCES.md`,
   `CHECKSUMS.sha256`, and `CATALOG.tsv`, spot-checks, and commits per phase.

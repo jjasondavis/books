@@ -174,6 +174,20 @@ Legend: **[HAVE]** already in the vault · ⚠ verify edition/translation date �
 
 ---
 
+### K. World religions & comparative texts (apologetics, PD)
+For comparative/apologetics work — English public-domain primary texts, chiefly from **Max
+Müller's *Sacred Books of the East*** (50 vols, 1879–1910) via sacred-texts.com / archive.org.
+- **Islam:** Qur'an — Sale (1734), Rodwell (1861), Palmer (1880, SBE), Muhammad Ali (1917);
+  ⚠ Pickthall 1930 now US-PD, Yusuf Ali 1934 not PD; hadith mostly copyrighted.
+- **Hinduism:** *Bhagavad Gita* (Arnold; Telang), *Upanishads* (Müller; Hume 1921), *Rig Veda*
+  (Griffith), *Ramayana* (Griffith), *Mahabharata* (Ganguli/Roy), *Laws of Manu* (Bühler),
+  *Vishnu Purana* (Wilson), *Yoga Sutras / Raja Yoga* (Vivekananda).
+- **Buddhism:** *Dhammapada* (Müller), *Buddhist Suttas* (Rhys Davids), *Jataka* (Cowell),
+  *Questions of King Milinda*, *Lotus Sutra* (Kern), *Buddhism in Translations* (Warren),
+  *Gospel of Buddha* (Carus), *Life of Buddha* (Cowell), *Tibetan Book of the Dead* (1927).
+- **Breadth:** Confucian *Analects*/*Mencius* & *Tao Te Ching* (Legge); Zoroastrian *Avesta*;
+  *Book of Mormon* (1830). Captured under `world-religions/<tradition>/`.
+
 ## Proposed phased capture (each phase = its own commit + SOURCES/CHECKSUMS update)
 
 1. **Christian core, Puritan/Reformed** ★ — Owen, Baxter, Bunyan, Watson, Sibbes, Charnock,
