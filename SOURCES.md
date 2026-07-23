@@ -193,6 +193,31 @@ to `owned-library/lead-the-field/reading/lead-the-field.md`. Owned-copyright, tr
 research briefs (attitude/goals/"we become what we think about," and the "Let's Talk About Money"
 message) — a direct descendant of the New Thought line (Allen → Nightingale → the modern shelf).
 
+## Fundamentalist–modernist "diluted gospel" cluster (added 2026-07-23)
+
+At the user's request (interest: how the message of salvation has been watered down over the past
+150–200 years), the on-theme **public-domain** anchors of the fundamentalist–modernist controversy,
+via archive.org OCR (CCEL is SNI-blocked from this machine; archive.org reachable via the 8.8.8.8
+DNS-override helper). All four are OCR — flagged `OCR-verify` in `CATALOG.tsv` and their reading-copy
+headers; verify wording before verbatim quotation.
+
+- **J. Gresham Machen, *Christianity and Liberalism*** (1923; `christianitylibe00mach_0`) — the flagship
+  argument that theological liberalism is not a variant of Christianity but a different religion. The
+  book the user named. → `tradition/j-gresham-machen/`
+- **The Fundamentals: A Testimony to the Truth** (orig. 1910–1915; complete **4-volume** reprint,
+  `fundamentalstest00torr`, ~60k lines) — the ~90-essay manifesto of the movement against modernism.
+  → `tradition/the-fundamentals/`
+- **B. B. Warfield, *The Plan of Salvation*** (1915; `plansalvationfi00warfgoog`) — Princeton defense of
+  the Reformed soteriology against sentimental/naturalist dilution. → `tradition/bb-warfield/`
+- **Arthur W. Pink, *The Sovereignty of God*** (1918 **first** edition — the public-domain one, not the
+  revised 1961; `sovereigntyofgod0000arth_y1k6`) — reasserts hard doctrine against the softened modern
+  gospel. → `tradition/aw-pink/`
+
+Already in the vault and directly relevant to this theme: **Finney, *Lectures on Revivals*** (the
+"new-measures" revivalism critics blame for the slide), **Spurgeon** (the 1887 "Down-Grade" alarm),
+**Ryle**, **Bonar**. Modern in-copyright treatments (Murray, Wells, Horton, C. Smith, Marsden, Noll,
+Bonhoeffer's "cheap grace") are listed as buy candidates in `books_to_purchase.md` Tier 4.
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
