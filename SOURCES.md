@@ -61,7 +61,7 @@ Post-Nicene Fathers). New Advent page presentation belongs to its host.
 | Gregory of Nyssa — *On Virginity* | New Advent /fathers/2907 | `patristics/gregory-of-nyssa/raw/new-advent/` + reading | NPNF 2.5, public domain. |
 | Ambrose — *Concerning Repentance*, Books I-II | New Advent /fathers/34061-34062 | `patristics/ambrose/raw/new-advent/` + reading | NPNF 2.10, public domain. |
 | Origen — *On Prayer* | https://ccel.org/ccel/origen/prayer/prayer | `patristics/origen/raw/ccel/on-prayer-curtis-ccel.txt` + reading | Trans. William A. Curtis; CCEL plain-text; public domain. (On Prayer is not in ANF.) |
-| Gregory the Great — *Moralia in Job* (Morals on the Book of Job), Books I-XXXV | https://www.lectionarycentral.com/gregorymoraliaindex.html | `patristics/gregory-the-great/raw/lectionarycentral/` | *Library of the Fathers* translation (Bliss/Marriott, Oxford, 1844-50), public domain. The bridge text from Cassian's eight thoughts to the Western seven deadly sins (Book XXXI). Raw-only this pass (Word-exported HTML; searchable; reading copies deferred). |
+| Gregory the Great — *Moralia in Job* (Morals on the Book of Job), Books I-XXXV | https://www.lectionarycentral.com/gregorymoraliaindex.html | `patristics/gregory-the-great/raw/lectionarycentral/` | *Library of the Fathers* translation (Bliss/Marriott, Oxford, 1844-50), public domain. The bridge text from Cassian's eight thoughts to the Western seven deadly sins (Book XXXI). Reading copies for all 35 books generated 2026-07-23 (extracted from the lectionarycentral HTML). |
 
 ## Added 2026-07-23 (Jewish / Second-Temple world — "what did the Jews know")
 
