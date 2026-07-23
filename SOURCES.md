@@ -76,6 +76,20 @@ All public-domain English text (no scans). Division: `jewish/`.
 | Pseudepigrapha — *The Book of Enoch*; Charles's *Apocrypha & Pseudepigrapha* vol. 2 | sacred-texts.com; archive.org (Charles, Oxford 1913) | `jewish/pseudepigrapha/` | public domain; the APOT vol. 2 file is archive.org **OCR — verify before quoting** |
 | The Targums of Onkelos & Jonathan (Pentateuch) | archive.org (Etheridge 1862) | `jewish/targums/` | public domain; archive.org **OCR — verify before quoting** |
 
+## Added 2026-07-23 (Phase 3 — Bibles & reference)
+
+All public-domain English text (no scans). Divisions: `scripture/`, `reference/`.
+
+| Item | Source | Local material | Rights |
+|---|---|---|---|
+| King James Version (whole Bible) | Project Gutenberg #10 | `scripture/kjv/` | Public domain |
+| Douay-Rheims (Challoner) — with Deuterocanon | Project Gutenberg #8300 | `scripture/douay-rheims/` | Public domain |
+| Matthew Henry — *Commentary on the Whole Bible* (complete, 6 vols) | CCEL | `reference/matthew-henry/` | Public domain (d. 1714) |
+| Jamieson-Fausset-Brown — *Commentary Critical and Explanatory* (complete) | CCEL | `reference/jfb/` | Public domain |
+| Albert Barnes — *Notes on the New Testament* (complete NT) | CCEL | `reference/barnes/` | Public domain (d. 1870) |
+| Eusebius — *Church History* (10 books + Martyrs of Palestine) | New Advent (NPNF 2.1) | `reference/eusebius/` | Public domain (McGiffert 1890) |
+| Philip Schaff — *History of the Christian Church* (complete, 8 vols) | CCEL | `reference/schaff/` | Public domain (d. 1893) |
+
 ## Added 2026-07-23 (Phase 2 — Evangelical & revival)
 
 All public-domain English text (no scans). Division: `tradition/`.
@@ -98,6 +112,12 @@ All public-domain English text (no scans). Division: `tradition/`.
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
 - **The Philokalia — English** (Priority 5) — the Palmer/Sherrard/Ware (Faber) English translation is copyrighted and is NOT captured; research-only. The public-domain **Greek** 1782 first edition WAS captured as a base text (see the Philokalia row above).
 - **John Climacus, English translation** — no public-domain English exists; the Greek PG 88 base text was captured instead (above). English wording must come from a future working translation or a rights-checked source.
+- **Additional PD Bibles — deferred** (2026-07-23): the ASV 1901, Young's Literal, Darby,
+  Webster's, and Geneva 1599 are all public domain but NOT on Project Gutenberg; capture them
+  in a dedicated Bible-translations pass from eBible.org / gratis-bible (clean digital text).
+  Also deferred: original-language texts (Textus Receptus, Westcott-Hort, Nestle 1904,
+  Clementine Vulgate, Swete LXX) and the Strong's/Thayer's/BDB lexicons — SWORD/STEP-format,
+  a specialized pass. KJV + Douay-Rheims (captured) cover the Protestant + Catholic canons.
 - **Evangelical phase — deferred items** (2026-07-23, all PD, archive.org-only / no clean text yet):
   Spurgeon's *Lectures to My Students* (4 series; only messy per-series archive OCR),
   *John Ploughman's Talk*, and *The Treasury of David* (7 vols; CCEL hosts it image-only) —
