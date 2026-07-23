@@ -63,9 +63,28 @@ Post-Nicene Fathers). New Advent page presentation belongs to its host.
 | Origen — *On Prayer* | https://ccel.org/ccel/origen/prayer/prayer | `patristics/origen/raw/ccel/on-prayer-curtis-ccel.txt` + reading | Trans. William A. Curtis; CCEL plain-text; public domain. (On Prayer is not in ANF.) |
 | Gregory the Great — *Moralia in Job* (Morals on the Book of Job), Books I-XXXV | https://www.lectionarycentral.com/gregorymoraliaindex.html | `patristics/gregory-the-great/raw/lectionarycentral/` | *Library of the Fathers* translation (Bliss/Marriott, Oxford, 1844-50), public domain. The bridge text from Cassian's eight thoughts to the Western seven deadly sins (Book XXXI). Raw-only this pass (Word-exported HTML; searchable; reading copies deferred). |
 
+## Added 2026-07-23 (Jewish / Second-Temple world — "what did the Jews know")
+
+All public-domain English text (no scans). Division: `jewish/`.
+
+| Collection | Source | Local material | Edition / rights |
+|---|---|---|---|
+| Josephus — *Antiquities*, *Wars*, *Against Apion*, *Life* | Project Gutenberg #2848/2850/2849/2846 | `jewish/josephus/` | William Whiston translation (1737); public domain |
+| Philo of Alexandria — *The Works of Philo Judaeus* | CCEL | `jewish/philo/` | C. D. Yonge translation (1854); public domain |
+| The Apocrypha (Deuterocanon) | Project Gutenberg #124 | `jewish/apocrypha/` | KJV 1611; public domain |
+| Alfred Edersheim — *Life and Times of Jesus the Messiah*, *Sketches of Jewish Social Life*, *The Temple* | CCEL | `jewish/edersheim/` | public domain (Edersheim d. 1889) |
+| Pseudepigrapha — *The Book of Enoch*; Charles's *Apocrypha & Pseudepigrapha* vol. 2 | sacred-texts.com; archive.org (Charles, Oxford 1913) | `jewish/pseudepigrapha/` | public domain; the APOT vol. 2 file is archive.org **OCR — verify before quoting** |
+| The Targums of Onkelos & Jonathan (Pentateuch) | archive.org (Etheridge 1862) | `jewish/targums/` | public domain; archive.org **OCR — verify before quoting** |
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
 - **The Philokalia — English** (Priority 5) — the Palmer/Sherrard/Ware (Faber) English translation is copyrighted and is NOT captured; research-only. The public-domain **Greek** 1782 first edition WAS captured as a base text (see the Philokalia row above).
 - **John Climacus, English translation** — no public-domain English exists; the Greek PG 88 base text was captured instead (above). English wording must come from a future working translation or a rights-checked source.
+- **Jewish phase — deferred items** (2026-07-23): the **Rodkinson Babylonian Talmud** (public
+  domain, but only as ~124 messy multi-edition archive.org OCR scans or the rate-limited
+  sacred-texts text — needs a dedicated careful pass, not a quick grab); **Edersheim's *Bible
+  History: Old Testament*** (not on CCEL; get from Gutenberg/archive later); **Schürer's
+  *History of the Jewish People*** and the **Jewish Encyclopedia (1901–06)** (archive.org /
+  jewishencyclopedia.com — the latter a large structured reference for a scoped pass). All PD.
 - **Basil of Caesarea — homilies *Against Anger*, *On Envy*, *On Humility*, *On Fasting*** (2026-07-23) — NOT captured. These per-passion homilies survive in English only in copyrighted modern translations (Fathers of the Church, *Ascetical Works* / *On Social Justice*); NPNF 2.8 Basil contains the Hexaemeron, *On the Spirit*, and Letters, but not these homilies. No public-domain English witness found. Recorded gap.
