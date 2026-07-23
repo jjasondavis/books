@@ -1,0 +1,16514 @@
+<!-- Clean reading copy from archive.org OCR of a public-domain scan. Uncorrected OCR: verify against the scan before verbatim quotation. -->
+Source URL: https://archive.org/details/gospelmysteryofs0000revw
+Edition: Walter Marshall, The Gospel Mystery of Sanctification (1692); archive.org OCR of an 1840 edition; public domain; OCR — verify before quoting.
+
+Sn ennpaneemmemmernnnt ae 
+
+Sa errr ganas foueimenie (ee Tan 
+—————— ee Sr eerie esesane seman oe 
+
+= SSeS ete dnssaeeemeeeeee eT TAP aeancenee per — 
+= = ea . A Nea se 
+== = a SS ie 
+
+
+a 
+———— 
+— ener. 
+—— a 
+- 
+a 
+eye ee pba emens nye 
+Sn NR cee — 
+——— hoo = 
+er ae 
+Rn atm meinen oe 
+a * 
+Se - 
+ee = 5 
+re ee 
+ee ee. —_— 
+ee —-. 
+— " 
+pr eneueee-ssealiinie =— 
+~— — = 
+——— — im 
+ee ee = 
+
+
+ALISHAAINA NVILSIMHS 
+
+
+IIVNNIONID 
+
+
+[N09 xxl aq 
+
+
+jo Areiqiy [euossed oy} WOT 
+
+
+" SANCTIFICATION, © 
+
+
+OPENED IN 
+
+
+Sundry Practical Directions, ‘ 
+
+
+» 
+
+
+_~i&BY THE REV. WALTER MARSHALL, 
+
+
+Formerly Fellow of New College, Oxford, nnd afterwards Fellow 
+of Winchester College. 
+
+
+G. M. Elliott Library 
+Cincinnati Christian University 
+
+
+~~~-~2700-Glenway Ave 
+Cincinnati, OH idee ‘ 
+
+
+| 
+
+
+GLASGOW: 
+
+
+RECOMMENDATION 
+
+
+PREFIXED TO 
+
+
+? THE SIXTH EDITION. 
+
+
+‘To THE BooKsELLER, 
+Sir, 
+
+
+Tr gives me no small pleasure to hear that you 
+are going to re-publish Mr. Marshall’s Gospel Mystery 
+of Sanctification.* The instruction, consolation, and 
+spiritual improvement, which I myself have received 
+Bor that solid and judicious Treatise, excite in me a 
+pleasing hope that it may be equally instructive and 
+advantageous to others. 
+
+: The recommendation of it in Theron and Aspasio, 
+| with which you propose to introduce the new edition, 
+is at your service. To this proposal I consent the 
+. more readily, because Mr. Marshall's book may be 
+» looked upon as no improper supplement to those 
+Dialogues and Letters. The author of which intended 
+to have closed his plan with a Dissertation on Prac- 
+tical Holiness, or Kvangelical Obedience. But this 
+
+
+under his hands, far beyond his expectation. 
+
+_ He has been advised once more to resume the 
+pen, and treat that grand subject with some degree 
+of copiousness and particularity. If he should be 
+
+
+tis said by the very best judge of propriety. de sacred writing, 
+t is the mystery of godliness! 1 Tim. iii. 36. "This passage, I pre- 
+
+fr.. Marshall had in his view, when he pitched upon a ?it/e for 
+id this passage will render it superior to all censure, un- 
+bly just and proper, i 
+
+
+iv 
+
+
+enabled to execute what he acknowledges to be ex- 
+po the doctrines already discussed, and the privi- 
+eges already displayed, will furnish the principal 
+materials for his Essay. Justification, free justifi- 
+cation, through the Righteousness of Jesus’ Christ, is 
+the sacred fleece from which he would spin his thread, 
+and weave his garment, agreeably to that important 
+text, ye are bought with a price, therefore glorif. 
+God.*—If Providence, in all things wise, and in all 
+things gracious, should see fit to withhold either time 
+or ability for the accomplishment of my purpose; I 
+do, by these presents, nominate and depute Mx. Mar- 
+swat to supply my lack of service. 
+
+Mr. Marshall expresses my thoughts ; he proseeutes 
+my scheme ; and not only pursues the same end, but 
+proceeds in the same way. I shall therefore rejoice 
+in the prospect of having the Gospel Mystery of Sane- 
+tification stand as a fourth volume to Theron and 
+Aspasio. Might I be allowed, without the charge of 
+irreverence, to use the beautiful images of an inspired 
+writer, I would with great satisfaction say, if this he a 
+wall, that will build upon it a palace of ivory; if this 
+be a door, that will enclose it with boards of cedar.t 
+
+Mr. Marshall represents true holiness as consisting 
+in the love of God, and the love of man ;—that un- 
+forced, unfeigned, and most rational love of God, 
+which arises from a discovery of his unspeakable 
+mercy and infinite kindness to us; that cordial, dis- 
+interested, and universal love of man, which flows 
+from the possession of a satisfactory and Weed 
+portion in the Lord Jehovah. These duties of love 
+to our Creator and: our fellow-creatures, are regarded 
+as the sum and substance of the moral law; as the 
+fountain from which all other good works and eve: 
+instance of acceptable obedience flow. Holiness, thus 
+stated, is considered, not as the means, but as a pa 
+a distinguished part of our salvation ; or rather, 
+
+
+* 1 Cor, vi. 20. + Cant, viii 
+
+
+’ very central point, in which all the means of grace, 
+and all the ordinances of religion, terminate. 
+Man, in a natural state, is absolutely incapable of 
+penne this holiness, or enjoying this happiness.— 
+f you ask what is meant by a natural state? It is 
+that state in which we are under the guilt of sin, and 
+the curse of the law; are subject to the power of 
+Satan, and influenced by evil propensities. From 
+this state none are released but by being united to 
+Christ ; or, as the Apostle speaks, by Christ dwelling 
+in the heart through faith.* 
+Faith, according to Mr. Marshall, is a real persua- 
+sion, that God is pleased to give Christ and his salva- 
+tion ; to give him frecly, without any recommending 
+qualifications, or peremptory conditions ; to give him, 
+not to some sinners only, but to me a sinner in parti- 
+cular.—It is likewise an actual receiving of Christ, 
+with all the benefits, privileges, and promises of the 
+gospel, in pursuance of the divine gift, and on no 
+other warrant than the divine grant. This last office 
+- is particularly insisted on, as an essential part, or as 
+the principal act of faith ; to perform which, there is 
+no rational, no possible way, (our Author declares) 
+unless we do, in some measure, persuade and assure 
+ourselves,t that Christ and his salvation are ours, 
+As faith is such a persuasion of the heart, and such 
+- areception of Christ, it assures the soul of salvation 
+by its own act; antecedent to all reflection on its 
+
+
+* Eph. iii. 17. 
+
+_. + It is not, by this expression, affirmed or insinuated, that we are 
+able to produce faith in ourselves, by any power of our own. This 
+self-sufficiency the Author has professedly and frequently disclaimed ; 
+asserting “that the Spirit of God habitually disposes and inclines our 
+hearts to a right performance of this most important act.’’ This 
+manner of speaking is used, I imagine, for two reasons. To point out 
+the first and chief work, which we are to be doing incessantly and 
+assiduously, till our Lordcome. ‘To remind us that we must not ex- 
+have faith wrought in us, by some fatality of supernatural 
+without any application or endeavour of our own; but that 
+make it our diligent endeavour, and our daily business, to 
+Christ. We must labour to enter into this rest, and shew 
+the full assurance of hope. 
+
+
+A2 
+
+
+vi 
+
+
+fruits or effects, on marks oy evidence. It assures the 
+soul of acquittance from guilt and of reconciliation to _ 
+God ; of a title to the everlasting inheritance, and of 
+grace sufficient for every case of need. By the exer- 
+cise of this faith, and the enjoyment of these blessings, 
+we are sanctified. Conscience is pacified, and the 
+heart purified. We are delivered from the dominion 
+of sin; disposed to holy tempers, and furnished for 
+an holy practice. 
+
+Here, apprehend, our Author will appear singular. 
+This is the place in which he seems to go quite out of 
+the common road. The generality of serious people 
+look upon these unspeakable blessings as the reward 
+of holiness; to be received after we have sincerely ~ 
+practised universal holiness; not as necessary p7e- 
+viously necessary, to perform any act of true holiness. 
+This is the stumbling-block, which our legal minds, 
+dim with prejudice, and swollen with pride, will 
+hardly get over.\ However, these endowments of our 
+new state are, in our Author’s opinion, the effectual, 
+and the only effectual expedient, to produce sanctifi- 
+cation, They are the very method which the Eternal 
+Spirit has ordained for our bringing forth those fruits 
+of righteousness, which are by Jesus Christ unto the 
+glory and praise of God.* Whereas, if there be any 
+appearances of virtue, or any effects of obedience, 
+which spring not from these motives and means of 
+practice, Mr. Marshall treats them as “reprobate 
+silver.” He cannot allow them the character of 
+Gospel holiness, ; 
+
+This is the plan, and these are the leading senti- 
+ments of the ensuing Treatise. To establish or defend 
+them is not my aim; this is attempted, and I think 
+
+
+executed in the work itself. My aim is, only to ex- — 
+
+
+hibit the most distinguishing principles in one shor 
+sketch, and clear point of view, that the read aeey 
+the more easily remember them, and, by Vy 
+
+
+* Phil. i. 11. 
+
+
+_ enter the more perfectly imto the writer’s meaning, 
+_ Let him that is spiritual,* judge, and reject, or admit, 
+as each tenet shall appear to correspond, or disagree 
+_ with the infallible Word. Only let candour, not 
+rigour fill the chair, and interpret an unguarded ex- 
+pression, or a seemingly inconsistent sentence, by the 
+general tenour of the discourse. 
+
+We are not to expect much pathos of address, or 
+any delicacy of composition. Here the Gospel dia- 
+mond is set, not in gold, but in steel ; not where it 
+ay rey the most sprightly beam, or pour a flood of 
+brillianey, but where it may do the most signal ser- 
+vice, and afford a fund of usefulness. Neither is this 
+_ book so particularly calculated for careless, insensible 
+
+sinners, as for those who are awakened into a solici- 
+_ tous attention to their everlasting interests ; who are 
+earnestly enquiring with the Phillipian Jailor, What 
+shall I do to be saved ?+ Or passionately crying, in the 
+_ language of the Apostle, O wretched man that I am! 
+_ who shall deliver me from the body of this death !} 
+- If there be any such, and no doubt there are many 
+in the Christian world, I would say with regard to 
+them, as the Israelitish captive said, concerning her 
+illustrious but afflicted master, would God my master 
+were with the prophet that is in Samaria, for he 
+would recover him from his leprosy.§ O that such 
+ersons were acquainted with the doctrines, and in- 
+Huenced by the directions contained in this Treatise ! 
+They would, under the Divine blessing, recover them 
+from their distress, and restore them to tranquillity ; 
+they would comfort their hearts, and thereby estab- 
+lish them in every good word and wort 
+But I am going to anticipate what the following 
+tract speaks. 1 shall therefore only add my hearty 
+
+that you may meet with encouragement and 
+ss in the publication of this truly valuable piece ; 
+or, ii. 15. ft Acts xvi. 30. t Rom. vii. 24. 
+§ 2 Kings y. 3, || 2 Thess, xi, 17, 
+
+’ hi 
+
+
+vili 
+
+
+since there is, in this instance, an evident connexion 
+between your private interest and the general good. 
+L think, you may promise yourself the approbation 
+and acceptance of the public; as you will assuredly 
+have all support and assistance, that can be given by, 
+
+
+Sir, 
+Your humble Servant, 
+JAMES HERVEY. 
+
+
+Weston Favel, near Northampton, 
+5th Noy. 1756. 
+
+
+“Tt is with great pleasure, and without any diffi- 
+dence, that I refer my readers to Mr. Marshall’s 
+Treatise on Sanctification ; which I shall not recom- 
+mend in the style of a critic, nor like a person of 
+taste, but with all the simplicity of the weakest 
+Christian ; I mean from my own experience. It has 
+been made one of the most useful books to my heart. 
+I scarce ever fail to receive spiritual consolation and 
+
+
+strength from the perusal of it. And was I to be 
+
+
+banished into some desolate Island, possessed only of 
+two books, besides my Bible, this should be one of 
+the two, perhaps the first that I would choose. 
+
+Should any person, hitherto a stranger to the work, 
+purchase it on this recommendation, I must desire to 
+suggest one caution ; that he be not surprised, if, in 
+the beginning, he meets with something new, and 
+quite out of the common road ; or, if surprised, that 
+he would not be offended, but calmly and attentively 
+proceed. He will find the Author’s design opening 
+itself by degrees. He will discern more and more the 
+propriety of his method. And what might, at the 
+first view, appear like a stumbling-block, will prove 
+to be a fair and ample avenue—to the palace of truth 
+—to the temple of holiness—and to the bowers of 
+happiness.’”’ 
+
+
+See the third edition of Harvey's Theron and Aspasio, vol, 3rd., 
+page 336, DR: 
+
+
+ix 
+
+
+To the former editions were prefixed several re- 
+
+~ commendations. 
+
+The first of them is signed by N. N. and dated Jul 
+
+_ 21, 1692, importing, “That Mr. Walter Marshall, 
+(the Author of these Directions,) was educated in 
+New College, Oxford, was a Fellow of the said 
+College, and afterwards chosen a Fellow of the 
+College at Winchester. From thence he removed to 
+Gosport in Hampshire-—Having been much exer- 
+cised, and for many years, with troubled thoughts ; 
+he had, by many mortifying methods, sought peace 
+of conscience ; but, notwithstanding all, his troubles 
+still increased. Whereupon he consulted several 
+eminent Divines, who told him, he understood the 
+Seriptures too legally. Upon giving one of them an 
+account of the state of his soul, and particularizing 
+his sins, which lay heavy on his conscience, the 
+
+_ Divine told him he had forgot to mention the greatest 
+_ sin of all, the sin of unbelief, in not believing on the 
+
+_ Lord Jesus Christ for remission of his sins and sancti- 
+fication of his nature. Hereupon he set himself to 
+studying and preaching Christ, and attained to emi- 
+
+. nent Lotions, and great peace of conscience.” 
+
+Mr. Marshall’s dying words were, the wages of sin 
+is death, but the gift of God is eternal life through 
+Jesus Christ our Lord; “having just before said to 
+those about him, that he now died in the full per- 
+suasion of the truth, and in the comfort of that doc- 
+trine which he had preached, The sum of which is 
+contained in this Treatise on Sanctification; where 
+we have the profound experience of a studious and 
+
+_ holy man, coming from his very heart. The whole 
+ savours of no party, nor prosecutes any narrow design ; 
+but aims at the cultivation of holiness, and the estab- 
+lishment of happiness.” 
+
+_ A new recommendation was prefixed to the edition 
+
+hed: in 1733, and signed by six judicious Mini- 
+
+, importing, “That they had perused the book 
+
+th g eat edification and no small pleasure ; that they 
+
+
+yt! 
+
+
+\ Ae av + 7 
+
+
+x ae 
+
+
+judged the publication very seasonable for promoting 
+practical religion and godliness, and for giving a just 
+view of the great difference there is between the mo- 
+rality of the heathens, (though adorned with the finest 
+touches of human rhetoric) and true gospel holiness, 
+without which, St. Paul has declared, no man shall 
+see the Lord.”—This their united opinion is corrobo- 
+rated by the testimony of Mr. Robert Trail, of London. 
+
+cod think (says that evangelical writer) Mr. Mar- 
+shall’s Treatise on the Mystery of Santification, by 
+faith in Jesus Christ, is such a vindication and con- 
+firmation of that Protestant doctrine, against which 
+I fear no effectual opposition, Myr. Marshall was a 
+holy and retired man, known to the world only by 
+this book, which is deep, practical, and well connected 
+—requiring a more than ordinary attention to read it 
+with profit. And if it be attentively used, I look | 
+upon it to be one of the most useful books the public 
+has seen for many years. Its excellence is, that it 
+leads the serious reader directly to Jesus Christ, 
+cutting the sinews and overturning the foundations 
+of the new and fashionable divinity, by the same 
+argument of Gospel holiness by which many attempt 
+to overturn the old and scriptural baie. ; 
+
+Another recommendation of this Author by Mr. 
+Gib of Edinburgh, was prefixed to the edition, pub- 
+lished Dec. 21st, 1744, wherein he observes, ‘ That 
+among the professors of a religious course, there are 
+two sorts; the first of them still adhere to a legal 
+scheme of holiness, vainly making that, and not 
+Christ Jesus, the reason of their peace and hope— 
+while the other sort are reconciled to the evangelical 
+scheme of holiness, making holiness and obedience 
+the result of their peace and hope, as already founded 
+on Christ, freely offered to them in the gospel. 
+
+The correction which the first of these sorts ought 
+to have, and the instruction in righteousness which — 
+both of them need, may be had in a peculiar manner 
+from this book; and for these purposes t 
+
+
+earnestly entreated to read it, not in parts but 
+completely, and in the same order in which it is 
+written: that so the legal readers may not, from 
+looking first into’ the latter part, throw it aside as 
+Antinomian ; nor the evangelical readers, from look- 
+ing only into the former part, throw it aside as too 
+legal—tIn short, I despair that any should reap 
+true benefit from a partial, or confused reading; 
+but firmly believe, that from an attentive and regular 
+perusal, excellent fruit may “be gathered; since no 
+Author appears to be better acquainted with the 
+‘state and working of the human heart, or with the 
+peculiarities and riches of the Christian dispensation,” 
+
+
+TEXTS OF SCRIPTURE, 
+
+
+MORE OR LESS~ 
+
+
+ILLUSTRATED IN THIS WORK, 
+
+
+Genesis ii. 17. 
+Job i. 5. 
+
+Eccles. vii. 16, 29. 
+Isaiah xxxyiii. 3. 
+— 1. 10. 
+Jerem. xxxi. 29, 30. 
+Hosea xi. 4. 
+Matt. v. 12, 
+
+vi. 12, 15, 
+ix. 14,15. 
+Mark i. 15. 
+
+Luke xiii. 24. 
+——— xiv. 23. 
+John i. 16. 
+
+Rom. i. 5. 
+
+ii. 6. 
+—— iii. 25. 
+
+iv. 5. 
+
+vii. 1. 
+
+
+——_—— 6. 
+
+
+vill. 3. 
+
+
+Rom. vii. 8. 
+——-- 23, 
+1 Cor. xi. 29. 
+2 Cor. viii. 12. 
+—— xiii. 5. 
+Ephes. i. 3. 
+
+
+—— vi. 18. 
+
+1 Tim. i. 8. 
+
+ii. 8. 
+
+Heb. x. 10, 14, 18. 
+————_ 22. 
+
+p stot (5 
+James ii, 14, 15. 
+——— - 24. 
+
+1 John iii. 9. 
+Rey. xxii, 12. 
+
+
+THE 
+
+
+GOSPEL MYSTERY OF SANCTIFICATION, 
+
+
+DIRECTION I. 
+
+
+THAT we may acceptably perform the duties of holiness and righteous- 
+ness required in the Jaw, our first work is, to learn the powerful 
+and effectual means whereby we may attain to so great an end. 
+
+
+EXPLICATION. 
+
+
+Tus direction may serve instead of a Preface, to pre- 
+_ pare the understanding and attention of the reader for 
+those that follow. And, 
+First, It acquainteth you with the great end for 
+_ which all those means are designed, that are the prin- 
+cipal subject to be here treated of. ‘The scope of all 
+is, to teach you how you may attain to that practice 
+and manner of life which we call holiness, righteous- 
+
+ness, or godliness, obedience, true religion; and which 
+God requireth of us in the law, particularly in the 
+_ moral law summed up in the Ten Commandments, 
+_ and more briefly in those two great commandments 
+
+
+14 THE GOSPEL MYSTERY 
+
+
+piety and charity, but in the holy thoughts, imagina- 
+tions, and affections of the soul, and chiefly im love ; 
+from whence all other good works must flow, or else 
+they are not acceptable to God: not only in refrain- 
+ing the execution of sinful lusts, but in longing and 
+delighting to do the will of God, and in a cheerful 
+obedience to God, without repining, fretting, grudg- 
+ing at any duty, as if it were a grievous yoke 
+burden to you. 
+
+Take notice farther, that the law which is your 
+mark, is exceeding bread,* and yet not the more 
+_ easy to be hit; because you must aim to hit it, in 
+every duty of it, with a performance of equal breadth, 
+or else you cannot hit it at all.t} The Lord is not at 
+all loved with that love that is due to him as lord of ~ 
+all, if he be not loved with all our heart, spirit, and 
+might. We are to love every thing in him, his jus- 
+tice, Loliness, sovereign authority, all-seeing eye, and 
+all his decrees, commands, judgments, and all his do- 
+ings. We are to love him not only better than other 
+things, but singly, as only good, the fountain of all 
+goodness; and to reject all fleshly and worldly en- | 
+joyments, even our own lives, as if we hated them, 
+when they stand in competition with our We eed 
+ot him, or our duty towards him. We must love him 
+so as to yield ourselves wholly up to his constant 
+service in all things, and to his disposal of us as our 
+absolute lord, whether it be for prosperity or adver- 
+sity, life or death. And for his sake, we are to love 
+our neighbour, even all men, whether they be friends © 
+or foes to us; and so do to them in all things that 
+concern their honour, life, chastity, worldly wealth, 
+credit, and content, whatever we would that men 
+sliould do to us in the like condition.[ Thisspiritual — 
+uniyersal obedience is the great end to the attamment 
+whereof I am directing you. And that you may1 
+
+
+id 
+* Psa, cxix. 96. 
+
+
+— =) 
+
+
+OF SANCTIFICATION. 15 
+
+
+_ reject mine enterprise as impossible, observe, that the 
+most I promise, is no more than an acceptable per- 
+formance of these duties of the law, such as our 
+gracious and merciful God will certainly delight in, 
+and be pleased with, during our state of imperfection 
+in this world, and such as will end in perfection of 
+holiness, and all happiness, in the world to come. 
+Before I proceed further, stay your thoughts a 
+while in the contemplation of the great dignity and 
+excelleney of these duties of the law,.that you may 
+aim at the performance of them as your end, with so 
+high an esteem as may cast an amiable lustre upon 
+the ensuing discovery of the means. The principal 
+duties of love to God above all, and to each other for 
+- his sake, from whence all the other duties flow, are so 
+excellent, that I cannot imagine any more noble work 
+for the holy angels in their glorious sphere, They 
+are the chief works for which we were at first framed 
+in the image of God, engraven upon man in the first 
+_ ereation, and for which that beautiful image is re- 
+ newed upon us in our new creation and sanctification 
+' by Jesus Christ, and shall be perfected in our glorifi- 
+cation, They are works which depend not merely on 
+the sovereignty of the will of God, to be commanded 
+or forbidden, or left indifferent, or changed, or abo- 
+lished at his pleasure, as other works that belong 
+either to the judaical or ceremonial law, or to the 
+means of salvation prescribed by the gospel ; but they 
+- are, in their own nature, holy, just, and good,* and 
+meet for us to perform, because of our natural relation 
+to our Creator and fellow-creatures; so that they 
+have an inseparable dependence upon the holiness of 
+_ the will of God, and an indispensable establishment 
+yy. They are works sufficient to render the 
+erformers holy in all manner of conversation, by the 
+ruits which they bring forth, if no other duties had 
+commanded; and by which the perfor- 
+
+
+_* Rom, vii. 12. 
+
+
+YO aa hae oe St ae 
+: ea ees 4 al 
+
+
+/ 
+16 THE GOSPEL MYSTERY Direct. I. 
+
+
+mance of all other duties is sufficiently established as. 
+soon as they are commanded, and without which 
+there can be no holiness of heart and life imagined ; 
+and to which it was one great honour of Mosaieal, 
+and is now of Evangelical ordinances, to be subservient 
+for the performance of them, as means, which shall 
+cease when their end, this never-failing charity, is 
+perfectly attained.* They are duties which we were 
+naturally obliged to, by that reason and understand- 
+ing which God gave to man at his first creation, to 
+discern what was just and meet for him to do, and to 
+which even heathens are still obliged, by the light of 
+nature, without any written law or supernatural 
+revelation.t Therefore they are called natural reli- 
+gion, and the law that requireth them, is called the 
+natural law, and also the moral law; because the 
+manners of all men, Infidels as well as Christians, 
+ought to be conformed to it, and if they haye been 
+fully conformable, they would not have come short 
+of eternal happiness, } under the penalty of the wrath 
+of God for the violation of it. This is the true mo- 
+rality which God approveth of, consisting in a con- | 
+formity of all our actions to.the moral law. And if 
+those that, in these days, do contend so highly for 
+morality, do understand no other than this, I dare 
+join with them in asserting that the best morally 
+
+onest man is the greatest saint; and that moralit; 
+is the principal part of the religion, and the test of all 
+other parts, without which faith is dead, and all other 
+religious performances are a vain shew, and mere hy- 
+ey: for the faithful and true witness hath testi- 
+ied concerning the two great moral commandments 
+of love to God and our neighbour, that there is none 
+other commandment greater than these, and that on 
+them hang: all the law and the prophets.§ 
+
+The second thing contained in this mtroductory 
+
+
+*1Cor. xiii, | Rom. ii. 14,15. ¢ Matt. v.19. Luke x. 27,28, 
+
+
+§ Matt. xxii, 6,38—40. Mark xii. 31. te 
+
+
+Direct. I. OF SANCTIFICATION. 17 
+
+
+_ direction, is the necessity of learning the powerful and 
+effectual means whereby this great and excellent end 
+may be accomplished, and of making this the first 
+work to be done, before we can expect success in any 
+attempt for the attainment of it. 
+
+This is an advertisement very needful; because 
+many are apt to skip over the lesson concerning the 
+means (that will fill up this whole Treatise) as super- 
+fluous and useless. en.once ther know the nature 
+and excellency of the duties of the law, they account 
+nothing wanting but diligent performances, and they 
+rush blindly upon immediate practice, making more 
+haste than good speed. They are quick in promising :* 
+All that the Lord hath spoken we will do, without sit- . 
+ting down and counting the cost. They look upon 
+holiness as only the means of an end, eternal salva- 
+tion ; not as an end itself requiring any great means 
+for attaining the practice of it. The.enquiry of most, 
+when they begin to have a sense of religion, is, What 
+oe thing shall I do that I may have eternal life ?+ 
+
+ot—How shall I be enabled to do any thing that is 
+good? Yea, many that are accounted powerful 
+preachers, spend all their zeal in the earnest pressing 
+the immediate practice of the law, without any dis- 
+covery of the effectual means of performance ; as if 
+the works of righteousness were like those servile 
+
+- employments, that need no skill and artifice at all, 
+
+but industry and activity. That you may not stum- 
+
+ble at the threshold of a religious life by this common 
+oversight, I shall endeavour to make you sensible that 
+it is not enough for you to know the matter and rea- 
+son of your duty, but that you are also to learn the 
+powerful and effectual means of performance, before 
+you can successfully apply yourselves to immediate 
+tice. And, for this end, I shall lay before you 
+the considerations following : 
+
+‘st, 
+
+
+18 THE GOSPEL MYSTERY Direct. I. 
+
+
+and ability to perform acceptably that holiness and 
+righteousness which the law requireth, and are dead 
+in trespasses and sins, and children of wrath, by the 
+sin of our first father Adam, as the scripture witnes- 
+seth.* This doctrine of original sin, which Protes- 
+tants generally profess, is a firm basis and ground-work 
+to the assertion now to be proved, and to many other 
+assertions in this whole discourse. If we believe it to 
+be true, we cannot rationally encourage ourselves to 
+attempt a holy practice, until we are acquainted with 
+some powerful and effectual means to enable us for it. 
+While man continued upright in the image of God, 
+as he was at first created,t he could do the will of 
+God sincerely as soon as he knew it; but when he 
+was fallen, he was quickly afraid, because of his na- 
+kedness, but could not help it all, until God disco- 
+vered to him the means of restoration.{[ Say to a 
+strong healthy servant, Go, and he goeth; Come, and 
+he cometh; Do this, and he doeth it; but a bed-rid- 
+den servant must know first how he may be enabled. 
+No doubt the fallen angels know the necessity of | 
+holiness, and-tremble at the guilt of their sin; but 
+they know of no means for them to attain to holiness 
+effectually, and so continue still in their wickedness, 
+It was in vain for Samson to say, I will go out as at 
+other times before, and shake myself, when he had 
+sinned away his strength.§ Men shew themselves 
+strangely forgetful or hypocritical, in professing 
+original sin in their prayers, catechisms, and confes- 
+sions of faith ; and yet urging upon themselves and 
+others, the practice of the law, without the consider- 
+ations of any strengthening, enlivening means ; as if 
+there were no want of ability, but only of activity. 
+Secondly. Those that doubt of, or deny the doctrine 
+of original sin, may all of them know concerning 
+
+
+* Rom. v. 12, 15, 18,19. Eph. ii. 1, 2,3. Rom. viii. 7, 8. 
+t Eccles. vii. 29. Gen. i. 27. t Gen, ili. 10, 
+§ Judges xvi. 20. i 
+
+
+a 
+
+
+. Direct. I. OF SANCTIFICATION. 19 
+
+
+themselves, (if their conscience be not blind) that the 
+exact justice of God is against them, and they are 
+_ under the curse of God, and sentence of death, for 
+their actual sins, if God should enter into judgment 
+_ with them.* Is it possible for a man that knoweth 
+_ this to be his case, and hath not learned any means 
+Of “pene out of it, to practise the law immediately, 
+to love God and every thing in him, his justice, holi- 
+ness, power, as well as his-merey, and to yield him- 
+~ self willingly to the disposal of God, though God 
+should inflict sudden death upon him? Is there no 
+skill or artifice at all required in this case, to encour- 
+e the fainting soul to the practice of universal 
+_ obedience? : 
+
+Thirdly, Though heathens might know much of 
+the work of the law by the common light of natural 
+reason and understanding,t yet the effectual means of 
+performance cannot be discovered by that light, and 
+
+_ therefore are wholly to be learned by the teaching of 
+_ supernatural revelation, For what is our natural 
+light, but some sparks and glimmerings of that which 
+was in Adam before the fall? And, even then, in its 
+brightest meridian, it was not sufficient to direct 
+_ Adam how to recover ability to walk holily, if once 
+he should lose it by sin; nor to assure him beforehand 
+_ that God would vouchsafe to him any means of re- 
+_ covery. God hath set nothing but death before his 
+eyes in case of transgression,} and therefore he hid 
+himself from God when the shame of his nakedness 
+appeared, as expecting no favour from him. We are 
+ihe sheep gone astray, and know not which way to 
+return, until we hear the Shepherd’s voice. Can 
+_ these dry bones live to God in holiness? O Lord, 
+thou knowest, and we cannot know it, except we 
+mn it of thee. 
+rthly. Sanctification, whereby our hearts and 
+
+
+. 
+
+
+i, 2, and iii. 9. Gal. ifi, 10, 7 Rom, li, 14, 
+a t Gen, ii, 17, } 
+
+
+ma aN 
+
+
+/ , * 
+
+
+20 TH E GOSPEL MYSTERY Direct, I 
+
+
+lives are comformed to the law, is a grace of God 
+communicated to us by means, as well as justification ; 
+and by means of teaching and learning something that 
+we cannot see without the word.* 'There®%are several 
+things pertaining to life and godliness, that are given 
+through knowledge.t There is a form fof doctrme 
+made use of by God, to make people free from sin 
+and servants of righteousness.{ And there are severa 
+i of the whole armour of God necessary to be 
+known and put on, that we may stand against sin and 
+Satan in the evil day.§ Shall we slight and overlook 
+the way of sanctification, when the learning the way 
+of justification had been accounted worth so many 
+elaborate treatises. 
+
+Fifthly, God hath given, in the holy seriptures, 
+by his inspiration, plentiful instruction in righteous- 
+ness, that we may be thoroughly furnished for every 
+good work,|| especially since the day-spring from on 
+high hath visited us, by the appearance of the Lord 
+Jesus Christ, to guide our feet in the way of peace. 
+If God condescend to us very low, to teach us this 
+way in the scriptures, and by Christ himself, it must 
+needs be greatly necessary for us to sit down at his 
+feet and learn it. E 
+
+Siathly, The way of attaining to godliness is so far 
+from being known without learning out of the holy 
+scriptures, that when it is here plainly revealed, we 
+cannot learn it so easily as the duties of the law; 
+which are known in part by the light of nature, and 
+therefore more easily assented to. It is the way 
+whereby the dead are brought to live unto God; and 
+therefore doubtless it is far above all the thoughts and 
+conjectures of human wisdom. It is the way to sal- 
+vation, wherein God will destroy the wisdom of the 
+wise, and bring to nothing the understanding of the 
+prudent, by discovering things by his spirit, that the 
+
+
+* Acts xxvi. 17, 18. + 2 Peter i. 2, 3. Pay 
+§ Eph. vi. 13, 2 Tim, ii}. 16,1%. 9 
+
+
+4 
+
+
+oor) Se rr ‘ hin 
+
+
+Direct. I, OF SANCTIFICATION. 21 
+
+
+natural man receiveth not: for they are foolishness to 
+him, neither can he know them, because they are 
+aoa discerned.* Without controversy, great is 
+the mystery of godliness.t The learning of it requir- 
+eth double work; because we must unlearn many of 
+our former deeply-rooted notions, and beccme fools 
+that we may be wise. We must pray earnestly to the 
+Lord to teach us, as well pee 3 the scriptures, that 
+we may get this knowledge. “O that my ways were 
+directed to keep thy statutes! Teach me, O Lord, 
+
+
+the way of thy statutes, and I shall keep it unto the 
+
+
+end.{ Teach me to do thy will.§ The Lord direct 
+your hearts unto the love of God.”|| Surely these 
+saints did not so much want teaching and direction 
+concerning the duties of the law to be done, as con- 
+tag the way and means whereby they might do 
+them. ‘ 
+
+Seventhly, The certain knowledge .of these power- 
+ful and effectual means, is of greatest importance and 
+necessity for our establishment in the true faith, and 
+
+_ ayoiding errors contrary thereto; for we cannot ra- 
+tionally doubt that the moral duties of love to God 
+and our neighbour are absolutely necessary to true 
+religion, so that it cannot subsist without them. And, 
+from this principle, we may firmly conclude, that 
+
+_ nothing repugnant to the practice of these holy duties 
+_ ought to be received as a point of faith delivered up to 
+us by the most holy God; and that whatsoever is 
+truly necessary, powerful, and effectual to bring us to 
+_ the practice of them, ought to be believed as proceed- 
+__ ing from God, because it hath the image of his holi- 
+hess and righteousness engraven upon it. ‘This is a 
+a ‘sure test and touchstone, which those that are seri- 
+_ ously religious will use, to try spirits and their doc- 
+trines, whether they be of God or no: and they 
+cannot rationally approve any doctrine as religious, 
+
+
+- 
+
+
+1 Cor, i. 19, 21, andii.14. 1 Tim. ii. 16. — t Psal. exix. 5, 33. 
+- § Peal. exliii. 10. || 2 Thess. iii, 8 
+
+
+22 THE GOSPEL MYSTERY = —-_ Diveet. I. 
+
+
+that is not according to godliness.* By this touch- 
+stone Christ proveth his doctrine to be of God, be- 
+cause therein he secketh the glory of God.f And he 
+teacheth us to know false prophets by their fruits, 
+wherein the fruits which their doctrine tendeth unto, 
+are especially to be considered. Hence it appeareth 
+
+
+that, until we know what are the effectual means of ~ 
+
+
+holiness, and what not, we want a necessary touch- 
+stone of divine truth, and may be easily deceived by 
+false doctrine, or brought to live in mere suspense 
+concerning the truth of any religion, like the seekers, 
+And, if you mistake, and think those means to be 
+effectual that are not, and those that are effectual to 
+be weak, or of a contrary effect, your. error in this 
+
+
+will be a false touchstone to try other doctrines, ~ 
+
+
+whereby you will readily approve of errors and refuse 
+the truth; which hath been a pernicious occasion of 
+
+
+many errors in religion in late days. Get but a true — 
+
+
+touchstone, by learning this lesson, and you will be 
+able to try the various doctrines of Protestants, Pa- 
+pists, Arminians, Socinians, Antinomians, Quakers; 
+and to discover the truth, and cleave to it, with much 
+satisfaction to your judgment, amongst all the jang- 
+lings and controversies of these times. Hereby you 
+may discover whether the Protestant religion estab- 
+lished among us, have in it any sinews of Antinomi- 
+anism ; whether it be guilty of any insufferable defect 
+in practical principles, and deserves to be altered and 
+turned almost upside down, with new doctrines and 
+methods; as some learned men in late times have 
+judged by their touchstones. 
+
+
+Eighthly, It is also of great importance and necessity — 
+
+
+for our establishment in holy practice ; for we cannot 
+apply ourselves to the practice of holiness with hope 
+of success, except we have some faith concerning the 
+divine assistance, which we have no ground to expect, 
+
+
+if we use not such means as God hath appointed to — 
+
+
+*1 Tim. vi.2 John vii. 17,18. # Matt. vii, 3 
+
+
+Direct. I. OF SANCTIFICATION. 23 
+
+
+work by. “God mecteth them that remember him 
+in his own ways,* and makes a breach upon them 
+that seek him not after the due order.”’*+ He hath 
+chosen and ordained such means of sanctification and 
+salvation as ave for his own glory, and those only he 
+blesseth to us, and he crowneth no man that striveth, 
+except he strive lawfully.{ Experience sheweth 
+plentifully, both of heathens and Christians, how per- 
+hicious ignorance, or mistaking of these effectual 
+means, is to a holy practice. ~ The heathens generally 
+fell short of an acceptable performance of those duties 
+of the law which they knew, because of their ignorance 
+int his point. (1) Many Christians content themselves 
+with external performances, because they never knew 
+how they might attain to spiritual service. (2) And 
+many reject the way of holiness as austere and un- 
+pleasant, because they know not how to cut off a 
+right-hand, or pluck outa right eye, without intoler- 
+able pain ; whereas they would find the ways of wis- 
+dom i they knew them) to be ways of pleasantness, 
+and all her paths to be peace.§ This occasioneth the 
+
+
+__ putting off repentance from time to time, as an uncouth 
+
+
+| 
+
+
+¥ 
+
+
+thing. (3) Many others set upon the practice of 
+holiness with a fervent zeal, and run very fast ; but 
+tread not a step in the right way ; and finding them- 
+selves fequent’: disappointed and overcome by their 
+lusts, they at ibak give over the work, and turn to 
+wallow again in the mire: which bath occasioned 
+several treatises, to shew how far a reprobate may go 
+in the way of religion ; whereby many weak saints 
+are discouraged, accounting that these reprobates 
+have gone further than themselves; whereas most of 
+them never knew the right way, nor trod one ste 
+
+aright in it—for few there he that find it.|| (4) Some 
+of these ignorant zealots doinhumanly macerate their 
+
+
+bodies with fasting and other austerities, to kill their 
+
+
+' - * Isa, Ixiy. 5. - #1 Chron. xy. 2. $2 Tim. ii. 5, 
+
+
+Fea.ee § Prov. iii. 17. || Matt. vii. 
+
+
+o 
+
+
+24 THE GOSPEL MYSTERY Direct. IT. 
+
+
+lusts ; and when they see their Insts are still too hard 
+for them, they fall into despair, and are driven, by 
+horror of conscience, to make away with themselves 
+wickedly, to the scandal of religion. Peradventure 
+God may bless my discovery of the powerful means 
+of holiness so far, as to save some one or other from 
+killing themselves. And such a fruit as this would 
+countervail my labour; though I hope God will en- 
+
+
+large the hearts of many by it, to run with great: 
+
+
+cheerfulness, joy, and thanksgiving in the way of his 
+commandments, 
+
+
+DIRECTION Il. 
+
+
+Several endowments and qualifications are necessary to enable us for 
+the immediate practice of the law. Particularly we must have an 
+inclination and propensity of our hearts thereunto; and therefore 
+we must be well persuaded of our reconciliation with God, and of 
+our future enjoyment of the everlasting heavenly happiness, and of 
+sufficient strength both to will and perform all duties acceptably, 
+until we come to the enjoyment of that happiness. 
+
+
+EXPLICATION, 
+
+
+Tosz means that are next to the attainment of the 
+great end aimed at, are first to be discovered, that we 
+may learn how to get them by other means expressed 
+in the following directions. ‘Therefore I have named 
+here several qualifications and endowments that are 
+necessary to make up that holy frame and state of 
+the soul, whereby it is furnished and enabled to prac- 
+tice the law immediately; and that not only in the 
+beginning, but in the continuation of that practice. 
+And therefore, note diligently that these endowments 
+must continue in us during the present life, or else 
+our ability for a holy life will be lost ; and they must 
+be before practice, not in any distance of time, but 
+only as the cause is before the effect. I do not say, 
+that I have named particularly all such necessary 
+
+
+ee 
+
+
+bo 
+Sr 
+
+
+qualifications ; but this much I dare say, that he that 
+gaineth these, may by the same means gain any other 
+that should be ranked with them. And this is a 
+matter worthy of our serious consideration ; for few 
+understand that any special endowments are required 
+to furnish us for a holy practice, more than for other 
+voluntary actions. The first Adam had excellent en- 
+dowments bestowed upon him for a holy practice, 
+when he was first created according to the image of 
+God; and the second Adam had endowments more 
+excellent, to enable him for a harder task of obedience, 
+And, seeing obedience is grown more difficult, b 
+reason of the opposition and temptations that it 
+meeteth with since the fall of Adam, we that are to 
+be imitators of Christ, had need have very choice 
+endowments, as Christ had; at least as good, or some- 
+thing better than Adam had at first, as our work is 
+harder than his. “ What king going to make war 
+against another king, sitteth not down first, and con- 
+sulteth whether he be able, with ten thousand, to 
+meet him that cometh against him with twenty thou- 
+sand?” And shall we dare to rush into battle against 
+all the powers of darkness, all worldly terrors and 
+allurements, and our own inbred domineering corrup- 
+_ tions, without considering whether we have sufficient 
+spiritual furniture to stand in the evil day? Yet many 
+content themselves with such an ability to will and 
+do their duty, as they would have to be given to 
+- men ees fie whereby they are no better enabled 
+for the spiritual battle than the generality of the 
+— world, that lie vanquished under the wicked one ; 
+_ and therefore their standing is not at all secured by 
+it. It is a hard matter to find what this universal 
+ability is, that so many contend so carnestly for,—of 
+at it consisteth,—by what means it is conveyed to 
+id maintained. 
+ily agility hath spirits, nerves, ligaments, bones 
+t by, but this spiritual universal ability 
+0 be some occult quality, that no sufficient 
+
+
+oe Br B Seek) Wy 
+
+
+26 THE GOSPEL MYSTERY Diveet. TT, 
+
+
+account can be given how it is conyeyed, or of what 
+it is constituted. That none may deceive themselves, 
+and misearry in their enterprises for holiness, by de- 
+pending on such a weak occult quality, I have here 
+shewed Four Enpowments, of which a true ability for 
+the practice of holiness must necessarily be constituted, 
+and by which it must subsist and be maintained; in- 
+tending to shew afterwards, by what means they are 
+given unto us, and whether the inclination or propen- 
+sity here mentioned be perfect or imperfect. And 
+they are of such a mysterious nature, that some who 
+own the necessity of endowments to frame them for 
+holiness, are prone to think, that less than these will 
+serve, and that some of these frame us rather for 
+licentiousness than holiness, as they are here placed 
+before any actual performance of the moral law; and 
+that some things contrary to them would put us into 
+a better frame for holiness. Against all such surmises 
+I shall endeavour such a demonstration of these en- 
+dowments particularly, as may gain the ascent of 
+yight reason; insisting on them in the same order 
+wherein I have placed them in the direction. 
+In the rinst place, I assert, than an inclination and 
+propensity of heart to the duties of the law, is necessary 
+to frame and enable us for the immediate practice of 
+them. And I mean not such a blind propensity as in- 
+animate creatures and brutes have to their natural 
+operations, but such an one as is meet for intelligent 
+creatures, whereby they are, by the conduct of rea- 
+son, prone and bent to approve and choose their duty, 
+and averse to the practice of sin: and therefore I - 
+have intimated, that the three other endowments 
+mentioned in the direction are subservient to this, as 
+the chief of all: which are sufficient to make it a ra- 
+tional propensity. This is contrary to those that, 
+out of zeal for obedience, but not according to know- 
+ledge, contend so earnestly for free-will, as a necessary 
+and sufficient endowment to enable us to perform our 
+duty, when once we are convinced of it, and of our ‘ 
+
+
+_ obligation to it; and that extol this endowment as 
+g the greatest benefit that universal redemption ‘hath 
+blessed all mankind with: though they consider this 
+_ free-will without any actual inclination to good, yea, 
+
+they cannot but acknowledge, that in most of man- 
+kind that have it, it isincumbered with an actual bent 
+and propensity of the heart altogether to evil. Such 
+
+a free-will as this is, can never free us from slavery to 
+
+sin and Satan, and fit us for the practice of the law ; 
+and therefore is not worthy-the-pains-ef those that 
+_ contend so warmly for it. Neither is the will so free 
+as is necessary for the practice of holiness, until it be 
+endowed with an inclination and propensity there- 
+unto, as may appear by the following arguments— 
+First, The duties of the law are of such anature that 
+they cannot possibly be performed while there is wholly 
+ amaversion or mere indifferency of the heart to the per- 
+_ formance of them, and no good inclination and propen- 
+_ sity towards the practice of them ; because the chief of 
+all the commandnients is, to love the Lord with our 
+_ whole heart, might, and soul, to love everything that 
+is in him, to love his will, and all his ways, and to 
+like them as good. And all duties must be influenced 
+in their performance, by this love: we must delight to 
+do the will of God, it must be sweeter to us than the 
+honey or honey-comb,.* © And this love, liking, de- 
+_ light, longing, thirsting, sweet-relishing, must be con- 
+tinued to the end ; and the first indeliberate motion 
+of lust must be regulated by love to God and our 
+neighbour ; and sin must be Cia against, and ab- 
+horred.t If it were true obedience, (as some would 
+ave it) to love our duty only as a market-man loveth 
+_ foul ways to the market, or as a sick man loveth an 
+_ unpleasant medicinal potion, or as a captiveslave loveth 
+s hard work, for fear of a greater evil; then it might 
+2 performed with averseness or want of inclination : 
+
+
+xy 
+a 
+
+
+D 
+
+
+; 
+: 
+
+
+_ Job xxiii, 12. Psa, Ixiii. 1,—exix. 20, and xix 10. 
+} Gal. v.17, t Psa. xxxvi. 4. , 
+t \\ 
+
+
+Re 
+
+
+28. THE GOSPEL MYSTERY Direct, I. 
+
+
+but we must love it as the market-man gain, as the 
+sick man health, as pleasant meat and drink, as the 
+captive liberty. Doubtless, there can be no power in 
+the will for this kind of service, without an agreeable- 
+ness of our inclination to the will of God, a heart ac- 
+cording to his own heart, an aversion of our hearts 
+from sin, and a kind of antipathy against sin; for we 
+know the proverb, “like loveth like,” There must 
+be an agreeableness in the person or thing beloved to 
+the disposition of the lover. Love to God must flow 
+from a clean heart,* a heart cleansed from evil pro- 
+pensities and inclinations. And reason will tell us 
+that the first motions of lust which fall not under our 
+choice and deliberation, cannot be avoided without a 
+fixed propensity of the heart to holiness. 
+
+Secondly, The image of God (wherein God, accord- 
+ing to his infinite wisdom, judged it mect to frame the 
+first Adam in righteousness and true holiness, and up- 
+rightnesst ) consisted in an actual bent and propensity 
+of heart to the practice of holiness: not in a. mere 
+_ power of will to choose good or eyil, for this in itself 
+is neither holy nor unholy, but only a ground-work, 
+on which either the image of God or of Satan may be 
+drawn; nor in an indifference of propensity to the 
+choice of sin or duty, for this is a wicked disposition 
+in an intelligent creature that knoweth his duty, and 
+fitteth us only to halt between God and Baal. God 
+set Adam’s soul at first wholly in a right bent and in- 
+clination, though Adam might act contrary to it, if he 
+would, as we may be prevailed upon to do some things 
+contrary to our natural or rational inclinations: and 
+it is easy to fail of our duty, though great prepara- 
+tions and furniture be required for the performance 
+of it. The second Adam also, the Lord Jesus Christ, 
+was born a holy thing,} with a holy disposition of his 
+soul, and propensity to goodness. And can we’ rea- 
+sonably hope to rise to the life of holiness, from which 
+
+
+t Luke i. 35, 
+
+
+My ee 
+
+
+*)Tim.i.5. + Gen. i. 27, Eph. iv. 24. Eccl. vii. 29, — 
+
+
+the first Adam fell, or to be imitators of Christ, since 
+duty is made so difficult by the fall, if we be not re- 
+ newed in a measure according to the same image of 
+God, and enabled with such a propensity and inclin- 
+ation? 
+
+Thirdly, Original corruption (whereby we are dead 
+to God and godliness from the birth, and made wil- 
+ling slaves to the performances of all actual sins until 
+the Son of God make us free) consisteth in a propen- 
+
+_ sity and inclination of the heart to sin, and averseness 
+_ to holiness, Without this propensity to sin, what 
+can that law of sin in our members be, that warreth 
+against the law of our mind, and leadeth us captive 
+_ to the service of sin?* What is that poison in us, for 
+{ which men may be called serpents, vipers? what is 
+_ that spirit of whoredoms in men, by reason of which 
+; they will not frame their doings to turn to God?t 
+how is the tree first corrupt, and then its fruit cor- 
+_ rupt?{ how can man be said to be abominable and 
+filthy, that drinketh iniquity like water?§ how should 
+; the mind of the flesh be continual enmity to the law 
+of God?|| I know there is also a blindness of under 
+_ standing, and other things, belonging to original cor- 
+_ ruption, which conduce to this evil propensity of the 
+_ will: but yet this propensity itself is the great evil, 
+~ the bviralling sin which produceth all actual sins ; 
+and must of necessity be removed or restrained, by 
+_ restoring that contrary inclination wherein the image 
+a of God consisted; or else we shall be backward and 
+_ reprobate to every good work, and whatever freedom 
+a re will hath, it kal be employed only in the service ~ 
+We Of sins! 
+Fourthly, God restoreth his people to holiness, by 
+iving to them “a new heart, and a new spirit, and 
+ig away the heart of stone out of the flesh, and 
+ing them a heart of flesh,{! and he cireumciseth 
+
+
+x 
+
+
+1 + Hos. vi 4. t Matt. xii. 33. $ Job. xv. 16. | 
+mYaids Ps. 4] Ezek, xxxiv. 26, 27. 
+
+
+30 THE GOSPEL MYSTERY 
+
+
+their heart to love him with their whole heart and 
+soul.”’ * And he requireth that we should be trans- 
+formed in the renewing of our mind, that we ma 
+
+prove what is his acceptable will.* And David meager 
+for the same end, “that God would create in hima 
+clean heart, and renew a right spirit within him.” + 
+If any one can judge that this new, clean, cireumcised 
+heart, this heart of flesh, this new right spirit, is such 
+a one as hath no actual inclination and propensity to 
+good, but only a power to choose good or evil, unde- 
+servedly called free will, with a present inclination to 
+evil, or an indifference of propensity to both con- 
+
+
+traries, it will not be worth my labour to convince — 
+
+
+such a judgment: only let him consider whether 
+David could account such a heart to be clean and right, 
+when he prayed, “Incline mine heart unto thy tes- 
+timonies, and not to covetousness.” 
+
+The sEconD ENDOWMENT necessary to enable us for 
+the immediate practice of holiness, and concurring 
+with the other two. that follow, to work in us a ra- 
+tional propensity to this practice, is, that we be well 
+persuaded of our reconciliation with God. We must 
+reckon that the breach of amity which sin hath made 
+between God and us, is made up. by a firm reconcilia- 
+tion to his love and favour. And herein I include 
+the great benefit of justification, as the means whereby 
+we are reconciled to God, which is described in serip- 
+ture either by forgiving our sins, or by the imputation 
+of righteousness to us,§ because both are contained in 
+one and the same justifying act; as one act of illumi- 
+nation comprehends expulsion of darkness and intro. 
+duction of light, one act of repentance containeth 
+mortification of sin, and vivification to righteousness ; 
+and every motion from any thing to its, cone is 
+but one and the same, though it may be expressed by 
+divers names, with respect to either of the two con- 
+
+
+* Rom. xii, 2, + Psa. li. 10, 
+§ Rom, iy. 5, 6, 7. — 
+
+
+31 
+
+
+brary terms, the one of which is abolished and the other 
+introduced by it. This is a great mystery, (centrary 
+to the apprehensions, not only of the vulgar, but of 
+some learned divines) that we must be reconciled to 
+God, and justified by the remission of our sins and im- 
+putation of righteousness, before any sincere ebedience 
+. to the law, that we may be enabled for the practice 
+of it. They account that this doctrine tendeth to the 
+_ subversion of a holy practice, and is a great pillar of 
+Antinomianism ; and that the only way to establish 
+sincere obedience, is to make it rather a condition to 
+be performed before our actual justification and re- 
+conciliation with God. Therefore, some late divines 
+haye thought fit to bring the doctrine of former Pro- 
+testants concerning justification to their anvil, and to 
+hammer it into another form, that it might be more 
+free from Antinomianism, and effectual to secure a 
+holy practice. But their labour is vain and pernicious, 
+tending to Antinomian profaneness, or painted hypo- 
+crisy at best; neither can the true practice of holiness 
+be secure, except the persuasion of our justification 
+and reconciliation with God be first obtained without 
+works of the law, that we may be enabled thereby to 
+_- do them, as I shall now prove by several arguments ; 
+intending also to shew, in the following directions, 
+_ that such a persuasion of the love of God_as God 
+_ giveth to his people, tendeth only to holiness, though 
+_ a mispersuasion of it be, in many, an occasion of licen- 
+_ tiousness, ( 
+First, When the first Adam was framed for the 
+_ practice of holiness, at his creation he was highly in 
+_ the favour of God, and had no sin imputed to him, 
+and was accounted righteous in the sight of God, ac- 
+cording to his present state, because he was made up- 
+xight according to God’s image. And there is no 
+son to doubt, but that these qualifications were his 
+e for a holy practice, and the wisdom of God 
+good for that end ; and as soon as he 
+
+
+e 
+
+
+ee ad ae 
+
+
+= 
+
+
+\\ 
+
+
+me dead in sin, The second Adam 
+
+
+en Oe 
+
+
+32 THE GOSPEL MYSTERY Direct. 
+
+
+also, in our nature; was the beloved of the Father, 
+accounted righteous in the sight of God, without the 
+imputation of any sin to him, except what his office 
+was to bear on the behalf of others. And can we 
+reasonably expect to be imitators of Christ, by per- 
+forming more difficult obedience than the first Adam’s 
+was before the fall, except the like advantages be 
+given to us by reconciliation and remission of sins, 
+and imputation of a righteousness given by God to us 
+when we have none of our own? 
+
+Secondly, Those that know their natural deadness 
+under the power of sin and Satan, are fully convinced 
+that if God leave them to their own hearts, they can 
+do nothing but sin; and that they can do no good 
+work, except it please God, of his great love and 
+mercy, to work it in them.* Theretore, that they 
+may be encouraged and rationally inclined to holiness, 
+they must hope that God will work savingly in them. 
+Now, I leave it to considerate men to judge, whether 
+such a hope can be well-grounded, without a good 
+persuasion of such a reconciliation and saving love of 
+God to us, as depend not upon any precedent good- 
+ness of our works, but is a cause sufficient to produce 
+them effectually in us? Yea, we know further, (if 
+we know wctualres sufficiently) that our death in sin 
+proceeded from the guilt of the first sin of Adam, and 
+the sentence denounced against it,+ and that it is still 
+maintained in us by the guilt of sin, and the curse of 
+the law; and that spiritual life will never be given 
+us to free us from that dominion, except this guilt 
+and curse be removed from us, which is done by actual 
+justification.{ And this is sufficient to make us de- 
+spair of living to God in holiness, while we apprehend 
+ourselves to be under the curse and wrath of God, by 
+en of other transgressions and sins still lying upon 
+us.§ ies 
+
+
+ke 
+
+
+* John viii. 36. Phil. ji. 13. Rom. vill, 7) 8. 
+t Gal, ili. 13,14, Rom. vi. 8 — § Baek, 
+
+
+Direct. II. OF SANCTIFICATION. 38 
+
+
+yuireth an apprehension of our reconciliation with 
+
+
+the doing of them. The great duty is love to God 
+with our whole heart, and not such a contemplative 
+love as philosophers may have to the object of sciences, 
+which they are concerned in no farther than to please 
+_ our fancies in the knowledge of them ; but a practical 
+love, whereby we are willing that God should be ab- 
+solute Lord and Governor of us and all the world, to 
+dispose of us and all others according to his will, and 
+that he should be the only portion and happiness of 
+all those that are happy; a love, whereby we like 
+eyery thing in him, as he is our Lord; his justice as 
+well as any other attribute, without wishing or de- 
+siting that he were better than he is; and whereb 
+_ we desire that his will may be done upon us, and all 
+_ others, whether for prosperity or adversity, life or 
+_ death; and whereby we can heartily praise him for 
+ail things, and delight in our obedience to him, in 
+doing his will, though we suffer that which is never 
+_ 80 grievous to us, even present death. Consider these 
+_ things well, and you may easily perceive that our 
+_ spirits are not in a fit frame for the doing of them, 
+- while we apprehend ourselves under the curse and 
+wrath of God, or while we are under prevailing sus- 
+oe that God will prove an enemy to us at last. 
+vish fear may extort some slavish hypocritical 
+~ performances from us, such as that of Pharoah in let- 
+_ ting the Israelites go, sore against his will: but the 
+duty of love cannot be extorted and forced by fear, 
+but it must be won and sweetly allured by an appre- 
+hension of God’s love and goodness towards us: as 
+that eminent loving and beloved disciple testifieth :* 
+«There is no fear in love, but perfect love casteth out 
+ecause fear hath torment; he that feareth is not 
+perfect in love. We love him, because he first 
+
+
+- * 1 John iy, 18, 19. 
+
+
+dly, The nature of the duties of the law is such, . 
+
+
+God, and his hearty love and favour towards us for — 
+
+
+B4 THE GOSPEL MYSTERY ~ 
+
+
+loved us.’* Observe here, that we cannot b 
+hand with God in loving’ him, before we appre ; 
+his love to us. And consult your own experience, i 
+you have any true love to God, whether it were not 
+wrought in you by asense of God’s love first towards 
+you? All the goodness and excellency of God cannot 
+render him an amiable object to us, except we appre- 
+hend him an agreeable good to us. I question not 
+but the devils know the excellency of God’s nature, 
+as well as our greatest metaphysical speculators ; and 
+this doth but.fill them the more with tormenting hor- 
+ror and trembling, that is contrary to love.* The 
+greater God’s excellency and perfection is, the greater 
+evil he is to us, if he hate and curse us. And, there- 
+fore, the principle of self-preservation deeply rooted 
+in our natures, hindereth us from loving that which 
+we apprehend as our own destruction. If a man be 
+an enemy to us, we can love him for the sake of our 
+loving reconciled God, because his love will make 
+man’s hatred to work for our good: but, if God him- 
+self be our enemy, for whose sake can we love him? 
+who is there that can free us from the evil of his en- 
+mity, and turn it to ouradyantage, until he is pleased 
+to reconcile himself to us? 
+Fourthly, Our conscience must of necessity be first 
+purged from dead works, that we may serve the liv- 
+ing God. And this is done by actual remission of 
+sin, procured by the blood of Christ, and manifested 
+to our consciencies; as appeareth by Christ’s dying 
+for this end.t That conscience whereby we judge 
+ourselves to be under the guilt of sin and the wrath 
+of God, is accounted an evil conscience in et 
+though it perform its office truly, because it is cause 
+by the evil of sin, and will itself be a cause of our 
+committing more sin, until it can judge us ol jus- 
+tified from all sin, and received into the favour of 
+
+
+God. Love, which is the end of the law, must. pro- r 
+
+
+* James ii. 19. + Heb. ix.14, 15,and x. 1, 2,4, 14 
+
+
+me T. 
+
+
+ceed from a good conscience, as well as from any other 
+- cleanness of heart. David’s mouth could not be opened 
+to shew forth the praise of God, until he was delivered 
+from: blood guiltiness.* This evil guilty conscience, 
+whereby we judge that God is our enemy, and that 
+his justice is against us to our everlasting comdemna- 
+tion, by reason of our sins, doth strongly maintain 
+and inerease the dominion of sin and Satan in us, and 
+worketh most mischievous effects in the soul against 
+godliness, even to bring the soul to hate God, and to 
+_ wish there were no God, no heaven, no hell, so we 
+might escape the punishment due to us. It so disaf- 
+_ fecteth people towards God, that they cannot endure 
+to think, or speak, or hear of him, and his law; but 
+strive rather to put him out of their minds by fleshly 
+_ pleasures and worldly employments. And thus they 
+_are alienated from all true religion: only blinding it 
+and og tot the mouth of it, it produceth zeal in 
+many outside religious performances, and also false 
+religion, idolatry, and the most inhuman superstitions 
+in the world. I have often considered by what man- 
+ner of working any sin could eftectually destroy the 
+whole image of God in the first Adam ; and I conclude 
+it was by working first an evil guilty conscience in 
+him, whereby he judged that the just God was against 
+him, and cursed him for that one sin. And this was 
+enough to work a shameful nakedness by disorderly 
+lusts, a turning his love wholly from God to the crea- 
+ture, and a desire to be hidden from the presence of 
+_God,f which was a total destruction of the image-of 
+God’s holiness. And we have cause to judge, thad 
+_ from the same cause proceedeth the continual malice, 
+_rancour, rage, and blasphemy of the devil, and many 
+notorious wicked men, against God and godliness, 
+may think Job uncharitable, in suspecting not 
+
+at his sons had sinned, but that they had heen 
+wicked as to curse God in their hearts. + 
+
+
+36 THE GOSPEL MYSTERY ‘Direct. ee 
+But Job well understood that, if the guilt of an ordi- 
+nary sin lie upon the conscience, it will make the soul 
+to wish secretly that God were not, or that he was 
+not so just a judge; which is a secret cursing of God, 
+that cannot be avoided until our consciences be purged 
+from the guilt of sin, by the offering of Christ for us ; 
+which was then figured out by the burnt offerings of 
+Job for his sons. : 
+Fifthly, God hath abundantly discovered to us, in 
+his Word, that his method in bringing men from sin 
+to holiness of life, is, first to make them know that 
+he loveth them, and that their sins are blotted out. 
+When he gave the Ten Commandments on Mount 
+Sinai, he first discovered himself to be their God, that 
+had given them a sure pledge of their salvation b 
+their delivery from Egypt, in the preface.* And, 
+during all the time of the Old Testament, God was 
+pleased to make the entrance into religion to be by 
+circumcision :, which was not only a sign, but also a 
+seal of the righteousness of faith, whereby God justi- 
+fieth people, while they are considered as ungodly.t 
+And this seal was administered to children of eight 
+days old, before they could perform any condition of 
+sincere obedience for their justification, that their 
+furniture for a holy practice might be ready before- 
+hand. Furthermore, in the time of the old Testament, 
+God appointed divers washings, and the blood of bulls 
+and goats, and the ashes of an heifer sprinkling the 
+unclean, to prepare and sanctify them for other parts 
+of his worship in his tabernacle and temple; to figure 
+out his purging their consciences from dead works by 
+the blood of Christ, that they might serve the living 
+God.t This, I say, was then figurative sanctification, 
+as the word sanctification is taken ima large sense, 
+comprehending all things that prepare us for the — 
+service of God, chiefly the remission of sin,$ though 
+
+
+* Exod, xx. 2. + Rom. iy. 5, 11. t He 
+, § Heb, x, 10, 14, 18. — 
+
+
+vi i 
+_ Direet, IT. OF SANCTIFICATION. 37 
+
+
+if it be taken in a strict sense, respecting only our con- 
+formity to the law, it-must necessarily be paced after 
+justification, according to the usual method of Pro- 
+testant divines. God also minded them of the neces- 
+sity of purging away their guilt first, that their ser- 
+vice might be acceptable, by commanding them to 
+offer the sin-offering before the burnt-offering,* and, 
+lest. the guilt of their sins should pollute the service of 
+
+- God, notwithstanding all their particular expiations, 
+God was pleased to appoint a general atonement 
+for all their sins one day in every year, wherein the 
+scape-goat was to bear upon him all their iniquities 
+unto a land not inhabited.t Under the New Testa- 
+ment, God useth the same method, in loving us first, 
+and washing us from our sins by the blood of Christ, 
+_ that he may make us priests, to offer the sacrifice of 
+ag and all good works to God, even the Father. 
+e enterceth us into his service by washing away our 
+sins in baptism: he feedeth and strengtheneth us for 
+his service, by remission of sins, given to us in the 
+blood of Christ at the Lord’s supper: he exorteth us 
+to obey him, because he hath already loved us, and 
+our sins are already pardoned. ‘Forgive one another, 
+even as God for Christ’s sake hath forgiven you. Be 
+
+_ ye therefore followers of God, as dear children; and 
+walk in love, as Christ hath loved us.{ I write unto 
+you, little children, because your sins are forgiven 
+you for his name’s sake. Love not the world, neither 
+the things that are in the world.”§ I might quote 
+abundance of texts of the same nature. We may 
+clearly see by all this, that God hath accounted it a 
+matter of great importance, and hath condescended to 
+take wonderful care in providing plentiful means, 
+both under the Old and New Testament, that his 
+eople might be first cleansed from guilt, and recon- 
+d to himself, to fit them for the acceptable practice 
+
+
+—" 
+
+
+and xvi. 3, 1). t Ley. xvi. 22, 34, 
+§ John 1i..12, 13, 
+
+
+38 THE GOSPEL MYSTERY Direct. I. 
+
+
+of holiness. Away then with all the contrary me- 
+thods of the new divinity. 
+
+The THIRD ENDOWMENT necessary to enable us for 
+the practice of holiness, without which a persuasion 
+of our reconciliation with God would be of little effi- 
+cacy to work in us a rational propensity to it, is, 
+that we be persuaded of our future enjoyment of 
+the everlasting heavenly happiness. This must pre- 
+cede our holy practice, as a cause disposing and 
+alluring us to it. This assertion hath several sorts of 
+adversaries to oppose it. Some account that a persua- 
+sion of our own future happiness, before we have per- 
+severed insincere obedience, tendeth to licentiousness; 
+and that the way to do good works, is rather to make 
+them a condition necessary for the procuring of this 
+persuasion. Others condemn all works that we are 
+allured or stirred up to by the future enjoyment 
+of the heavenly happiness, as legal, mercenary, flow- 
+ing from self-love, and not from any pure love to 
+God; and they figure out sincere godliness by a 
+man bearing fire in one hand, to burn up heaven, and 
+water in the other, to quench hell; intimating that 
+the true service of God must not proceed at all from 
+hope of reward, or fear of punishment, but only from 
+love. - To establish the truth asserted against the 
+errors that are so contrary to it, and to each other, I 
+shall propose the following considerations. 
+
+First, 'The nature of the duties of the law is such 
+that they cannot be sincerely and universally prac- 
+tised without thisendowment. That this endowment 
+must be present in us, is sufficiently proved already, 
+by all that I have said concerning the necessity of 
+the persuasion of our firm reconciliation with Ged by 
+our justification, to prepare us for this practice, 
+because that includeth a persuasion of this future 
+happiness, or else it is of little worth. All that I have 
+to add here, is, that sincere obedience cannot ra-— 
+tionally subsist, except it be allured, encouraged, 
+and supported by this persuasion. Let me therefore 
+
+
+a 
+
+
+Direct. II. OF SANCTIFICATION. 39 
+
+
+suppose a Sadducee believing no happiness after this 
+life, and put the question, can such a one love God 
+with his whole heart, might, and soul? Will he not 
+think it reasonable, rather to lessen and moderate his 
+love towards God, lest he should be over-much trou- 
+bled to part with him by death? We account it most 
+reasonable to sit loose in our affections frora things 
+that we must part with. Can such a one be satisfied 
+with the enjoyment of God as his happiness? Will 
+he not rather account that the enjoyment of God, and 
+all religious duties are vanities, as well as other 
+things; because in a little time we shall have no more 
+benefit by them, than if they had never been? How 
+can such a one be willing to lay down his life for the 
+sake of God, when by his death he must part with 
+God, as well as with other things? How can he 
+willingly choose afflictions rather than sin, when he 
+shall be more miserable in this life for it, and not at 
+all happy hereafter? I grant that if affliction come 
+unavoidably upon such a person, he may reasonably 
+judge that patience is better for him than impatience ; 
+but it will displease him, that he is forced to the use 
+of such a virtue; and he will be prone to fret and 
+murmur at his Creator, and to wish he had never 
+been, rather than to endure such miseries, and to be 
+comforted only with vain transitory enjoyments. I 
+_ think I have said enough to shew how unfurnished 
+such a man is for holiness. And he that will burn up 
+_heayen, and quench hell, that he may serve God out 
+
+_ of love, doth thereby leave himself little better fur- 
+
+
+_ nished than the Sadducee. The one denieth them,. 
+
+
+the other will not have them at all to be considered 
+in this case. 
+
+__ Secondly, The sure hope of the glory of heaven is 
+made use of ordinarily by God, since the fall of Adam, 
+is an encouragement to the practice of holiness; as 
+he Scripture doth abundantly shew. Christ, the 
+reat pattern of holiness, for the joy that was set 
+
+
+40 THE GOSPEL MYSTERY Direct. aE: 
+
+
+before him, endured the cross, despising the shame.* 
+And though I cannot say, that the first Adam had 
+such a sure hope to preserve him in innocency; yet 
+he had instead of it the present possession of an earthly 
+paradise, and a happy estate init; which he knew 
+would last, if he continued in holiness, or be changed 
+into a better happiness. The apostles did not faint 
+under affliction, because they knew thatit wrought 
+for them a far more exceeding and eternal Wi ig of 
+glory.t 'The believing Hebrews “took joyfully the 
+spoiling of their goods, knowing in themselves that 
+they had in heaven a better and an enduring sub- 
+stance.” The pee Paul accounts all his suf- 
+ferings unprofitable, were it not for a glorious resur- 
+rection; and that Christians would be of all men 
+most miserable ; and that the doctrine of the Epicures 
+were rather to be chosen. Let us eat and drink, for 
+to-morrow we shall die. And he exorts the Corin- 
+thians to be abundant in the work of the Lord, 
+knowing that their labour shall not be in vain in the 
+Lord.§ As worldly hope keepeth the world at work 
+in their various employments; so God giveth his 
+pele the hope of his glory, to keep them close to 
+
+is service.|| And it is such a sure hope as shall 
+never make them ashamed. Those that think it 
+below the excellency of their love, to work from a 
+hope of the heavenly reward, do thereby advance 
+their love beyond the love of the apostles and primi- 
+tive saints, and even of Christ himself. 
+
+Thirdly, This persuasion of our future enjoyment 
+of everlasting happiness, cannot tend to licentiousness, 
+if we understand well that perfect holiness is a neces- 
+sary part of that happiness, and that though we have 
+a title to that happiness by free justification and 
+adoption, yet we must go to the possession of it ina way 
+of holiness.[ Neither is it legal or mercenary, to be 
+moved by this persuasion ; seeing the persuasion itself 
+* Heb. xii.2. +2 Cor. iv. 16,17. } Heb. x.34. §1 Cor. xv. 58. 
+|| Heb. vi. 11,12.° (J 1 John iii, 3, Rom. v. 5. {1 John iii. 1, 2 
+
+
+direct, II. OF SANCTIFICATION. 41 
+
+
+is not gotten by the works of the law, but by free-grace 
+_ through faith.* And if it be a working from self- 
+_ love: yet for certain it is not that carnal self-love 
+which the Scripture condemneth as the mother of sin- 
+_ fulness,+ but a holy self-love, inclining us to prefer 
+God aboye the flesh and the world, such as God 
+directeth us unto, when he exorteth us to save our- 
+selves.{ And it is so far from being contrary to the 
+pure love of God, that it brings us to love God more 
+purely and entirely. The more good and beneficial 
+we apprehend God to us to all eternity, doubtless the 
+) ‘more lovely God will be to us, and our affections will 
+be the more inflamed towards him. God will not be 
+loved as a barren wilderness, a land of darkness 
+to us, neither will he be served for nought.§ He 
+_ would think it a dishonour to him to be owned by us 
+as our God, if he had not prepared for us a city.|] 
+And he draweth us to love him by the cords of a man, 
+. such cords as the love of men useth to be drawn by, 
+_ eyen by his own love to us, in laying his benefits 
+_ before us.f{ Therefore the way for us to keep our- 
+_ selyes in the love of God, is to look for his merey 
+unto eternal life.[ ' 
+The Last ENDOWMENT, for the same end as the for- 
+_ mer, is, that we be well persuaded of sufficient strength 
+both to will and perform our duty acceptably, until 
+- we come to the enjoyment of the heavenly happiness, 
+- This is contrary to the error of those that account it 
+sufficient, if we have strength to practise holiness, if 
+we will, or to will it if we please; and this is the suffi- 
+cient strength which they earnestly contend for, as a 
+great bene bestowed on all mankind by universal 
+redemption. It is also contrary to the error of those 
+that think the practice of godliness and wickedness to 
+e alike easy, excepting only some difficulty in the 
+ust alterations of vicious customs, and in hearing 
+
+
+Vapi +2 Tim. i.2, Acts i. 40. 1 Tim. iv. 16. 
+Isa. xiv.19, || Heb. xi.16. Hos. xi.4, [ Jude 2, 
+* 2 
+
+
+42 THE GOSPEL MYSTERY Direct. 11. 
+
+
+persecutions, which they account to be a rare case; 
+since the kingdoms of the world have been brought 
+to the profession of Christianity; or who think that 
+God requireth of men only to do their endeavour, 
+that is, what they can do; and it is nonsense to say 
+they cannot do what they cando. According to their 
+judgement, it is needless to concern ourselves much 
+about sufficient strength for holy practice. For the 
+- confirmation of the assertion, against those errors, 
+take these arguments, 
+
+First, We are, by nature, dead in tresspasses and 
+sins, unable to will or do any thing that is spiritually 
+good, notwithstanding the redemption that is by 
+Christ, until we be actually quickened by Christ.* 
+Those that are sufficiently enlightened and humbled, 
+know themselves to be naturally in this case; and 
+that they do not only want executive power to do 
+good, but chiefly a heart to will it, and to be pleased 
+with it; and that if God work not in them both to 
+will and to do, they shall neither will nor do any 
+thing pleasing to him,f and that if he leaye them to 
+their own corruption, after he hath begun the good 
+work, they shall certaintly prove vile apostates; and 
+their latter end will be worse than their beginning, 
+We may conclude from hence, that whosoever can 
+courageously attempt the practice of the law, without 
+being well persuaded of a sufficient power, whereby 
+he may be enabled to be heartily willing, as well as 
+to perform when he is willing, until he hath gone 
+through the whole work of obedience acceptably ; 
+such an one was never yet truly humbled, and 
+brought to know the plague of his own heart; neither 
+doth he truly believe the doctrine of original sin, 
+whatever formal profession he makes of it. 
+
+Secondly, Those that think sincere conformity to 
+the law in ordinary cases to be so very easy, shew 
+that they neither know it, nor themselves. Is it an —~ 
+
+
+* Eph, ii,1, Rom. viii, 7, 8, 9. { Phil, ii. 13. 
+
+
+Direct. I. OF SANCTIFICATION. 43 
+
+
+easy thing to wrestle, not against flesh only, but 
+against principalities, powers, spiritual wickedness in 
+high places?* Is it an easy thing not to lust or covet, 
+according to the tenth commandment? The apostle 
+Paul found it so difficult to obey this commandment, 
+that his concupiscence prevailed the more by occasion 
+of the commandment.t Our work is not only to 
+alter vicious customs, but to mortify corrupt natural 
+affections which bred those customs; and not only to 
+deny the fulfilling of sinful-lust, but to be full of 
+holy love and desires: yet even the restraining the 
+_ execution of corrupt lusts, and crossing them by con- 
+trary actings, is in many cases, like the cutting off a 
+right hand, and plucking out a right eye.{ If obe- 
+dience be so easy, how came it to pass that the 
+heathens generally did those things for ul ac their own 
+consciences condemned them as worthy of death ?§ and 
+that many among us seek to enter into this strait gate, 
+_ and are not able;|| and break so many vows and pur- 
+poses of obedience, and fall back to the practice of 
+_ their lusts, though, in the mean time, the fears of 
+_ eternal damnation press hard upon their consciences? 
+As for those that find persecution for religion to be 
+
+so rare a thing in late days, they have cause to be 
+suspected, that they are of the world, and therefore 
+
+_ the world loveth his own; else they would find, that 
+~ national profession of religion will not secure those 
+that are truly godly from several sort of persecutions. 
+_ And suppose men do not persecute us for religion, yet 
+_ there is great difficulty in bearing great injuries from 
+men on other accounts, and losses, poverty, bodily 
+_ pains, long diseases, and untimely deaths, from the 
+ordinary providence of God, with such hearty love to 
+God, and to injurious men for his sake, and such a 
+patient, acquiesence in his will as the law of God 
+_requireth. I acknowledge, that the work of God is 
+
+
+—— 
+
+
+Ruwhois + Rom. vii. 7, 8. } Matt. v. 29, 30. 
+om, i, 32, || Luke xiii. 24, f 
+
+
+\\ 
+
+
+s 
+
+
+ied 
+
+
+44 THE GOSPEL MYSTERY Direct, I. 
+
+
+easy and pleasant so those whom God rightly fur- — 
+
+
+nisheth with endowments for it; but those who assert 
+it to be easy to men in their common condition, shew 
+their imprudence in contradicting the general expe- 
+rience of heathens and Christians. Though many 
+
+
+duties do not require much labour of body or mind, ~ 
+
+
+and might be done with ease if we were willing; yet 
+it is easicr to remove a mountain, than to move and 
+incline the heart to will and affect the doing of them. 
+Ineed not concern myself with those that account that 
+all have sufficient strength for a holy practice, because 
+they can do their endeavour, that is what they can 
+do: for God requireth actual fulfilling his commands, 
+What if by our endeavours we can do nothing, in any 
+measure according to the rule, shall the law be put 
+off with no performance? and shall such endeavours 
+be accounted sufficient holiness? And what if we 
+cannot so much as endeavour in a right way? If 
+man’s ability were the measure of acceptable duty, 
+the commands of the law would signify very little. 
+Thirdly, The wisdom of God hath ever furnished 
+people with a good persuasion of a sufficient strength, 
+that they might be enabled both to will and do their 
+duty. The first Adam was furnished with such a 
+strength ; and we have no cause to think that he was 
+ignorant of it, or that he needed to fear that he should 
+be left to his own corruptions; because he had no 
+corruptions in him, until he had produced them in 
+himself by sinning against strength: and when he 
+
+
+had lost that strength, he could not recover the prac- . 
+
+
+tice of holiness, until he was acquainted with a better 
+strength, whereby the head of Satan should be 
+bruised.* Our Lord Christ, doubtless knew the in- 
+finite power of his Deity to enable him for all that 
+he was to do and suffer in our nature. He knew the 
+
+
+Lord God would help him, therefore he should not, 
+
+
+be confounded.+ The Scripture sheweth what plen- 
+
+
+* Gen. fii. 15, ft Tsa,i,20,5 
+
+
+= 
+
+
+‘Direct. IL. 
+
+
+tiful assurance of strencth God gave to Moses, Joshua, 
+- Gideon, when he called them to great employments; 
+and to the Israelites when he called them to subdue 
+the land of Canaan. Christ would have the sons of 
+Zebedee to consider whether they were able to drink 
+of his cup and to be baptized with the baptism that 
+_ he was baptized with.* Paul encourageth believers 
+_ to the life of holiness, by persuading them, that sin 
+shall not prevail to get the dominion over them, be- 
+_ cause they are not under the law, but under grace.t 
+_ And he exorteth to be strong in the Lord, and in the 
+_ power of his might, that they might be able to stand 
+against the wiles of the devil.{ John exorteth be- 
+: lievers, not to love the world, nor the things of the 
+_ world, because they were strong, and had overcome 
+the wicked one.§ They that were called of God 
+Be tafore to work miracles, were first acquainted 
+with the gift of power to work them; and no wise 
+man will attempt to do them without knowledge of 
+_ the gift: even so when men that are dead in sin are 
+called to do the works of a holy life, which are in 
+_ them great miracles, God maketh a discovery of the 
+‘ gift of power unto them, that he may encourage them 
+in a rational way to such a wonderful enterprize. 
+
+
+OF SANCTIFICATION, 45 
+
+
+DIRECTION III. 
+
+
+‘The way to get holy endowments and qualifications necessary to frame 
+and enable us for the immediate practice of the law, is to receive 
+them out of the fulness of Christ, by fellowship with him; and that 
+we may have this fellowship, we must be in Christ, andhave Christ 
+himself in us, by a mystical wnion with him. 
+
+
+EXPLICATION. 
+_ Here, as much as anywhere, we have great cause 
+to acknowledge with the apostle, that, without con- 
+
+
+* 
+‘XX, 22, + Rom. vi. 13, 14. } Eph. vi. 10, 11. 
+§ 1 Jobn ii, 14, 15. 
+
+
+\ ie, 
+. ve 
+; \ w. J 
+ee ete 
+
+
+4G THE GOSPEL MYSTERY © Direct, TIT. 
+
+
+troversy, great is the mystery of godliness, even so 
+great that it could not have entered into the heart of 
+man to conceive it, if God had not made it known in 
+the gospel by supernatural revelation, Yea, though 
+it be revealed clearly in the holy Scriptures, yet the 
+natural man hath not eyes to see it there, for it is 
+foolishness to him; and, if God express it never so 
+plainly and properly, he will think that God is speak- 
+ing riddles and parables. And I doubt not but it is 
+still a riddle and a parable even to many truly godly, 
+that have received a holy nature in this way: for the 
+7 Bache themselves had the saving benefit of it, before 
+the Comforter discovered it clearly to them.* And 
+they walked in Christ as the way to the Father, be- 
+
+
+Bs 8 alte 
+
+
+fore they clearly knew him to be the way.t And | 
+
+
+the best of us know it put in part, and must wait for 
+the perfect knowledge of it in another world, 
+One great mystery is, that the holy frame and. dis- 
+ream whereby our souls are furnished and enabled 
+‘or immediate practice of the law, must be obtained 
+by receiving it out of Christ’s fulness, as a thing al- 
+ready prepared and brought to an existence for us in 
+Christ, and treasured up in him ; and that as we are 
+justified by a righteousness wrought out in Christ, 
+and imputed to us; so we are sanctified by such a 
+holy frame and qualifications, as are first wrought 
+out and completed in Christ for us, and then imparted 
+tous. And as our natural corruption was produced 
+originally in the first Adam, and propagated from 
+him to us; so our new nature and holiness is first 
+produced in Christ, and derived from him to us, or as 
+
+
+it were propagated. So that we are not at all to work ~ 
+
+
+together with Christ, in making or producing that 
+
+
+holy frame in us, but only to take it to ourselves, — 
+
+
+and use it in our holy practice as made ready to our 
+
+
+hands. Thus we have fellowship with Christ in re- — 
+
+
+ceiving that holy frame of spirit that was originally 
+
+
+* John xiy. 20. + John xiv. 5. 
+
+
+Direct. IT. oF SANCTIFICATION. 47 
+
+
+- 
+
+
+in him; for fellowship is, when several persons have 
+the same things in common.* This mystery is so 
+great, that notwithstanding all the light of tlie gospel, 
+we commonly think that we must get a holy frame 
+by producing it anew in ourselves, and by framing 
+and working it out of our own hearts. Therefore, 
+many that are seriously devout, take a great deal 
+of pains to mortify their corrupted nature, and beget 
+a holy frame of heart in themselves, by striving ear- 
+nestly to master their sinful lusts, and by pressing 
+vehemently upon their hearts many motives to godli- 
+ness, labouring importunately to squeeze good quali- 
+fications out of them, as oil out of a flint. They 
+account, that though they be justified by a righteous- 
+hess wrought out by Christ, yet they must be sancti- 
+fied by a holiness wrought out by themselves.. And 
+though out of humility they are willing to call it in- 
+fused grace, yet they think they must get the infusion 
+of it by the same manner of working, as if it were 
+wholly acquired by their endeavours. On this account 
+they acknowledge the entrance into a godly life to be 
+harsh and unpleasing, because it cost so much strug- 
+-gling with their own heartsand affections to new-frame 
+them. If they knew that this way of entrance is not 
+only harsh and unpleasant, but altogether impossible, 
+and that the true way of mortifying sin, and quicken- 
+ing themselves to holiness, is by receiving a new 
+nature out of the fulness of Christ; and that we do 
+no more to the production of a new nature than of 
+original sin, though we do more to the reception of 
+it: if they knew this, they might save themselves 
+Inany a bitter agony, and a great deal of mispent bur- 
+densome labour, and employ their endeavours to enter 
+at the strait gate in such a way as would be more 
+asant and successful. | 
+Another great mystery in the way of sanctification, 
+
+
+iy John i. 1—3. 
+
+
+\\ 
+
+
+79 
+
+
+gD aR 2 = 
+0, Ere -9. 
+
+
+pg? 
+
+
+48 THE GOSPEL MYSTERY Direct. III. 
+
+
+is the glorious manner of our fellowship with Christ, 
+in receiving a holy frame of heart from him. It is 
+by our being in Christ, and having Christ himself in 
+us; and that not merely by his universal presence, as 
+he is God, but by such a close union, as that, we are 
+one spirit and one flesh with him; which is a privi- 
+lege peculiar to those that are truly sanctified. I 
+may well call this a mystical union, because the 
+apostle calleth it a “great mystery,” in an epistle full 
+of mysterics,* intimating, that it is eminently great, 
+above many other mysteries. It is one of the three 
+mystical unions that are the chief mysteries in relig- 
+ion. The other two are, the union of the Trinity of 
+persons in one Godhead, and the union of the divine 
+and human natures in one person, Jesus Christ, God 
+and Man. Though we cannot frame an exact idea of 
+the manner of any of these three unions in our ima- 
+ginations, because the depths of these mysteries is be- 
+yond our comprehension: yet we have cause to believe 
+them all, because they are clearly revealed in Serip- 
+ture, and are a necessary foundation for other points 
+of Christian doctrine. Particularly, this union be- 
+tween Christ and believers, is plain in several places 
+of Scripture, affirming that Christ is, and dwelleth in 
+believers, and they in him,t and that they are so 
+joined together as to become one spirit,+ and that be- 
+lievers are members of Christ’s body, of his flesh, and 
+of his bones; and they two, Christ and the church, 
+are one flesh.§ Furthermore, this union is illustrated 
+in Scripture by various resemblances, which would 
+be very much unlike the things which they are made 
+use of to resemble, and would rather seem to beguile 
+us by obscuring the truth, than instruct us by illus- 
+trating of it if there were no true proper union between 
+Christ and believers. It is resembled by the union 
+
+
+* Eph. y. 22. } John vi. 56. and xiv. 20. F1Cor.vil7. | 
+§ Eph. y. 30, 31. th 
+
+
+| Direct, III. OF SANCTIFICATION, > 49 
+
+
+between God the Father and Christ,* between the 
+vine and its branches,t between the head and body,t 
+between the bread and the eater.§ It is not only 
+resembled, but sealed in the Lord’s Supper; where 
+neither the Popish transubstantiation, nor the Lu- 
+therans consubstantiation, nor the Protestapt’s spiri- 
+tual presence of Christ’s body and blood to the true 
+receivers, can stand without it. And if we can imagine 
+that Christ’s body and blood are not truly eaten and 
+drank by believers, either spiritually er corporally, 
+we shall make the bread and wine joined with the 
+words of institution, not only naked signs, but such 
+signs as are niuch more apt to breed false notions in 
+us, than to establish us in the truth. And there is 
+nothing in this union so impossible or repugnant to 
+reason, as may force us to depart from the plain and 
+familiar sense of those Scriptures that express and 
+illustrate it. Though Christ be in heaven, and we on 
+
+_ earth, yet we can join our souls and bodies to his at 
+such a distance, without any substantial change of 
+either, by the same infinite spirit dwelling in him and 
+us; and so our flesh will become his when it is quick- 
+ened by his spirit, and his flesh ours, as truly as if we 
+did eat his flesh and drink his blood; and he will be 
+in us himself by his spirit, who is one with him, and 
+who can unite more closely to Christ than any ma- 
+
+- terial substance can do, or who can make a more close 
+and intimate union between Christ and us. And it 
+will not follow from hence that a believer is one per- 
+son with Christ, any more than that Christ is one 
+erson with the Father by that great mystical union, 
+Neither will a believer be hereby made God, but only 
+the temple of God, as Christ’s body and soul is, and 
+_ the spirit’s lively instrument, rather than the princi- 
+_ pal cause. Neither will a believer be necessarily per- 
+
+
+_ * # John xiv. 20. and xvii. 21—23. + John xv. 4, 5. 
+t Eph. i. 22, 23. ~ § John vi. 51—54. 
+
+
+- 
+
+
+% 
+
+
+E 
+
+
+ios Fy aes i 
+
+
+50 ; THE GOSPEL MYSTERY Divect. 111. 
+
+
+fect in holiness hereby ; or-Christ made a sinner, for 
+Christ knoweth how to dwell in believers by certain 
+measures and degrees, and to make them holy so far 
+only as he dwelleth in them. And though this union 
+seem too high a preferment for such unworthy crea- 
+tures as we are; yet considering the preciousness of 
+the blood of God, whereby we are redeemed, we 
+should dishonour God, if we should not expect a. 
+miraculous advancement to the highest dignity that 
+creatures are capable of through the merits of that 
+blood. Neither is there any thing in this union con- 
+trary to the judgment of sense, because the bond of 
+the union, being spiritual, falleth not at all under 
+the judgment of sense. 
+
+Several learned men of late acknowledge no other 
+union between Christ and believers, than such as per- 
+sons or things wholly separated, may have by their 
+mutual relations to each other; and accordingly they 
+interpret the places of Scripture that speak of this 
+union. When Christ is called the head of the church, 
+they account that a political head or governor is the 
+thing meant, When Christ is said to be in his people 
+and they in him, they think that the proper meaning 
+is that Christ’s law, doctrine, grace, salvation, or that 
+godliness is in them, and embraced by them: so 
+that Christ here must not be taken for Christ him- 
+self, but for some other thing wrought in them by 
+Christ. When Christ and believers are said to be 
+one spirit and one flesh, they understand it of the 
+agreement of their minds and affections, as if the 
+greatness of the mystery of this union mentioned* | 
+consisted in a harsh trope, or a dark improper ex- 
+pression, than in the depth and abstruseness of the 
+thing itself; and as if Christ and his apostles had 
+affected obscure intricate expressions, when they 
+speak to the church of things very plain and easy to 
+
+
+* Eph, vy. 32. 
+
+
+‘Direct. FTT, OF SANCTIFICATION. 51 
+
+
+be understood. Thus that great mystery, the union 
+of believers with Christ himself, which is the glory of 
+the church, and hath been highly owned formerly, 
+both by the ancient fathers, and many eminent pro- 
+testant divines, particularly writers concerning the 
+doctrine of the Lord’s Supper, and by a very general 
+consent of the church in many ages, is now exploded 
+out of the new model of divinity. The reason of ex- 
+raga it, as I judge in charity, is not because our 
+ate learned refiners of divinity think themselves less 
+able to defend it, than the other two mysterious 
+unions, and to silence the objections of those proud 
+sophisters that will not believe what they cannot com- 
+prehend; but rather, because they account it to be 
+one of the sinews of Antinomianism that lay unob- 
+served in the former usual doctrine; that it tendeth 
+to puff up men with a persuasion that they are justi- 
+: fied, and have eternal life in them already, and that 
+_ they need not depend any longer upon their uncertain 
+_ performances of the condition of sincere obedience for 
+salyation; whereby they account the very foundation 
+of a holy practice to be subverted. But the wisdom 
+of God bau laid another manner of foundation for a 
+holy practice than they imagine, of which this union _ 
+- (which the builders refuse) is a principal stone next 
+to the head of the corner. And in opposition to their 
+- corrupt glosses upon the Scriptures that prove it, I 
+assert, that our union with Christ is the cause of our 
+nae pelrn to Christ as a political head-in all things, 
+and of the abiding of his law, doctrine, grace, salva~ 
+_ tion, and all edliches in us, and of our agreement 
+with him in our minds and affections; and therefore 
+_ it cannot be altogether the same thing with them, - 
+_ And this assertion is useful for a better understanding 
+f the excellency of this union. It is not a privilege 
+procured by our sincere obedience and holiness, as 
+some may imagine, or a reward of good works re- 
+rved for us in another world; but it is a privilege 
+towed on believers in their very first entrance into 
+
+
+G.M. ELLIOTT LIBRARY: 
+
+
+52 THE GOSPEL MYSTERY Direct, III. 
+
+
+a holy state, on which all ability to do good works 
+doth depend, and all sincere obedience to the law doth 
+follow after it, as fruit produced by it. 
+
+Having thus far explained the direction, I shall 
+now shew that though the truth contained in it be 
+above the reach of natural reason, yet it is evidently 
+discovered to those that have their understandings 
+opened, to discern that supernatural revelation of the 
+mysterious way of sanctification which God hath 
+given to us in the holy Scriptures. 
+
+First, There are several places in nai se that do 
+plainly express it. Some texts shew, that all things 
+pertaining to our salvation are treasured up for us in 
+Christ, and comprehended in his fulness ; so that we 
+must have them thence or not at all.* “ It pleased 
+the Father that in him should all fulness dwell.” 
+And in the same epistle,t the apostle sheweth, that 
+the holy nature ely we live to God, was first 
+produced in us by his death and resurrection: ‘ In 
+whom also ye are circumcised, in putting off the body 
+of the sins of the flesh; buried with him, quickened | 
+together with him, when you were dead in your sins. { 
+V’ho hath blessed us with all spiritual blessings in 
+heavenly places in Christ.” A holy frame of spirit, 
+with all its necessary qualifications, must needs be 
+comprehended here in all spiritual blessings: and these 
+are given us in Christ’s person in heavenly places, as 
+prepared and treasured up in him for us, while we are 
+upon earth: and therefore we must have our holy 
+endowments out of him, or not at all. In this text 
+some choose rather to read heavenly things, as in the 
+margin, because neither places nor things are expressed 
+in the original; but the former textual reading is to 
+be preferred before the marginal, as being the proper 
+sense of the original Greek phrase, which is, and must 
+necessarily be so rendered in two other places of this 
+same epistle.§ Another text is,|| which sheweth that 
+
+
+* Col. i. 19. + Col. di. 11, 12, 13. ~t Eph. i. 3. 
+§ Chap. iil, 10. and vi, 12. | 1 Cor. i. 30. 
+
+
+* 
+
+
+pr aes © 
+ect. LIT. OF SANCTIFICATION. 53 
+
+
+_ Christ is of God, made unto us sanctification, by which 
+_ We are able to walk holily: as well as wisdom, by the 
+knowledge of which we are savingly wise; and righ- 
+
+teousness, by the imputation of which we are justified ; 
+
+
+and redemption, whereby we are redeemed from all 
+
+
+misery, to the enjoyment of his glory, as our happi- 
+hess in the heayenly kingdom. Other texts of scrip- 
+_ ture shew plainly, that we receive our holiness out of 
+~ his fulness by fellowship with him.* “ Of his ful- 
+ness have we all received, and grace for grace.”” And 
+_ it is understood of grace answerable to the law given 
+_ by Moses, which must needs include the grace of 
+sanctification.t “Truly our fellowship is with the 
+Father, and with his Son Jesus Christ. God is light. 
+If we walk in the light as he is in the light, we have 
+- fellowship one with another.’ Hence we may infer, 
+_ that our fellowship with God and Christ doth include 
+particularly our having light, and walking in it holil 
+and righteously. There are other texts that teac 
+_ the proof of the whole direction fully, shewing not 
+_ only that our holy endowments are made ready first 
+_ in Christ for us, and received from Christ, but that 
+_ we receive them by union with Christ.{ “Ye have 
+_ put on the new man, which is renewed after the 
+_ Image of him that created him; where Christ is all, 
+_ and in all.§ He that is joined to the Lord is one 
+irit.|| I live ; yet not I, but Christ liveth in me. 
+This is the record that God hath given to us—eternal 
+life; and this life isin hisSon. He that hath the Son 
+_ hath life, and he that hath not the Son, hath not life.” 
+_ Can we desire that God should more clearly teach us, 
+that all the fulness of the new man is in Christ; and 
+all that spiritual nature and life whereby we live to 
+God in holiness ; and that they are fixed in him so 
+inseparable, that we cannot have them, except we be 
+
+
+*Jobni16,17.  ¢ 1Jobni.3,5,6,7.  ¢ Col ili. 10, 11. 
+§1Cor.vi17, | Galii.20, $1 Johny. 11. 
+ets E2 
+
+
+\ 
+
+
+joined to him, and have himself abiding in us? . Take | 
+
+
+ee ail 
+
+
+‘ F ae ta i kes em. 7 a 
+= NS 
+b4 THE GOSPEL MYSTERY Direct. I1f. 
+
+
+heed, lest through prejudice and hardness of heart, 
+you be guilty of making God a liar, in not believing 
+this eminent record that God hath given to us of his 
+Son. 
+Secondly, God is pleased to illustrate this mysteri- 
+ous manner of our sanctification, by such variety of 
+similitudes and resemblances, as may put us out of 
+doubt that it is truth, and such a truth as we are highly 
+concerned to know and believe. I shall endeavour to 
+contract the chief of these resemblances, and the force 
+of them briefly into one sentence; leaving it to those 
+that are spiritual, to enlarge their meditations upon 
+them. We receive from Christ a new holy frame 
+and nature, whereby we are enabled for a holy prac- 
+tice, by union and fellowship with him ; in like man- 
+ner,—1, As Christ lived in our nature by the Father.* 
+—2, As we receive original sin and death propagated 
+to us from the first Adam.t—3, As the natural body 
+receiveth sense, motion, and nourishment from the 
+head.{—4, As the branch receiveth its sap, juice, and 
+fructifying virtue from the vine.§—5, As the wife 
+bringeth forth fruit’ by virtue of her conjugal union 
+with her husband.||—6, As stones become a holy 
+temple by being built upon the foundation, and joined 
+with the chief corner-stone.—7, As we receive the 
+nourishing of bread by eating it, and-of wine by 
+drinking it, ] which last resemblance is used to seal to 
+us our communion with Christ in the Lord’s Supper. 
+Here are seven resemblances instanced, whereof some 
+do illustrate the mystery spoken of more fully than 
+others; all of them do some way intimate, that our 
+new life and holy nature is first in Christ, and then 
+in us by a true proper union and fellowship with 
+-him. If any should urge that the similitudes of Adam 
+and his seed and of married couples, do make rather 
+
+
+* John vi. 57. ft Rom. xv. 12, 14, 16, 17. t Col. ii. 19. 
+§ John y. 51, 55, 57. || Rom. vii. 4. q 1 Pet. ii. 4, 5, 6. 
+} John vi, 51, 55, 57. 
+
+
+} 
+
+
+Direct. III. 
+
+
+OF SANCTIFICATION, 55 
+
+
+for a relative than a real union betwixt Christ and 
+
+
+us; let them consider that all nations are really made 
+
+
+- of one blood, which was first in Adam ;* and that the 
+
+
+_first woman was made out of the body of Adam, and 
+was really bone of his bone, and flesh of his flesh. 
+And by this first married couple, the mystical union 
+of Christ and his church is eminently resembled.t 
+And yet it supposeth both these resemblances in the 
+nearness and fulness of them; because those that are 
+joined to the Lord, are not only one flesh, but one 
+spirit with him. 
+
+Thirdly, The end of Christ’s incarnation, death and 
+resurrection, was to prepare and form a holy nature 
+and frame for us in hinvelf, to be communicated to 
+us by union and fellowship with him; and not to 
+enable us to produce in ourselves the first original of 
+such a holy nature by our own endeayours. 
+
+1, By his incarnation, there was a man created in 
+a new holy frame, after the holiness of the first Adam’s 
+frame had been marred and abolished by the first 
+transgression: and this new frame was more excel- 
+lent than ever the first Adam was; because man was 
+really joined to God by a close inseparable union of 
+the divine and human nature in one person, Christ ; 
+so that these natures had communion each with other 
+in their actings, and Christ was able to act in his hu- 
+man nature, by power proper to the divine nature, 
+wherein he was one God with the Father, These 
+words that he spake while he was upon earth he spoke 
+not of himself, by any mere human power, but the 
+Father that dwelt in him, he did the works.} Why 
+
+~ was it that Christ set up the fallen nature of man in 
+such a wonderful frame of holiness, in bringing it to 
+live and act by communion with God, living and act- 
+
+
+_ ing init? One great end was, that he might com- 
+
+
+| municate this excellent frame to his seed, that should 
+
+
+* Acts. xvii. 26, + Gen. ii. 22, 33, 24. with Eph. v. 30, 31, 32. 
+“+ ft John xiv. 10. 
+
+
+56 THE GOSPEL MYSTERY Direct. II, 
+
+
+be born of him, and in him, by his spirit as the last 
+Adam, the quickening spirit; that, as we have borne 
+the image of the earthly man, so we might also bear 
+the image of the heayenly,* in holiness here and in 
+glory hereafter. Thus he was born Immanuel, God 
+with us, because the fulness of the Godhead, with all 
+holiness, did first dwell in him bodily, even in his 
+human nature, that. we might be filled up with that 
+fulness in him.+ Thus he came down from heayen 
+as living bread, that as he liveth by the Father, so 
+those that eat him may live by him,} by the same 
+life of God in them that was first in him. 
+
+2, By his death he freed himself from the guilt of 
+our sins imputed to him, and from all that mnocent 
+weakness of his human nature, which he had borne 
+for a time for our sakes. And by freeing himself, he 
+prepared a freedom for us from our own natural con- 
+dition ; which is both weak as his was, and also pol- 
+luted with our guilt and sinful corruption. Thus the 
+corrupt natural estate, which is called in Scripture 
+the old man, was crucified together with Christ, that the 
+body of sin might be destroyed. And it is destroyed 
+in us, not by any wounds that we ourselves can give 
+to it, but by our partaking of that freedom from it, _ 
+and death unto it, that is already wrought out for us 
+by the death of Christ ; as is signified by our baptism, 
+wherein we are buried with Christ by the application 
+of his death to us,§ God “ sending his own co in the 
+likeness of sinful flesh, for sin (or, by a sacrifice for 
+sin, as in the margin) condemned sin in the flesh ; 
+that the righteousness of the law might be fulfilled in 
+us, that walk not after the flesh, but after the spirit.” || 
+Observe here, that though Christ died, that we might 
+be justified by the righteousness of God and of faith, 
+not by our righteousness which is of the law,4] yet 
+
+
+* 1 Cor. xv. 45, 49. Tt Matt. i. 23. Col. ii. 9, 10. 
+t John vi. 53,51.  § Rom. vi. 2. 8, 4, 10, 11. || Rom, viii. 3,4. 
+q Rom, x. 4, 5,6, Phil, iii, 9V 
+
+
+Direct. III. OF SANCTIFICATION, 57 
+
+
+he died also, that the righteousness of the law might 
+be fulfilled in us, and that by walking after his spirit, 
+as those that are in Christ.* He is resembled in his 
+‘death to a corn of wheat dying in the earth, that it 
+may propagate its own nature, by bringing forth much 
+fruit ;+ to the passover that was slain, that a feast 
+_ might be kept upon it ; and to bread broken, that it 
+may be nourishment to those that eat it ; { to the rock 
+smitten that water may gush out of it) for us to 
+drink.§ He died, that he might make of Jew and 
+Gentile, one new man in himself, || and that he might 
+see his seed. é. e. such as derive their holy nature from 
+him. Let these Scriptures be well observed, and 
+they will sufficiently evidence that Christ died, not 
+that we might be able to form a holy nature in our- 
+selves, but that we might receive one ready prepared 
+and formed in Christ for us, by union and fellowship 
+with him. 
+_ 3, By his resurrection he took possession of spiritual 
+life for us, as now fully procured for us, and made to 
+be our right and property by the merit of his death : 
+and therefore we are said to be quickened together 
+with Christ, even when we were dead in sins, and to 
+be raised up together, yea, and to be made to sit to- 
+_ gether in heavenly places, in Christ Jesus, as our head, 
+while we continue upon earth in our own persons.** 
+His resurrection was our resurrection to the life of 
+holiness, as Adam’s fall was our fall in spiritual death. 
+And we are. not ourselves the first makers and formers 
+of our new holy nature, any more than of our original 
+corruption ; but bothare formed ready for us to partake 
+— ofthem. And, by union with Christ we partake of that 
+spiritual life that he took possession of for us at his 
+resurrection, and thereby we are enabled to bring forth 
+_ the fruits of it; asthe Scripture sheweth by the simili- 
+
+
+ie tude of a marriage union.tt “We are married to 
+
+
+a 
+Hs 
+
+
+* Rom. ibid. + John xii. 24, t1 Cor. v. 7, 8. & xi. 24. 
+$1 Cor. x. 4. || Eph. ii. 15. q Isa. liii. 10, 
+§ ** Eph. ji, 5, 6. tt Rom. vii. 4. 
+
+
+4) 
+
+
+Baits bi 
+AO Ds) An Ot ee ae 
+
+
+= i” Gee eed 
+
+
+"ah eT Tee Pry ee, 
+| Po 
+
+
+58 THE GOSPEL MYSTERY Direct. TIT. 
+
+
+him that is raised from the dead, that we might bring 
+forth fruit unto God.” Baptism signifieth the appli- 
+cation of Christ’s resurrection to us, as well as his 
+death; we are raised up with him in it, to newness of 
+life, as well as buried with him, and we are taught 
+thereby, that, because, “he died unto sin once, and 
+liveth unto God, we should likewise reckon. ourselves 
+to bedead indeed unto sin, and alive unto God, through 
+Jesus Christ our Lord.” * 
+
+Fourthly, Our Sanctification is by the Holy Ghost, 
+by whom we live and walk holily.t Now the Holy 
+Ghost first rested on Christ in all fulness, that he 
+might be communicated from him to us; as was sig- 
+nified to John the Baptist, by the similitude of the 
+descending of a dove from the opened heayens, resting 
+on Christ at his baptism. And when he sanctifieth 
+us, he baptizeth us into Christ, and joineth us to 
+Christ by himself, as the great bond of union.§ So 
+that, according to the Scriptural phrase, it is all one 
+to have Christ himself, and to have the spirit of 
+Christ in us.|| “ He glorifieth Christ; for he receiveth 
+those things that are Christ’s, and sheweth them to 
+us. He giveth us an experimental knowledge of 
+those spiritual blessings which he himself prepared 
+for us by the incarnation, death, and resurrection of 
+Christ. 
+
+Fifthly, The effectual causes of these four principal 
+endowments, which in the foregoing direction, were 
+asserted as necessary to furnish us for the immediate 
+
+«practice of holiness, are comprehended in the fulness 
+of Christ, and treasured up for us in him; and the en- 
+dowments themselves, together with their causes, are 
+attained richly by union and fellowship with Christ, 
+If we be joined to Christ, our hearts will be no longer 
+left under the power of sinful inclinations, or in a 
+mere indifferency of inclination to good or evil; but 
+
+
+* Rom. vi. 4, 5, 10, 11. + Rom. xv. 16. t John i. 32, 33. 
+§1 Cor. xii. 13, {| Rom. vifi. 9, J0. - John xvi. 14, 15. 
+
+
+Direct. ILI. OF SANGTIFICATION. 
+_ they will be powerfully endowed with a power, bent, 
+‘and propensity te the practice of holiness, by the 
+spirit of Christ dwelling in us, and inclining us to 
+| tind spiritual things, and to lust against the flesh.* 
+And we have in Christ a full reconciliation with God, 
+and an advancement into higher favour with him, 
+than the first Adam had in the state of innocency : 
+because the righteousness that Christ wrought out 
+for us by his obedience unto death, is imputed to us 
+_ for our justification: which- is called_the righteous- 
+ness of God, because it was wrought by one that is 
+- God as well as man; and therefore it is of infinite 
+value, to satisfy the justice of God for all our sins, 
+and to procure his pardon and highest favour for us.t 
+
+_ And that we may be persuaded of this reconciliation, 
+we receive the spirit of adoption, through Christ, 
+whereby we cry, Abba, Father.[ Hereby also we 
+are persuaded of our future enjoyment of everlasting 
+happiness, and of sufficient strength both to will and to 
+perform our duty acceptably, until we come to that 
+enjoyment. For the spirit of adoption teacheth us to 
+conelude, that if we be the children of God, then we 
+are heirs of God, and joint heirs with Christ ; and that 
+
+_ the law of the spirit of life that is in Christ Jesus, 
+/ maketh us free from the law of sin and death; and 
+_ that nothing shall be against us, nothing shall separate 
+us from the love of God in Christ, but, in all opposi- 
+- tion and difficulties that we meet with, we shall be, 
+at last, more than conquerors through him that loved 
+_us.§ Furthermore, this comfortable persuasion of 
+our justification and future happiness, and all saving 
+privileges, cannot tend to licentiousness, as it is given 
+only in this way of union with Christ; because it is 
+oined inseparably with the gift of sanctification, by 
+the spirit of Christ, so that we cannot have justifica- 
+tion, or any saving privilege in Christ except we 
+
+
+<I 
+
+
+er 
+
+
+Scie ete «ROB 
+
+
+Pee 
+
+
+Rom. viii. ¥,4,5. Gal. y. 17. $2 Cor. v.21, Rom. v. 19. 
+ $ Rom. vili.15. _ § Rom. vili, 17, 23, 35, 37, 39. 
+
+
+60 THE GOSPEL MYSTERY Direct. III. © 
+
+
+receive Christ himself, and his holiness, as well as 
+any other benefit; as the Scripture testifieth, that 
+“there is no condemnation to them which are in 
+Christ Jesus, who walk not after the flesh, but after 
+the spirit.* 
+
+Siathly, Whereas it may be doubted, whether the 
+saints that lived before the coming of Christ in the 
+flesh could possibly be one flesh with him, and receive 
+anew nature by union and fellowship with him, as 
+prepared for them in his fulness; we are to know, that 
+the same Christ that took our flesh, was. before 
+Abraham,f and was fore-ordained before the founda- 
+tion of the world, to be sacrificed as a lamb without 
+blemish, that he might redeem us from all iniguit 
+by his precious blood, and he had the same spirit 
+then, which filled his human nature with all its ful- 
+ness afterwards, and raised it from the dead; and he 
+gave that spirit then to the church.§ Now, this 
+eee was able and effectual to unite those saints to 
+that flesh which Christ was to take to himself, in the 
+fullness of time, because he was the same in both, 
+and to give out to them that grace with which Christ 
+would afterwards fill his flesh, for their salvation, as 
+well as ours. Therefore David accounted Christ’s 
+flesh to be his, and spake of Christ’s death and resur- 
+rection as his own before-hand, as full as any of us 
+can do since his accomplishment, || “‘ My flesh also shall 
+rest in hope: for thou wilt not leave my soul in hell; 
+neither wilt thou suffer thine Holy One to see cor- 
+ruption. Thou wilt shew me the path of life.” 
+Yea, the saints before David’s time, did all eat of the 
+same spiritual meat, and drink of the same spiritual 
+drink, even of the same Christ, as we do, and therefore 
+were partakers of the same privilege of union and fel- 
+lowship with Christ.q And, when Christ was mani- 
+fested in the flesh, in the fulness of time, all things in 
+
+
+*“ Rom. viii. 1. + John viii. 58. $1 Pet. i. 18—20, 
+§ 1 Pet. i. 11, and iii. 18, 19. || Psa. xvi. 9, 1). { 1 Cor, x. 3,4. — 
+
+
+III. OF SANCTIFICATION. 61 
+
+
+heaven and on earth, all the saints departed, whose 
+pirits were then made perfect in heaven, as well as 
+_ the saints that then were, or should afterwards be on 
+earth, were gathered together in one, and compre- 
+
+hended in Christ as their head.* And he was the chief 
+corner-stone, in whom the building of the whole 
+_ church upon the foundation of the prophets before, 
+_ and the apostles, after his coming, being fitly framed 
+together, groweth into a holy temple in the Lord.t 
+_ “Jesus Christ is the same, yesterday, and to-day, and 
+for ever.” { His incarnation, death, and resurrection, 
+were the cause of all the holiness that ever was, or 
+shall be given to man, from the fall of Adam to the 
+end of ie world; and that by the mighy power of 
+his spirit, whereby all saints that ever were, or shall 
+be, are joined together, to be members of that one 
+
+
+: mystical body, whereof he is the head. 
+
+
+4 
+
+
+_ 
+
+
+DIRECTION VI. 
+
+_ The means or instruments whereby the spirit of God accomplisheth 
+: our union with Christ, and our fellowship with him in all holiness, 
+; are,t hegospel, whereby Christ entereth into our hearts to work faith 
+in us; and faith, whereby we actually receive Christ himself, with 
+
+all his fulness into our hearts. And this faith is a grace of the 
+Spirit, whereby we heartily believe the gospel, and also believe on 
+Christ as he is revealed, and freely promised to us therein, for all 
+his salvation. 
+
+
+EXPLICATION. 
+
+
+_ Tuar which I asserted, in the foregoing direction, 
+- concerning the necessity of our being in Christ, and 
+haying Christ in us by a mystical union, to enable 
+us for a holy practice, might put us to a stand in our 
+endeavours for holiness; because we cannot imagine 
+how we should be able to raise ourselves above our 
+ural sphere to this glorious union and fellowship, 
+
+
++ Eph. ii. 20,21. t Heb. xiii. 8. 
+4 1) 
+
+
+“e 
+NS 
+62 THE GOSPEL MYSTERY Direct, IV. 
+
+
+é 
+
+
+until God be pleased to make known to us, by super- 
+natural revelation, the means whereby his spirit 
+maketh us partakers of so high a privilege. But God 
+is pleased to help us at a stand to go on forward, by 
+revealing two means or instruments, whereby hi: 
+spirit accomplisheth the mystical union and fellow- 
+ship between Christ and us, and whereby rationa 
+creatures are capable of attaining thereunto, by hi: 
+spirit working in them. 
+
+One of these means is the gospel of the grace o 
+God, wherein God doth make known unto us thi 
+unsearchable riches of Christ, and Christ in us, the 
+hope of glory ;* and doth also invite us and commanc 
+us to believe on Christ for his salvation, and that doth 
+encourage us by a free promise of that salvation t 
+all that shall believe on him.t This is God’s owr 
+instrument of conveyance, wherein he sendeth. Chris’ 
+to us to bless us with his salvation.t It is the mini 
+stration of the spirit and of righteousness.§ Faith 
+cometh by \the hearing of it; and therefore it is 
+great instrument whereby we are begotten in Christ, 
+and Christ is formed in us.||_ There is no need for u 
+to say in our hearts, “ who shall ascend into heaven 
+to bring Christ down from above? or who shall descenc 
+into the deep, to bring up Christ from the dead?’ 
+that we may be united, and have fellowship with him 
+in his death and resurrection: for the word is nigh t« 
+us, the gospel, the word of faith, in which Chris 
+himself graciously condescendeth to be nigh to us; 
+that we may come at him there, without going an} 
+further, if we desire to be joined to him. 
+
+The other of the means is faith, that is wrought in u 
+by the gospel. This is our instrument of reception 
+whereby the union between Christ and us is accom 
+plished, on our part, by our actual receiving Chris 
+
+
+* Eph. iii. 8. Col. 1. 27. { Acts xiii, 38, 39. Rom. ix. 9, 11. 
+t Acts iii. 26.  §2 Cor, iii. 6, 8,9. || Rom. x. 16, 17. 1 Cor. iy. 14 
+Gal. iv. 19. { Rom. x, 6,8. 
+
+
+Direct. IV. OF SANCTIFICATION. ’ 63 
+
+
+himself, with all his fullness, into our hearts; which 
+is the principal subject of the present explanation. 
+The faith which philosophers eee treat of, 
+is only a habit of the understanding, whereby we 
+assent to a testimony upon the authority of the testi- 
+fier. Accordingly, some would have faith in Christ 
+to be no more than a believing the truth of things in 
+religion, upon the authority of Christ testifying them. 
+But the apostle sheweth, that the faith whereby we 
+are justified, is faith in christ’s blood,* not only in 
+his authority as a testifier, And though a mere as- 
+sent to a testimony were sufficient faith for knowledge 
+of things, which the philosophers aimed at ; yet we 
+are to consider, that the design of saving faith is, not 
+only to know the truth of Christ and his salvation, 
+testified and promised in the gospel, but also to ap-~ 
+poet and receive Christ and his salvation, as given 
+y and with the promise. Therefore saving faith 
+must necessarily contain two acts, believing the truth 
+of the gospel, and believing on Christ, as promised 
+freely to us in the gospel for all salvation. By the 
+one, it receiveth the means wherein Christ is conveyed 
+to us; by the other, it receiveth Christ himself and 
+his salvation in the means: as it is one act, to receive 
+_the breast or cup wherein milk or wine are conveyed ; 
+and another act, to suck the milk in the breast, and 
+to drink the wine in the cup, And both these acts 
+- must be performed heartily, with an unfeigned love 
+to the truth, and a desire of Christ and his salvation 
+_ aboveallthings. This is our spiritual appetite, which 
+is necessary for our eating and drinking Christ, the food 
+_of life, as a natural appetite is for bodily nourishment. 
+- Our assenting unto or believing the gospel, must not 
+be forced by mere conviction of the truth, such as 
+icked men and devils may be brought to, when 
+ey had rather it were false ; neither must our be- 
+lieving on Christ be only constrained for fear of 
+
+
+* Rom, iii. 24, 25. © 
+\a 
+
+
+Ij 
+
+
+Nee eS eee ae ee a eR 
+
+
+oe 7?) BS ee - 
+i 4 et aS 
+
+
+=e 
+
+
+64 THE GOSPEL MYSTERY Direct. IV. 
+
+
+damnation, without any hearty love and desire to- 
+wards the enjoyment of him: but we must receive 
+the love of the truth by relishing the goodness and 
+excellency of it; and we must “account all things 
+loss for the excellency of the knowledge of Christ — 
+Jesus our Lord, and count them but dung, that we 
+may win Christ, and be found in him ;”* esteeming 
+Christ to be all our salvation and happiness,t in 
+whom all fulness doth dwell.t And this love must 
+be to every part of Christ’s salvation ; to holiness, as 
+well as forgiveness of sins. We must desire earnestly, 
+that God would create in us a clean heart and right 
+spirit, as well as hide his face from our sins ;§ not - 
+like many, that care for nothing in Christ but only 
+deliverance from hell. “ Blessed are they that hunger 
+and thirst after righteousness ; for they shall be fill- 
+ed.” || The former of these acts doth not immediately 
+unite us to Christ, because it is terminated only on 
+the means of conveyance, the gospel ; yet it is a say- 
+ing act, if it he rightly performed, because it inclineth 
+and disposeth the soul to the latter act, whereby 
+Christ himself is immediately received into the heart. 
+He that believeth the gospel with hearty love and 
+liking, as the most excellent truth, will certainly with 
+the like heartiness believe on Christ for his salvation. 
+“They that know the name of the Lord, will cer- 
+tainly put their trust in him ;”4] Therefore, in Scrip- 
+ture, saving faith is sometimes described by the former — 
+of these acts, as if it were a mere believing the gospel ; 
+sometimes by the latter, asa believing on Christ or 
+in Christ.[ “ If thou believe in thine heart that God 
+raised him from the dead, thou shalt be saved.” The 
+Scripture saith, “that whosoever believeth on him 
+shall not be ashamed ; whosoever believeth that Jesus 
+- is the Christ, is born of God. ‘These things have 7 — 
+written unto you that believe on the name of the Son — 
+
+
+*2 Thess. ii. 10, Phil. iii, 8, 9. + Col. ili. 11. t Col. i. 19. 
+§ Psa. li. 9,10. || Matt. v. 6. 7 Psa. ix. 10, ] Rom, x. 9, 1). 
+
+
+aa 
+
+
+- 
+Direct. IV. OF SANCTIFICATION. 65 
+
+
+of God, that ye may know that ye have eternal life, 
+and that ye may believe on the name of the Son of 
+God’* 
+
+For the better understanding of the nature of faith, 
+let it be further observed, that the second and princi- 
+pal act of it, believing on Christ, including hehovans 
+on God the Father, Son, and Holy Ghost ; because 
+they are one and the same infinite God, and they all 
+concur in our salvation by Christ, asthe only Media- 
+tor between God and us, in whom all the promises of 
+God are yea and amen.” “ By him (as Mediator) 
+we believe on God, that raised him from the dead, 
+and gaye him glory, that our faith and hope might be 
+inGod.”{ And it is the same thing with trusting on 
+God, or on the Lord, which is so highly commended 
+
+in the whole Scripture, especially in the Old Testa- 
+ment ; as may easily a re by considering, ‘that it 
+hath the same causes, effects, objects, adjuncts, appo- 
+sites, and all the same circumstances, excepting only 
+-that it had a respect to Christ as promised, before his 
+coming, and now it respecteth him as already come 
+in the flesh. Believing in the Lord, and trusting on 
+his salvation, are equivalent terms, that explain one 
+another.§ 1 confess, that trusting on things seen or 
+known by the mere light of reason, as on our own 
+wisdom, power, riches, on are or any arm of flesh, 
+may not so properly be called believing on them ; but 
+trusting on a Saviour, as discovered by a testimony, 
+is properly believing on him. It is also the same 
+thing that is expressed by the terms of resting, rely- 
+ing, leaning, staying ourselves on the Lord, called 
+hoping in ie Lord ; because it is the ground of that 
+expectation which is the proper act of hope, though 
+our believing and trusting be for the present, as well 
+as future benefit of this salvation. ‘Nhe reason why 
+is so commonly expressed, in the Scriptures of the 
+Testament, by the term of believing on Christ, 
+
+
+F2 
+
+
+.  F2Cor, 1.20, t1Peti.2l, §yPs . Ixxvill, 22. 
+
+
+am 
+
+
+66 _ THE GOSPEL MYSTERY Direct. IV. 
+
+
+might be, probably, because, when that part of Serip- 
+ture was written, there was cause, in a special manner, 
+to urge believing the testimony that was then newly 
+revealed by the te 
+Having thus explained the nature of faith, I come 
+now to.assert its proper use and office in our salvation. » 
+- That it is the means and instrument whereby we re- 
+ceive Christ, and all his fulness, actually into our 
+hearts. This excellent use and office of faith is en- 
+countered by a multitude of errors. Men naturally 
+esteem, that it is too small and slight a thing to pro- 
+duce so great effects ; as Naaman thought washing in 
+Jordan too small a matter for the cure of his leprosy. 
+They contemn the true means of entermg in at the 
+strait gate, because they seem too easy for such pur- 
+ose ; and thereby they make the entrance not only 
+ifficult, but impossible to themselves. Some will 
+allow, that faith is the sole condition of our justifica- 
+tion, and the instrument to receive it, aécording to 
+the doctrine maintained formerly by the Protestants 
+against the Papists; but they account, that it is not 
+sufficient or effectual to sanctification, but that it 
+rather tendeth to licentiousness, if it be not jomed to 
+some other means, that may be powerful and effectual 
+to secure a holy practice. They commend this great 
+doctrine of Protestants as a comfortable cordial for 
+persons upon their death-beds, or in agonies under 
+terrors of conscience: but they account, that it is not 
+good for ordinary food, and it is wisdom in ministers — 
+to preach it seldom and sparingly, and not without 
+some antidote or corrective, to prevent the licentious- 
+ness to which it tendeth. Their common antidote or 
+corrective is, that sanctification is necessary to salva- 
+tion, as well as justification ; and that though we be 
+justified by faith, yet we are sanctified by our own 
+performance of the law ; and so they set up salvation 
+by works, and make the grace of justification to be of 
+none effect, and not at all comfortable. If it had 
+indeed such a malignant influence upon practice, 
+
+
+ey 
+
+
+Direct. IV. OF SANCTIFICATION,- 67 
+
+
+could not be owned as a doctrine proceeding from the 
+most holy God; and all the comfort that it affords, 
+mustneeds be ungrounded and deceitful. This con- 
+sequence is well understood by some late refiners of 
+the Protestant religion; and therefore they have 
+thought fit to new-model this doctrine, and to make 
+saving faith to be only a condition to procure a right 
+and title to our justification by the righteousness of 
+Christ, which must be performed before we can lay 
+any good claim to the enjoyment of it, and before we 
+have any right to use any instrument for the actual 
+receiving of it, and this they call an accepting of, or 
+receiving Christ. And that they may the better se- 
+cure the practice of holiness by their conditional faith, 
+they will not have trusting on God or Christ for sal- 
+vation, to be accounted the principal saving act of it ; 
+because, as it seemeth to them, many loose wicked 
+people, trust on God and Christ for their salvation as 
+much as others, and are, by their confidence, hardened 
+the more in their wickedness ; but they had rather 
+_ it should be obedience to all Christ’s laws, at least in 
+resolution ; or a consent that Christ should be their 
+Lord, accepting of his terms of salvation, and a resig- 
+nation of themselves to his government in all things. 
+
+
+It is a sign that the Scripture-form of teaching is 
+
+
+grown into disesteem with our great masters of rea- 
+son, when trusting in the Lord, so much commended 
+in Scripture, is accounted a mean and ordinary thing. 
+They endeayour to affright us from owning faith to 
+be an instrument of justification, by telling us, that 
+thereby we that use the instrument, are made our 
+own principal justifiers, to the dishonour of God ; 
+hough it might be easily answered, that we are made 
+thereby only the principal receivers of our own justi- 
+ation from God, the giver of it, to whom all the 
+ory doth belong. 
+_ All these errors will fall, if it can be proved that 
+such a faith as I have described, is an instrument 
+we actually receive Christ himself into our 
+
+
+4 
+“4 
+
+
+68 THE GOSPEL MYSTERY Direct. IV. 
+
+
+hearts, and holiness of heart and life, as well as justi- 
+fication, by union and fellowship with him. For the 
+proof of it, I shall offer the following arguments. 
+First, By faith we have the actual enjoyment and 
+possession of Christ himself, and not only of remission 
+of sins, but of life, and so of holiness. “ Christ 
+dwelleth in our hearts by faith.”*, We live to 
+God; and yet not we, but “ Christ liveth in us by 
+the faith of the Son of God.t He that believeth on 
+the Son of God, hath the Son and everlasting life that 
+isin him.t He that heareth Christ’s word, and be- ~ 
+lieveth on him that sent Christ, hath everlasting life, 
+and is passed from death unto life.”§ These texts 
+express clearly such a faith as I have described. 
+Therefore the efficiency or operation of faith, in order 
+to the enjoyment of Christ and his fulness, cannot be 
+the procurement of a bare right or title to this enjoy- 
+ment; but rather it must be an entrance into it, and 
+taking possession of it. ‘We have our access and 
+entrance by faith into that grace of Christ wherein 
+we stand. || 
+Secondly, The Scripture plainly ascribeth this effect 
+to faith, that by it we receive Christ, put him on, 
+are rooted and grounded in him: and also that we 
+receive the Spirit, remission of sin, and an inheri- 
+tance among all them which are sanctified.] And 
+the Scripture illustrateth this receiving by the 
+similitude of eating and drinking: “He that be- | 
+lieveth on Christ, drinking the living water, or 
+his Spirit.** Christ is the bread of life; his flesh — 
+is meat indeed, and his blood is drink indeed.” 
+And the way to eat and drink it, is, to believe in 
+Christ ; and, by so doing, we dwell in Christ, and 
+Christ-in us, and have everlasting life.t+ How can it~ 
+
+
+* Eph. iii. 17. t Gal. ii. 19, 20. 41 John v. 12, 13, and iii. 36, | 
+§ John vy. 24, || Rom. v. 2. q John i. 12. Gal. iii. 26, 27. 
+Col. ii. 6,7. Gal. iii. 14. Acts 26. 18. ** John vii. 37, 38, 39 
+tf John vi. 35, 47, 48, 54, 56, Ae pale 3 
+
+
+- nut 
+
+
+Direct. ay. OF SANCTIFICATION, 69 
+
+
+be taught more clearly, that we receive Christ him- 
+
+_self properly into our souls by faith, as we do receive 
+food into our bodies by eating and drinking, and that 
+Christ is as truly united to us thereby as our food 
+when we eat and drink it? So that faith cannot be a 
+condition to procure a mere right or title to Christ, 
+no more than eating or drinking procureth a mere 
+right or title to our food; but it is rather an instru- 
+ment to receive it, as the mouth that eateth and 
+drinketh the food. 
+
+Thirdly, Christ with all his salvation, is freely given 
+by the grace of God to all that believe on him; for 
+“we are saved by grace through faith; and that not 
+of ourselves; it is the gift of God.* We are justified 
+freely by his grace, through faith in his blood.t 
+The Holy Ghost, who is the bond of union between 
+Christ and us, is a gift.’+ Now that which is a 
+gift of grace, must not at all be earned, purchased or 
+poe by any work or works performed as a con- 
+
+_dition to get a right or title to it; and therefore faith 
+itself must not be accounted such a conditional work. 
+“Tf it be by grace, it is no more of works; otherwise, 
+grace is no more grace.”§ The condition of a free 
+gift is only, take and have. And in this sense, we 
+will readily acknowledge faith to be a condition, 
+allowing a liberty in terms where we agree in the 
+thing: but, if you give a pepper-corn to purchase a 
+title to it, then you spoil the freeness of the gift. 
+The free offer of Christ to you is sufficient to confer 
+upon you a right, yea to make it your duty to receive 
+Christ and his salvation as yours. And because we 
+receive Christ by faith, as a free gift, therefore we 
+may account faith to be the instrument, and, as it 
+were, the hand whereby we receive him. 
+Fourthly, 1 hath been already proved, that all 
+iritual life and holiness is treasured up in the ful- 
+of Christ, and communicated to us by union with 
+
+
+8,9. + Rom, iil, 24,25, + Actsii,38. § Rom. xi. 6. 
+4 - a , e \\ 
+
+
+4 
+
+
+70 THE GOSPEL MYSTERY Direct. IV. 
+
+
+him. Therefore the accomplishing of union with 
+Christ, is the first work of saving grace in our hearts. 
+And faith itself being a holy grace, and part of spiri- 
+tual life, cannot be in us before the beginning of it; 
+but rather it is given to us, and wrought in the very 
+working of the union. And the way wherein it con- 
+duceth to the union, cannot be by procuring a mere 
+title to Christ as a condition, because then it should 
+be performed before the uniting work beginneth ; but 
+rather by being an instrument, whereby we may 
+actively receive and embrace Christ, who is already 
+come into the soul, to take possession of it as his own 
+habitation. 
+
+Pifthly, True saving faith, suchas I have described, 
+hath in its nature, and manner of operation, a pecu- 
+liar aptitude or fitness to receive Christ and his salva- 
+tion, and to unite our souls unto him ; and to furnish 
+the soul with a new holy nature, and to bring forth a 
+holy practice by.union and fellowship with him. 
+God hath fitted natural instruments for their office, as 
+the hands, feet, &c. so that we may know, by their 
+nature and natural manner of operation, for what use 
+
+
+. they are designed. In like manner we may know, 
+
+
+that faith is an instrument, formed on purpose for our 
+union with Christ and sanctification, if we consider 
+what a peculiar fitness it hath for the work. The dis- 
+covery of this is of great use for the understanding of 
+the mysterious manner of our receiving and practising 
+all holiness by union and fellowship with Christ, by 
+this precious grace of faith. And to make you, as it | 
+were, to see with your eyes, that it is such an instru- 
+
+
+_ment as I have asserted it to be, I shall present it to 
+
+
+your view in three particulars. : 
+
+First, The grace of faith is as well fitted for the 
+soul’s receiving Christ, and union with him, as any 
+instrument of the body is for receiving and closing 
+with things needful for it. By the very act of hearty 
+trusting or believing on Christ for all salvation and 
+happiness, the soul casteth and putteth away from it- 
+
+
+is 
+
+
+Direct. IV. OF SANCTIFICATION. 71 
+
+
+self every thing that keepeth it at a distance from 
+Christ ; as all confidence in our strength, endeavours, 
+works, privileges ; or in any worldly pleasures, pro- 
+fits, honours; or in any human helps and succours, 
+for our happiness and salvation : because such confi- 
+dences are inconsistent with our confidence in Christ 
+for all salvation. Paul, by his confidence in Christ, 
+was taken off from all confidence in the flesh; he suf- 
+fered the loss of glorying in his privileges and legal 
+righteousness, and counted all other enjoyments in 
+matters of the world, or of religion, to be but dung 
+that he might win Christ and be found in him.* The 
+voice of faith is, ‘“‘ Ashur shall not save us, we will not 
+ride upon horses, neither will we say any more to the 
+work of our hands, Ye are our gods: for in thee the 
+fatherless findeth mercy.t We have no might against 
+this great company of our spiritual enemies ; neither 
+know we what to do: but our eyes are upon thee.” } 
+I might multiply places of Scripture to shew what a 
+self-emptying grace faith is, and how it casteth other 
+confidences out of the soul, by getting above them to 
+Christ, as the only happiness and salvation. The same 
+act of trusting or believing on Christ, or on God, is 
+the very manner of our souls coming to Christ ;§ 
+drawing near to the Lord ;|| fleeing unto the Lord to 
+hide us ;{] making our refuge in the shadow of his 
+Wings ;** staying ourselves and our minds upon the 
+Lord ;+¢ laying hold on eternal life ;}:+ and lifting up 
+our soulstothe ford 3$§ rolling our way,and casting our 
+burden upon the Lord, |||| and of our eating and drink- 
+ing Christ, as hath already appeared. Let us consider, 
+that Christ and his salvation cannot be seen, or hand- 
+led, or attained to, by any bodily motion, but are re- 
+vealed and promised to us in the Word. Now, let 
+
+
+> _* Phil. fii. 3, 6—9. + Hos. xiv. 3. 2 Chron. xx. 12. 
+§ John vi. 35. || Psalm Ixxii. 28. ¥ Psalm cxiliii. 9. 
+_ ** Psalm vii. J. tt Isaiah 1. 10, & xxvi, 3. tt 1 Tim. vi, 12. 
+*_—s§§ Psalm xxv, 1. ||| Psalm xxxvii, 5, & ly, 22. 
+
+
+\) 
+
+
+cab ical 
+
+
+72 THE GOSPEL MYSTERY Direct. IV. 
+
+
+any invent, if they can, any way for the soul to exer- 
+cise any motion or activeness in the receiving of this 
+unseen promised salvation, besides believing the Word, 
+and trusting on Christ for the benefit promised. If 
+Christ were to be earned by works, or any other kind 
+of conditional faith ; yet a faith must be instrumen- 
+tal to receive him. Some think love as fit to be the 
+uniting grace ; but I have shewed, that love to Christ’s 
+salvation is an ingredient into faith. And though love 
+be an appetite unto union, yet we have no other like- 
+ly way to fill this appetite, while we are in this world, 
+besides trust in Christ for all his benefits, as he is pro- 
+mised in the gospel. 
+
+Secondly, There is in this saving faith a natural ten- 
+dency to furnish the soul with a holy frame and na- 
+ture, and all endowments necessary thereunto, out of 
+the fulness of Christ. A hearty affectionate trusting 
+on Christ for all his salvation, as freely promised to— 
+us, hath naturally enough in it to work in our souls a 
+rational bent and inclination to, and ability for, the 
+practice of all holiness; because it comprehendeth in 
+it a trusting that, through Christ, we are dead to sin, 
+and alive to God, and that our old man is crucified ;* 
+and that we live by the Spirit;+ and that we have 
+forgiveness of sins;{ and that God is our God;§ and 
+that we have in the Lord righteousness and strength. 
+whereby we are able to do all things;|| and that we 
+shall be gloriously happy in the enjoyment of Christ 
+to all eternity.4— When the saints in Scripture speak 
+‘so highly of such glorious spiritual privileges as I 
+have here named, they acquaint us*with the familiar 
+sense and language of their faith, trusting on God and 
+Christ, and they gave us but an explication of the na- 
+ture and contents of it? and they speal of nothing 
+more than what they receive out of the fulness of 
+Christ. And how can we otherwise judge but that 
+
+
+* Rom. vi, 2, 6. tGal.v,25.  tEph.if7. Col. i, 14. 
+§ Psa. xlviii, 14. || Isa, xlv, 24, Phil. iv, 13. J Phil. iif, 20, 21 
+
+
+those that have a hearty love to Christ, and can, upon 
+a good ground, think and speak such high things con- 
+cerning themselves, must needs be heartily 5 Fer 
+
+
+_ and mightily strengthened for the practise of holiness. 
+‘Thirdly, use faith has such a natural tendency 
+to dispose and strengthen the soul for the practice of 
+holiness, we have cause to judge.it a meet instrument 
+to accomplish every part of that practice in an accep- 
+table manner. Those that with a due affection believe 
+_ stedfastly on Christ for the free gift of all his salvation, 
+may find, by experience, that they are carried forth 
+_by that faith according to the measure of its strength 
+_ or weakness, to love God heartily, because God hath 
+loved them first;* to praise him, to pray unto him in 
+the name of Christ ;+ to be patient with cheerfulness 
+under all afflictions, giving thanks to the Father that 
+hath called them to his heayenly inheritance ;} to love 
+all the children of God out of love to their heavenly 
+Father :§ to walk as Christ walked,|| and to give 
+_ themselves up to live to Christin all things, as con- 
+strained by his love in dying for them.4— We have a 
+cloud of witnesses concerning the excellent works 
+that were produced by faith.** And though trusting 
+on Christ he accounted such a slight and contemptible 
+thing, yet I know no work of obedience which it is 
+not able to produce. And note the excellent manner 
+of working by faith. By it we live and act in all 
+good works, as people in Christ, as raised above our- 
+selves and our natural state, by partaking of him and 
+his salvation; and we do all in his name and on his 
+account. ‘This is the practice of that mysterious man- 
+ner of living to God in holiness, which is peculiar to 
+the Christian religion, wherein we live; and yet not 
+we, but Christ that liveth in us.tt “And who can 
+imagine any other way but this for such a practice, 
+
+
+* 
+Johniv, 19. + Eph. vy, 20,—John xvi, 26,27.  $ Col. i, 11, 12. 
+ -§ John y, 1. || 1 John ii, 6. q 2 Cor. v, 14. 
+: 4* Heb, xi, tt Gal. ii, 20. 
+Eat ii G \) 
+
+
+fA 
+
+
+74 THE GOSPEL MYSTERY Direct. IV. 
+
+
+while Christ and his salvation are known to us only : 
+
+
+by the gospel? 
+The explanation that I have made of the nature 
+
+
+and office of true faith, and of its aptitude for its office, . 
+
+
+is sufficient to evidence that it is a most we faith, as 
+it is called ;{ and that such a trusting on Christ as I 
+have described, in its own nature, cannot have any 
+tendency to licentiousness, but only to holiness; and 
+
+
+that it rooteth and groundeth us in holiness, more ° 
+
+
+than the mere accepting of any terms of salvation, 
+and consenting to have Christ for our Lord, can do ; 
+and is more powerful to secure a holy practice than 
+any of those resolutions of obedience, or resignating 
+acts, that some would have to be the great conditions 
+of our salvation; which are indeed no better than hy- 
+
+ocritical acts, if they be not produced by this faith. 
+
+here is indeed a counterfeit dead faith, such as wicked 
+
+
+men may have; and, if that tend to licentiousness, let _ 
+
+
+not true faith be blamed, but rather mark the de- 
+scription of it which I have given, that you may not 
+be deceived with a counterfeit faith instead of it, 
+
+I shall add something concerning the efficient cause 
+of this excellent grace, and of our union with Christ 
+by it: whereby it may appear that it is not so slight 
+and easy a way of salvation as some may imagine. 
+The Author and Finisher of our faith, and of our 
+union and fellowship with Christ by faith, is no less 
+than the infinite Spirit of God, and God and Christ 
+himself by the Spirit; for, “by one Spirit we are all 
+
+
+baptised into one body of Christ, and are all made to © 
+
+
+drink into one Spirit.t God granteth us, accordin 
+
+to the riches of his glory, to be strengthened with al 
+might by his Spirit inthe inner man, that Christ may 
+dwell in our hearts by faith.”{ If we do but consider 
+
+
+the great effect of faith, that by it we are raised to 
+
+
+live above our natural condition, by Christ and his 
+
+
+Spirit living in us, we cannot rationally conceive that 
+
+
+* Jude, verse 20. $1 Cor. xii, 12, 13. t Eph. iii, 16, 17. 
+
+
+ee Tf 
+pls ie 
+“a 
+
+
+Direct. IV. OF SANCTIFICATION. 75 
+
+
+-it should be within the power of nature to do any 
+thing that advanceth us so high. If God had done 
+no more for us in our sanctification, than to restore us 
+_ to our first natural holiness, yet this could not have 
+been done without putting forth his own almighty 
+power to quicken those that are dead in sin; how 
+much more is this almighty power needful to advance 
+us to this wonderful new kind of frame, wherein we 
+live and act above all the power of nature, by a higher 
+principle of life than was given to Adam in innocency, 
+even by Christ and his Spirit living and acting in us? 
+The natural man bringeth forth his offspring accord- 
+ing to his image, by that natural power of multiply- 
+ing with which God blessed him at his first creation ; 
+but the second Adam bringeth forth his offspring new- 
+born according to his image only by the Spirit.* 
+“ As many as receive him, even those that believe on 
+his name, are born, not of blood, nor of the will of 
+the flesh, nor of the will of man, but of God.” + Christ 
+took his own human nature into personal union with 
+himself, in the womb of the Virgin Mary, by the Holy 
+Ghost coming upon her and the power of the Highest 
+overshadowing her, the same power whereby the 
+world was created.{ So he taketh us into mystical 
+union and fellowship with himself, by no less than an 
+infinite creating power; for we are the workmanship 
+of God, created in Christ Jesus to good works ;§ and 
+if any man be in Christ, he is a new creature. || 
+For the accomplishing this great work of our new 
+creation in Christ, the Spirit of God doth first work 
+upon our hearts, by and with the gospel, to produce 
+in us the grace of faith. For, if the gospel should 
+come to us in word only, and not in power and in the 
+‘Holy Ghost, Paul might labour to plant, and Apollos 
+to water, without any success, because we cannot re- 
+_ ceive the things of the Spirit of God; yea, we shall 
+
+
+* John iii, 5. ¢ John i, 12, 13. t Luke i, 55. 
+
+§ Eph, ii, 10, - {| 2 Cor. 5,17. 
+“hi ay 
+yy: 
+
+TS ere 
+
+
+76 THE GOSPEL MYSTERY Direct. IV. 
+
+
+account thein foolishness, until the Spirit of God 
+enables us to discern them.* We shall never come 
+to Christ by any teaching of man, except we also 
+hear and learn of the Father, and be drawn to Christ 
+by his Spirit.t And when saving faith is wrought in 
+us, the same spirit giveth us fast hold of Christ by it. 
+As he openeth the mouth of faith to receive Christ, so 
+he filleth it with Christ ; or else the acting of faith 
+would be like a dream of one that thinketh he eateth ° 
+and drinketh, and when he awaketh he findeth him- 
+self empty. ‘The same Spirit of God doth both give 
+that faith whereby miracles were wrought, and did 
+work also the miracles by it; so also the same Spirit of 
+Christ doth work saving faith in us, and doth answer 
+the aim and end of that faith, by giving us union and 
+fellowship with Christ by it: so that none of the 
+glory of this work belongeth to faith, but only to 
+Christ and his spirit. And indeed, faith is of such an 
+humble self-denying nature, that it ascribeth nothing 
+that it receiveth to itself, but all to the grace of God: 
+and therefore God saveth us by faith, that all the 
+glory may be ascribed to his free grace. If Adam had 
+strength enough in innocency to perform the duty of 
+faith as well as we, yet it will not follow that he had 
+strength enough to raise himself above his natural state 
+into union with Christ: because faith doth not unite 
+us to Christ by its own virtue, but by the power of the 
+Spirit working by it and with it. Thus are we first 
+passive, and then active, in this great work of mystical 
+union; we are first apprehended of Christ, and then 
+we apprehend Christ. Christ entereth first into the 
+soul, to join himself to it, by giving it the spirit of 
+faith ; and so the soul receiveth Christ and his Spirit 
+by their own power ; as the sun first enlighteneth our 
+eyes, and then we can see it by its own light. We 
+may note further, to the glory of the grace of God, 
+
+
+s 
+
+
+*1 Thess. 1,5. 1 Cor. iii, 6, and fi, 14. } John vi, 44, 45. 
+
+
+—————————— 
+
+
+~ 
+
+
+Direct. V. OF SANCTIFICATION, ris 
+
+
+that this union is fully accomplished by Christ’s giy- 
+ing the spirit of faith to us, even before we act that 
+faith in the reception of him ; because, by this grace 
+or spirit of faith, the soul is inclined and disposed to 
+an active receiving of Christ. And, no doubt, Christ 
+is thus united to many infants, who have the spirit of 
+faith, and yet cannot act faith, because they are not 
+come to the use of their understandings ; but those of 
+riper years that are joined passively to Christ by the 
+spirit of faith, will also join themselves with, him ac- 
+tively, by the act of faith ; and, until they act this 
+faith, they cannot know or enjoy their union with 
+Christ, andj the comfort of it, or make use of it,jin 
+“gee any other duties of holiness acceptably in this 
+e; 
+
+
+DIRECTION V. 
+
+
+We cannot attain to the practice of true holiness by any of our endea- 
+yours, while we continue in our natural state, and are not par- 
+takers of a new state but by union and fellowship with Christ 
+through faith. 
+
+
+EXPLICATION. 
+
+
+Ir is evident all have not that precious faith whereby 
+Christ dwelleth in our hearts; yea, the number of 
+those that have it is small comparatively to the whole 
+world that lieth in wickedness?*. and many of those 
+that at length attain unto it, do continue without it 
+for some considerable time.t And though some may 
+have the spirit of faith given to them from their mo- 
+ther’s womb (as John the Baptist} ) yet even in them 
+there is a natural being by generation, before there 
+can be a spiritual being by regeneration.§ Hence 
+ ariseth the consideration of two states or conditions of 
+the children of men in matters that appertain to God 
+
+
+: * 1 John v, 19, 20, + Eph. ii, 12. t Luke i, 15, 44. 
+an ‘ §1 Cor. xv, 46. 
+
+
+eta be a oeredy- 
+
+
+f 
+
+
+78 THE GOSPEL MYSTERY Direct. V. 
+
+
+and godliness ; the one of which is vastly different 
+from the other. Those that have the happiness of a 
+new birth and creation in Christ by faith, are thereby 
+placed in a very excellent state, consisting in. the en- 
+joyment of the righteousness of Christ for their justi- 
+fication ; and of the spirit of Christ, to live by, in 
+holiness here and glory for ever ; as hath already ap- 
+fe: Those that are not in Christ by faith, cannot 
+
+e in a better state than that which they received to- 
+gether with their nature from the first Adam, by 
+being once born and created in him, or than they can 
+attain to by the power of that nature, with any such 
+help as God is pleased to afford toit. This latter I call 
+a natural state, because it consisteth in such things as 
+we have either received by natural generation, or can 
+attain to by natural power through divine assistance ; 
+as the Scripture calleth man in this state the natural 
+man.* The former I call a new state, because we 
+enter into it by a new birth in Christ ; and I may call 
+it a spiritual state, according to the Scripture, because 
+it is received from Christ the quickening Spirit ; and 
+the natural and spiritual man are opposed,t though 
+some call both these states spiritual, because the ever- 
+lasting weal and woe of the soul or spirit of man is 
+chiefly concerned in them. 
+
+Tt is a common error of those who are in a corrupt 
+natural state, that they seek to reform their lives ac- 
+cording to the law, without any thoughts that their 
+state must be changed, before their lives can be 
+changed from sin to righteousness. The heathens, 
+who knew nothing of a new state in Christ, were 
+
+
+urged by their own consciences, to practise several ~ 
+
+
+duties of the law according to the knowledge they 
+had by the light of nature.{ Israel according to the 
+flesh had a zeal of God and godliness, and endeavoured 
+to practise the written law, at least in external per- 
+formances, while they were enemies to the faith of 
+
+
+*1 Cor. ii, 143 f 1 Cor. ii, 14; 15.) | F Romadi, 14,15, | 
+
+
+Direct. V. OF SANCTIFICATION. 79 
+
+
+Christ. And Paul attained so far, that he was blame- 
+less in these external performances of the righteous- 
+ness of the law, while he persecuted the church of 
+Christ.* Some are so near the kingdom of God, 
+while they continue in a natural state, that they are 
+convinced of the spirituality of the law, that it bind- 
+eth us principally to love God with all our heart, soul, 
+mind, and strength, and to love our neighbour as our- 
+selves, and to perform universal obedience to God in 
+all our inward thoughts and affections, as well as in 
+all our outward actions, and to do all the duties that 
+we owe to our neighbour out of this hearty love.t 
+And they struggle and labour with great earnestness 
+to subdue their inward thoughts and affections to the 
+law of God, and to abstain not only from some sins, 
+but from all known sins, and perform every known 
+duty of the law with their whole heart and soul, as 
+they think; and are so active and intent in their 
+devout practice, that they overwork their natural 
+strength, and so fervent is their zeal, that they are 
+ready even to kill their bodies with fastings and other 
+miacerations, that they may kill their sinful lusts. 
+They are strongly convinced that holiness is absolutely 
+necessary to salvation, and deeply affected with the 
+terrors of damnation; and yet they were never so 
+much enlightened in the mystery of the gospel, as to 
+know that a new state in Christ is necessary to a new 
+life; therefore they labour in vain to reform their 
+natural state, instead of getting above it in Christ. 
+And some of these, when they have misspent many 
+years in striving against the stream of their lusts, 
+without any success, do at last fall miserably into 
+eas of ever attaining to holiness, and turn to 
+wallowing in the mire of their lusts, or are fearfully 
+swallowed up with horror of conscience. ‘There are 
+_ several false opinions whereby such ignorant zealots 
+- encourage themselves in their fruitless endeavours. 
+
+
+ant af 
+
+
+* * Phil, tii, 6. +) t Mark xii, 33, 34. 
+
+
+80 THE GOSPEL MYSTERY Direct. V. 
+
+
+Some of them judge that they are able to practise 
+holiness, because they are not compelled to sin, and 
+may abstain from it, if they will. ‘To this they add, 
+that Christ, by the merit of his death, hath restored 
+that freedom of will to do good, which was lost by the 
+fall, and hath set nature upon its legs again; and 
+that, if they endeavour to do what lieth in them, 
+Christ will do the rest, by assisting them with the 
+supplies of his saving grace; so they trust upon the 
+
+
+grace of Christ to help them in-their endeavours. They _ 
+
+
+plead further, that it would not consist with the jus- 
+tice of God to punish them for sin, if they could not 
+avoid it; and that it would be in vain for the minis- 
+ters of the gospel to preach to them, and exhort them 
+to any saving duty, if they cannot perform it, They 
+produce examples of heathens, and of such as had the 
+name of Christians, without any acquaintance with 
+the faith that I have described, who have attained to 
+a great excellency in religious words and works. 
+
+My work at present is, to deliver those ignorant 
+zealots from their fruitless tormenting labours, by 
+bringing them to despair of the attainment of holiness 
+in a natural state, that they may seek it only ina new 
+state by faith in Christ, where they may certainly 
+find it without such tormenting labour and anxiety 
+of spirit. For this end I shall confirm the truth as- 
+serted in the direction, and fortify it against the 
+forementioned false opinions, by the ensuing consi- 
+derations. 
+
+First, The foundation of this assertion is firmly 
+laid in the directions already explained, and confirmed 
+by many places in Scripture. For, if all endowments 
+necessary to enable us for a holy practice, be to be 
+had only in astate of union and fellowship with Christ 
+by faith, and faith itself, not by the natural power of 
+free-will, but by the power of Christ coming into the 
+soul by his Spirit, to unite us with himself; who 
+seeth not that the attainment of true holiness by 
+any of our most vigorous endeavours, while we con- 
+
+
+\3 
+
+
+ect. V. OF SANCTIFICATION. 
+
+
+_ tinue in our natural condition, is altogether hopeless? 
+Ineed add no more, were it not to shew more fully 
+what abundance of light the Scripture affordeth to 
+‘guide us aright in this part of our way, that those who 
+wander out of it by following any false light of their 
+own, or other’s corrupted judgments, may find them- 
+selves the more inexcusable. 
+__ Secondly, It is evident that-we cannot practise true 
+holiness while we continue in anatural state : because 
+we must be born again of water, and of the Spirit, or 
+else we cannot enter into the kingdom of God;* and 
+we are created in Christ Jesus unto good works, 
+which God hath before ordained, that we should walk 
+inthem.t If we could love God and our neighbour 
+as the law requireth, without a new birth and crea- 
+_ tion, we might live without them ; for Christ hath 
+said, This do, and thou shalt live.t Now a new birth 
+_ and creation is more than a mere reforming and re- 
+pairing our natural state. If we were put into a cer- 
+tain state and condition by the first birth and creation, 
+much more by the second. Yor the first produceth 
+
+the substance of a man as well as a state; the second 
+hath nothing to produce but a new state of the same 
+
+erson. And note, that we were first created and born 
+in Adam, the natural man; but our new birth and 
+ereation is in Christ, the spiritual man. And, if any 
+man he in Christ, he is in a new state, far different 
+from the state of Adam before the fall: he is wholly 
+
+a new creature; as it is written, Old things are passed 
+
+away; behold, all things are become new.$ 
+
+__ Thirdly, It is positively asserted by the apostle 
+
+Paul, that those who are in the flesh, cannot please 
+
+- God.|| Many are too overly and negligent in consi- 
+
+_ dering the sense of this gospel-phrase, what it is to be 
+
+a the flesh. They understand no more by it than to 
+
+he sinful, or to be addicted inordinately to please the 
+
+
+i 4 ae 
+m Hii, 3, 5. + Eph. ji, 10, ft Luke x, 8),  §2Cor.v,17.  ~ 
+
+Rhee ia oil Rom, viltya 
+‘al : Ka: 4 
+
+
+82 THE GOSPEL MYSTERY __ Direct. V. 
+
+
+sensitive appetite. They should consider that the 
+apostle speaketh here of being in the flesh, as the 
+cause of sinfulness; as, in the next verse he speaketh 
+of being in the Spirit, as the cause of holiness: and, 
+whatever cause it be, it must needs be distinct from its 
+effect. Sin isa property of the flesh, or something that 
+dwelleth in the flesh,* and therefore it is not the flesh 
+itself. The flesh is that which lusteth against the 
+Spirit,f and therefore it is not merely sinful lusting. 
+The true interpretation is, that by flesh is meant the 
+nature of man, as it is corrupted by the fall of Adam, 
+and propagated from him to us, in that corrupt state, 
+-by natural generation ; and to be in the flesh, is to be 
+in a natural state; as to be in the Spirit is to be ina 
+new state by the spirit of Christ dwelling in us.{° The 
+corrupt nature is called flesh, because it is received by 
+carnal generation ; and the new nature is called spirit, 
+because it is received by spiritual regeneration. “That 
+which is born of the flesh, is flesh ; and that which is 
+born of the spirit, is spirit.”’§ So the apostle, if he 
+be rightly understood, hath said enough to make us 
+despair utterly of attaining to true holiness, while we 
+continue in a natural state. 
+
+Fourthly, The apostle testifieth, that those that have 
+been taught as the truth is in Jesus, have learned to 
+ayoid the former sinful conversation, by putting off the 
+old man, which is corrupt according to the deceitful 
+lusts: and by putting on the new man, which, after 
+God, is created in righteousness, and true holiness.|| 
+Putting off the old man, and putting on the new man is 
+the same thing with not being in the flesh,‘ but in the 
+Spirit, in the foregoing testimony ; that is, putting off 
+our natural state, and putting on a new state, by 
+union and fellowship with Christ. The apostle him- 
+self sheweth, that by the new man is meant that ex- 
+cellent state where Christ is all, and in all.— There- 
+
+
+* Rom, vii, 18. +Gal.v,17. Rom. vill.9.  § Johniil, 6, 
+|| Eph. iv, 31, 22, 24. J Col. iii, 1. 
+
+
++t 
+i 
+
+
+Direct. V. OF SANCTIFICATION. 83 
+
+
+fore by the old man must needs be meant the natural 
+state of man, wherein he is without the saving enjoy- 
+ment of Christ: which is called old, because of the 
+new state to which believers are brought by their 
+regeneration in Christ. This isa manner of expres- 
+sion peculiar to the gospel, as well as the former, and 
+as slightly considered by those that think that the 
+apostle’s meaning is only, that they should put off 
+sinfulness, and put on holiness in their €onversation ; 
+and so they think to become new men by turning 
+over a new leaf in their practice, and leading a new 
+life. Let them learn here, that the old and new man 
+are two contrary states, containing in them, not only 
+sin and holiness, but all other things that dispose and 
+incline us to the practice of them ; and that the old 
+man must be put off, as crucified with Christ, before 
+we can be freed from the practice of sin.* And 
+therefore we cannot lead a new life, until we have first 
+gotten a new state by faith in Christ. Let me add 
+ere, that the meaning of the apostle is the same,t 
+_ where he directeth us to put on the Lord Jesus Christ, 
+as the means whereby we may cast off the deeds of 
+darkness, and walk honestly, as in the day-time; not 
+fulfilling the lusts of the flesh. 
+_ _ Fifthly, Our natural state hath several properties 
+_ that wholly disable us for the practice of holiness, and 
+enslave us to the practice of sin, while we continue in 
+it. Here I shall shew, that the old man, the flesh, or 
+natural state, is not only sin, as some would have it ; 
+_ but it containeth in it several things, which I shall 
+_ name, that make it to be sinful, beside several other 
+_ things that make it miserable. I have shewed, 
+_ that in Christ we have all endowments necessary to 
+ame us for godliness; so, in our fleshly state, we 
+ave all things contrary to that holy frame. One 
+g¢ belonging to our natural state, is the guilt of 
+even of Adam’s first sin, and of the sinful depray- 
+
+
+4 ‘VW Fee ‘ 
+84 THE GOSPEL MYSTERY Diehv. 
+ation of our nature, and ofall our own actual transgres- 
+sions; and therefore we are by nature the children of 
+wrath,* and under the curse of God. The benefit of 
+remission of our sins, and freedom from condemnation, 
+is not given to us in the flesh, or in a natural state, 
+but only in Christ.f And can we imagine, that a 
+man should be able to prevail against sin, while God 
+is against him, and curseth him?! Another property, 
+inseparable from the former, is an evil conscience, 
+which denounces the wrath of God against us for sin, 
+and inclineth us to abhor him as our enemy, rather 
+than to love him, as hath been shewed; or, if it be a 
+blind conscience, it hardeneth us the more in our sins, 
+A third property is an evil inclination, tending only 
+to sin; which therefore is called sin that dwelleth in 
+us, and the law of sin in our members, that power- 
+fully subdueth and captivateth us to the service of 
+sin.{ It is a fixed propensity to lust against the law 
+without any deliberation; and therefore its lustings 
+are not to be prevented by 7 diligence or watchful- 
+ness. “The mind of the flesh is enmity against 
+God; for it is not subject to the law of God, neither 
+indeed can be.”§ How vain then is it to plead, that 
+they can do good if they will, when their minds and 
+will itself are enslaved to sin. A fourth property is 
+subjection to the power of the devil, who is the god of 
+this world, that hath blinded the minds of all that 
+believe not, ! and will certainly conquer all whom he 
+fighteth with upon his own dung-hill, that isin a na- 
+tural state. And, from all these properties, we may 
+well conclude, that our natural state hath the pro- 
+perty, never to do good, to be stark dead in sin,{] 
+according to the sentence denounced against the first 
+sin of mankind in Adam. “In the day that thou — 
+eatest thereof, thou shalt surely die.”[ For you can — 
+no more bring it to holiness, by any the most vehe- 
+
+
+* Eph. ii, 3. ¢ Rom. viii, 1. Eph.i,7. Rom. vii, 20,93. 
+§ Rom. viii, 7. |] 2Cor. iv, 4, Eph. ii, 1. [Gen fi,17. 
+
+
+‘ment motives and endeavours, than you can bring a 
+dead carcase to life, by chafing and rubbing it. You 
+can stir up no strength or fortifying grace in the na- 
+tural man by such motives and endeavours; because 
+; there is no strength in him to be stirred up.* Though 
+f you do all that lieth in you to the utmost, while you 
+are in this flesh, you can do nothing but sin; for there 
+‘" is no good thing in you; asthe apostle Paul sheweth 
+by his own experience. “I know, that in me (that 
+is, in my flesh) dwelleth no good thing.” ft 
+r Siathly, We have no good ground to trust on Christ 
+_ to help us to will or to do that which is acceptable to 
+- him, while we continue in our natural state; or to 
+_ imagine, that freedom of will to holiness is restored 
+to us by the merit of his death, For, as it hath been 
+already shewed, Christ aimed at a higher end in his 
+incarnation, death, and resurrection, than the restor- 
+ing the decay and ruins of our natural state. He 
+aimed to advance us to a new state, more excellent 
+than the state of nature ever was, by union and fel- 
+ lowship with himself; that we might live to God, 
+not by the power of a natural free-will, but by the 
+power of his Spirit living and acting in us. So we 
+may conclude, that our natural state is irrecoverable 
+- and desperate, because Christ, the only Saviour, did 
+not aim at the recovery of it. It is neither holy nor 
+_ happy, but subject to sin, and to all miseries, as long 
+asitremaineth, Even those that are in a new state 
+‘in Christ, and do serve the law of God with their 
+mind, do yet with their flesh serve the law of sin,t 
+_as far as it remaineth in them, it lusteth against the 
+Spirit ;§ and it remaineth dead, because of sin, even 
+-when the spirit is life to them, because-of righteous- 
+_ ness;|| and must be heme & abolished by death, befor 
+we can be perfected in that holiness and happiness 
+that is by faith in Christ. After God had promised 
+
+
+t Rom. vii, 18. : t Rom. vii, 25. 
+
+
+_* Rom. v, 6. 
+, (|| Rom, viii, 10. 
+
+
+PS ey rye ¢ a ik 
+
+
+86 THE GOSPEL MYSTERY Direct. V. 
+
+
+salvation by Christ, the seed of the woman, he placed 
+cherubims, and a flaming sword to keep man out of 
+paradise; thereby teaching him, that his first state - 
+was lost without hope, and that the happiness in- 
+tended for him, was wholly new. Our old natural 
+man was not revived and reformed by the death of 
+Christ, but crucified together with him, and therefore 
+to be abolished and destroyed out of us by virtue of 
+his death.* It is like the parts’ of a garment infected 
+with the plague of leprosy, which was to be rent off 
+as incurable, that the garment might be clean.f “If 
+Christ be not in us, we are reprobates,”} i. e. we are 
+in a state which God hath rejected from partaking of 
+his salvation; so that we are not to expect any assis- 
+tance from God to make us holy in it, but rather to 
+deliver us from it. i: 
+Seventhly, This doth not at all discharge those that 
+
+are in a natural state from obligation to holiness of | 
+life, nor render them excusable for their sins at the __ 
+tribunal of God’s justice. For “God hathmademan — 
+upright, but they sought out many paca 
+Observe well the words of this text, and you wi 
+find, that all they who have sought out many inyen- 
+tions, rather than upright walking, are comprehended 
+in man that was at first made upright. And man, in 
+the text, signifieth all mankind. ‘The first Adam was 
+all mankind, as Jacob and Esau were two nations in 
+the womb of Rebecea.|| God made us all, in our first 
+parent, according to his own image, able and inclined 
+to do his law; and, in that pure nature, our obliga- 
+tion to obedience was first laid upon us; and the first 
+wilful transgression, whereby our first parent bereaved 
+himself of the image of God, and brought upon him- 
+self the sentence of death, was our sin as wellas his; _ 
+for in one man, Adam, all have sinned, and so death is 
+passed upon all, because all mankind were in Adam’s 
+
+
+* Rom. vi, 6. t+ Ley. xiii, 56. P2Cor xii; 5: 
+§ Eccl. vii, 29. || Gen. xxv, 23. '§ Rom.iv; 120) 4 
+{ F oui 3 
+
+
+Viale c 
+_ Direct. V. OF SANCTIFICATION. 87 
+loins, when the first sin was committed; even as Levi 
+may be said to have paid tithes in Abraham before he 
+was born; because, when his father Abraham paid 
+tithes to Melchizedeck, he was yet in his loins.* 
+That the promise of God, that he will not charge the 
+ iniquities of parents upon their children, is a promise 
+belonging to the new covenant confirmed in the blood 
+of Christ ; and it is yea and amen tous only in Christ ; 
+in whom we haye another nature than that which our 
+parents conveyed to us; so that we cannot justly 
+claim the benefit of it in our old natural state.t 
+Those that account their impotency a sufficient plea 
+
+_ to excuse them or others, shew that they were never 
+truly humbled for that great wilful transgression of 
+all mankind in the loins of Adam. Inability to pay 
+debt, excuseth not a debtor that hath lavished away 
+his estate ; neither doth drunkenness excuse the mad 
+actings of a drunkard, but rather aggravates his sin. 
+And our impotency consisteth not in a mere want of 
+executive power, but in the want of a willing mind, 
+to practice true holiness and righteousness. Naturally 
+we love it not, we like it not, but lust against it, and 
+hate the light.§ If men in a natural state had a 
+
+. hearty love and liking to true holiness, and a desire 
+_ and serious endeavour to practise it out of hearty love, 
+and yet failed in the event, then they might under 
+some pretence plead for their excuse,'(as some do for 
+them) that they were compelled to sin by an inevit- 
+able fate. But none have a just cause to plead any 
+such thing for their excuse; because none endeavour 
+to practice true holiness out of hearty love to it, until 
+
+_ the good work be begun in their souls: and, when 
+_ God hath begun, he will perfect it;|| and will in the 
+mean time accept their ready mind though they fall 
+_ short in performance.] ‘ How abominable then and 
+
+
+% Heb. vii, 9, 10. } Jer, Xxxi, 29, 30, 31. 2 Cor. i, 20. 
+
+Gal. v, 17. § John iii, 20. \ | Phil, i, 6. 
+‘ : q 2 Cor, vili, 12. 
+) 
+
+
+ae 
+
+
+eae | 
+
+
+88 THE GOSPEL MYSTERY - Direct. V. 
+
+
+filthy is man, that drinketh iniquity as water ?”’* that 
+cannot practice holiness, because he will not? This is 
+their just condemnation, “that they love darkness 
+rather than light.” They deserve to be partakers 
+with the devils in torments, as they partake with 
+them in evil lusts; and their inability to do good, 
+will no more excuse them, than it excuseth the devils. 
+Highthly, Neither will this assertion make it a vain 
+thing to preach the gospel to natural people, and to 
+exhort them to true repentance, and faith in Christ, 
+for their conversion and salvation. For the design of 
+our preaching isnot to bring them to holiness in their 
+natural state, but to raise them above it, and to pre- 
+sent them perfect in Christ, in the performance of 
+those duties.t And though they cannot perform those 
+duties by their natural strength, yet the gospel is 
+made effectual for their conversion and salvation, b 
+the power of the Holy Ghost, which accompaniet 
+the preaching of it, to quicken those that are dead in 
+sin, and to create them anew in Christ, by giving to 
+them repentance unto life, and a lively faith in Christ. 
+The gospel cometh to the elect of God, not only in 
+word, but also in power, and in the Holy Ghost, and 
+in such assurance, that they receive it with joy of the 
+Holy Ghost.t “The gospel is the ministration of the 
+Spirit, that giveth life ;§ it is mighty through God.’ || 
+It dependeth not at all upon the power of our free- 
+will, to make it successful for our conversion; but it 
+conveyeth into the soul that life and power whereby 
+we receive and obey it. Christ can make those that 
+are dead in sin to hear his voice, and live.4{ There- 
+fore he can speak to them by his gospel, and command 
+them to repent and believe with good success, as well 
+‘as he fou say to dead carcases, Talitha cumi,** 
+Lazarus come forth ;++ and to the sick of the palsy, 
+Arise, take up thy bed, and go into thine house. }{ 
+
+
+* Job xv, 16. _ ft Col. i, 28. $1 Thess. i,.5, 6. 
+§ 2 Cor. iii, 6—8. || 2 Cor, x, 4. q John v, 25, 44, 
+
+
+** Mark vy, 41. tft John xi, 43, tt Matt. ix. 6. 
+
+
+Direct. V. OF SANCTIFICATION, : 89 
+
+
+Ninthly, There is no reason that the examples of 
+_ heathen philosophers, or any Jews or Christians by 
+outward profession, that have lived without the sav- 
+ing knowledge of God in Christ, should moye us, by 
+
+_ their wise sayings and renowned attainments, in the 
+
+_ practice of deyotion and morality, to recede from this 
+
+_ truth, that hath been so fully confirmed out of the 
+
+holy Scriptures. Have we not cause to judge, that 
+the apostle-Paul, while he was a zealous Pharisee, and 
+at least some few of the great multitude of the Jews 
+
+in his time, that were zealous of the law, and had the 
+
+_ instruction of the holy Scriptures, attained as near to 
+that true holiness, as the heathen philosophers, or any 
+others in their natural state? Yet Panl, after he was 
+enlightened. with the saving knowledge of Christ, 
+
+_ judged himself the chief of sinners, in his highest for- 
+mer attainments ; though, in the judgment of others, 
+he was blameless tonching the righteousness which is 
+in the law; and he found it necessary to begin to live 
+to God in a new way by faith in Christ, and to suffer 
+the loss of all his former attainments, and to count 
+
+_ them but dung, that he might win Christ.* 
+
+And none of the great multitude of Jews that fol- 
+lowed after the law of righteousness, did ever attain 
+unto it, while they sought it not by faith in Christ. 
+What performances are greater in outward appear- 
+ance, than for a man to give all his goods to the poor, 
+and to give his body to be burnt? and yet the Serip- 
+ture alloweth us to suppose that this may be done . 
+
+- without true charity, and therefore without any true 
+
+_ holiness of the heart and life.{ Men in anatural state 
+
+_ may have strong convictions of the: infinite power, 
+
+- wisdom, justice, and goodness of God, and of the judg- 
+
+ment to come, and the everlasting happiness of the 
+
+dly, and torments of the wicked : and these convic- 
+may stir them up, not only to make a high pro- 
+
+n, and to utter rare sayings concerning God and 
+
+Fs 1) 
+tii, 6—8, | ae ix, 31,32, $1 Cor, xili, 3. 
+
+
+Ce te 
+
+
+_ohta St. Se 
+
+
+90 THE GOSPEL MYSTERY Direct. V. 
+
+
+godliness ; but also to labour with great earnestness to 
+avoid all known sin, to subdue their lusts, to perform 
+universal obedience to God in all known duties, and 
+to serve him with their lives and estates to the ut- 
+most, and to extort out of their hearts some kind of 
+love to God and godliness, that, if possible, they may 
+escape the terrible torments of hell, and procure ever- 
+lasting happiness by their endeavours: yet all their 
+love to God is but forced and feigned; they have no 
+hearty liking to God or his service; they account him 
+a hard master and his commandments grievous, and 
+they repine and fret inwardly at the burden of them: 
+and, were it not for fear of everlasting fire, they would 
+little regard the enjoyment of God in heaven; and 
+they. would be glad if they might have the liberty to 
+enjoy their lusts without danger of damnation. The 
+highest preferment of those that are born only after 
+the flesh in Abraham’s family, is but to be children 
+of the bond-woman.* And though they toil more in 
+God’s service than many of his dear children, yet God 
+accepteth not their service, because their best perfor- 
+mances are slavish, without any child-like affections 
+towards God, and no better than glistering sins. And 
+yet these natural men are not at all beholden to the 
+goodness of their natures for these counterfeit shews 
+of holiness, or for the least abstaining from the gross- 
+est sin. If God should leave men fully to their own 
+natural corruptions, and to the power of satan (as the 
+
+deserve), all shew of religion and morality should be 
+quickly banished out of the world, and we should 
+grow past feeling in wickedness, and like to the canni- 
+bals, who are as good by nature as ourselves. But 
+God, that can restrain the burning of the fiery furnace 
+without quenching it, and the flowing of water with- 
+out changing its nature, doth also restrain the work- 
+ing of natural corruption without mortifying it: and, 
+through the greatness of his wisdom and power, he 
+
+
+* Gal, iv, 23. 
+
+
+Direct. VI. OF SANCTIFICATION. 91 
+
+
+- maketh his enemies to yield feigned obedience to him,* 
+
+_ and to do many things good for the matter of them, 
+though they can do nothing in a right holy manner. 
+
+_ He hath appointed several means to restrain our cor- 
+5 So joes as the law, terrors of conscience, terrible 
+judgments and rewards in this life, magistrates, hu- 
+man laws, labour for necessaries, as food and raiment. 
+7 And those gospel means that are effectual for sancti- 
+fication, serve also for restraint of sin. God hath gra- 
+cious ends in this restraint of sin, that his Church may 
+be preserved, and his gospel preached in the world; 
+and that these natural men may be in a better capa- 
+city to receive the instructions of the gospel: and that 
+such of them as are chosen, may, in due time, be 
+converted ; and that those of them that are not truly 
+_ converted, may enjoy more of the goodness of God 
+here, and suffer the less torments hereafter. As vile 
+and wicked as the world is, we have cause to praise, 
+and to magnify the free goodness of God, that it is no 
+
+worse, 
+
+
+15 DIRECTION V1. 
+Those that endeayour to perform sincere obedience to all the com- 
+mands of Christ, as the condition whereby they are to procure for 
+themselves aright and title to salvation, and a good ground to trust 
+5 on him for the same, do seek their salvation by the works of the law, 
+' and not by the faith of Christ, as he is revealed in the gospel: and 
+they shall never be able to perform sincerely any true holy obedi- 
+
+ence by all such endeavours. 
+
+
+. 
+
+
+ae EXPLICATION. 
+
+
+For the understanding the terms of this direction, 
+
+te here, that I take salvation as comprehending jus- 
+
+fication, as well as other saving benefits ; and sincere 
+
+obedience as comprehending holy resolutions, as well 
+
+he fulfilling of them. ‘The most of men, that have 
+ef! \\ 
+
+
+‘ 
+
+
+. 
+
+
+92 THE GOSPEL Mystery § Direct. VI. 
+
+
+any sense of religion, are prone to imagine, that the 
+sure way to establish the practice of holiness and right- 
+eousness, is to make it the procuring condition of the 
+favour of God and all happiness, This may appear by 
+the various false religions that have proma most 
+in the world. In this way the Heathens were brought 
+to their best devotion and morality, by the knowledge 
+of the judgment of God, that those that violate several 
+of the great duties to God and their neighbour, are - 
+worthy of death ; and by their consciences accusing or 
+excusing them, according to the practice of them.* 
+Our consciences are informed by the common light of 
+natural reason, that it is just with God to require us 
+to perform these duties, that we may avoid his wrath, 
+sad enjoy his favour. And we cannot find any bet- 
+ter way than this to obtain happiness, or to stir up 
+ourselves to duty, without Divine revelation. Yet, — 
+because our own consciences testify, that we often fail 
+in the performance of these duties, we are inclined by 
+self-love to persuade ourselves, that our sincere endea- 
+vours to do the best we can, shall be sufficient to pro- 
+cure the favour of God, and pardon for all our failings. _ 
+Thus we see, that the persuasion of salvation by the — 
+condition of sincere obedience, hath its original from 
+our corrupt natural reason, and is part of the wisdom 
+of this world. It is none of the wisdom of Godin a 
+mystery, that hidden wisdom which God ordained be- 
+fore the world to his glory; it is none of those things 
+of the Spirit of God, which have not entered into the 
+heart of man, and which the natural man cannot re- 
+ceive; for they are foolishness to him; neither can he 
+know them, for they are spiritually discerned.f Itis © 
+none of the foolishness of preaching whereby it pleas- 
+ed God to save them that believe.{ And though we © 
+have a better way revealed to us in the gospel, for the _ 
+enjoyment of the favour of God, and holiness itself, 
+and all salvation, without any procuring condition of 
+
+
+ee ae 
+
+
+* Rom, i, 32. & ii, 14,15, + 1 Cor. fi, 6, 7, 9, 14. VCor. 4,91," ) 5 
+“¢ ati id 
+
+
+4 
+
+
+A i Ne e.72 4 Agee Oe Syd 
+
+
+woe 
+
+
+Direct. VI. OF SANCTIFICATION, 93 
+
+
+works, by the free gift of God’s grace through faith in 
+Christ; yet it is very difficult to persuade men out ofa 
+way they are naturally addicted to, and that hath fore- 
+stalled and captivated their judgments, and is bred in 
+their bone, and therefore cannot casily be gotten out 
+of the flesh. Most of those that live under the hear- 
+ing and profession of the gospel, are not brought to 
+hate sin as sin, and to love godliness for itself, though 
+they be convinced of the necessity of it to salvation ; 
+and therefore they cannot love it heartily. The only 
+means they can take to bring themselves to it, is to 
+stir up themselves to a hypocritical practice in their 
+old natural way, that they may ayoid hell, and get 
+heaven by their works. And their own consciences 
+witness, that the zeal and love that they have for God 
+and godliness, their self-denial, sorrow for sin, strict- 
+ness of life, are in a manner forced and extorted from 
+them by slavish fear and mercenary hope; so that 
+they are afraid, that, if they should trust on Christ 
+for salvation by free grace without works, the fire of 
+their zeal and devotion would be quickly extinguish- 
+ed, and they should grow careless in religion, and let 
+loose the reins to their lusts, and bring certain dam- 
+nation upon themselyes. This moveth them to ac- 
+count them the only Boanerges and powerful preach- 
+ers that preach little or none of the doctrine of free 
+grace, but rather spend their pains in rebuking sin, 
+and urging people to get Christ and his salvation by 
+their works, and thundering hell and damnation 
+against sinners. It hath been farther observed, that 
+some that have contended much for salvation by free 
+grace, without any condition of works, have fallen into 
+antinomian opinions, and licentious practices, The 
+experience of these things hath much prevailed with 
+
+
+some learned and zealous men of lateamongst ourselves, 
+. to recede from the doctrine of justification by faith, 
+
+
+without works, formerly professed unanimously, and 
+strongly defended by the Protestants against the Pa- 
+_ pists, as a principal article of true religion, They have 
+
+
+- 
+Wor 
+
+
+; : . ? ‘ 
+94 THE GOSPEL MYSTERY Direct. VI. 
+
+
+persuaded themselves, that such a way of justification 
+is ineffectual, yea, destructive to sanctification ; and 
+that the practice of sincere obedience cannot be esta- 
+blished against antinomian dotages and prevailing lusts, 
+except it be made the necessary condition of our jus- 
+tification, and so of our eternal salvation. Therefore 
+they conclude, that God hath certainly made sincere 
+obedience to be the condition of our salvation. And 
+they have endeavoured te new-model the Protestant 
+doctrine, and to interpret the holy Scriptures ina way 
+agreeable and subservient to this, their only sure foun- 
+dation of holiness. _ 
+
+But I hope to shew, that this their imagined sure 
+foundation of holiness was never laid by the holy God ; 
+but that it is rather an error in the foundation, perni- 
+cious to the true faith, and to holiness of life... I ac- 
+count it an error especially to be abhorred and detes- 
+ted, because we are so prone to be seduced by it, and 
+because it is an error whereby satan, transforming 
+himself into an angel of light, and a patron of holiness, 
+hath greatly withstood the gospel in the apostles 
+times, and stirred up men to persecute it out of zeal 
+for the law; and hath since prevailed to set up and 
+maintain Popery, whereby the mystery of iniquity 
+worketh apace in these days, to corrupt the purity of 
+the gospel among Protestants, and to heal the deadly 
+wound that was given ‘to Popery by preaching the 
+doctrine of justification by faith without works. 
+
+One thing asserted in the direction against this fun- 
+damental error, is, that it isa way of salvation by the 
+works of the law, and not by the faith of Christ, as 
+
+
+_ revealed in the gospel: though the maintainers of it 
+
+
+would have us believe, that it is the only way of the 
+gospel; that so we may not doubt of its power and 
+efficacy for our justification, sanctification, and our 
+whole salvation. Their reasons are, because the law, 
+as a covenant of works, requireth us to do all its 
+commandments perfectly, that we may live; where- 
+as they plead only fora milder condition of sincere 
+
+
+Direct. V1. OF SANCTIFICATION. 95 
+
+
+- 
+doing, that we may live. . And they plead not for 
+doing duties, as obliged thereunto by the autho- 
+_ rity of the law given of God by Moses, but only in 
+_ obedience to the commands of Christ in the gospel. 
+_ Neither do they plead for salvation by sincere obedi- 
+_ ence without Christ, but only by Christ, and through 
+_ his merit and righteousness. And they acknowledge, 
+_ that both salvation itself, and- sincere obedience, are 
+_ given to them freely, by the grace of Christ ; so that 
+all is of grace. They acknowledge also, that their 
+salvation is by faith, because sincere obedience is 
+wrought in them by believing the gospel, and is in- 
+_ eluded in the nature of that faith, which is the entire 
+- condition of our salvation, and some call it the resig- 
+nation act of faith. But all these reasons are but a 
+fallacious vizard upon a legal way of salvation, to 
+make it look like pure gospel; as I shall evince by 
+_ the following particulars. 
+| First, All that seek salvation by the sincere per- 
+formance of good works, as the procuring condition, 
+are condemned by the apostle Paul, for seeking right- 
+eousness by the works of the law and not by faith,* 
+_and for seeking to be justified by the law, and falling 
+from the grace of Christ.f This one assertion, ifvit 
+ean be proved, is enough to pluck off the fallacious 
+Vizard from the condition of sincere obedience, and to 
+make men abhor it as a damning legal doctrine, that 
+bereaveth its followers of all salvation by Christ. 
+_ And the proof of it is not difficult to eesosia that wari- 
+ly consider a point of so great moment for their sal- 
+yation. The Jews and judaizing Christians, against 
+whom the apostle chiefly disputed in his whole con- 
+roversy, did not profess any hope of being justified 
+perfect obedience, according to the rigour of the 
+, but only by such obedience as they accounted to 
+sincere, and not hypocritical. And we have no cause 
+doubt, but that the judaizing Galatians had learn- 
+d by the gospel to distinguish sincere obedience from 
+n ‘ FE Gales eg) 
+
+
+y 
+
+
+ee ee 
+
+
+= = 
+
+
+96 THE GOSPEL MYSTERY Direct. V1. 
+
+
+hypocrisy. The Jewish religion bound all that pro- 
+fessed it, to acknowledge themselves 10 be sinners; as 
+appeareth by their anniversary humiliation on the 
+day of atonement, and several other rites of the law, 
+and many clear testimonies in the oracles of God, that 
+were committed to them.* Yet they knew they were 
+bound to turn to the Lord with all their hearts, in 
+sincerity and uprightness, and that God would accept 
+of sincere obedience ; for which cause they might 
+better put it-for the condition of the law, than we can 
+of the gospel.t So that, if the apostle had disputed 
+against those that held only perfect obedience to be 
+the condition of justification, he had contended with 
+his own shadow. And they might as readily judge 
+sincere obedience to be the condition of justification 
+under the law, as we can judge it to be the condition 
+under the gospel. Neither doth the apostle condemn 
+them merely for accounting sincere obedience to the 
+law as given by Moses, to be the condition of their 
+justification, but more generally for seeking salvation 
+by their own works. And he alledgeth against them, 
+that Abraham, who lived before the law of Moses, 
+was not justified by any of his works, though he did 
+perform sincere obedience; and that David, who lived 
+under the law of Moses, was not justified by his works, 
+though he performed sincere obedience, and was as 
+much bound to obey the law given by Moses, as we 
+are to obey any commands of Christ in the gospel.t 
+Neither doth he eondemn them for sceling their sal- 
+vation only by works, without respecting at all the 
+grace and salvation that is by Christ; for the judaiz- 
+ing Galatians were yet professors of the grace and sal- 
+vation of Christ, though they thought obedience to 
+the law a necessary condition for the partaking of it, 
+as also many other judaizing believers did. And, 
+doubtless, they accounted ‘themselves obliged there- 
+
+
+* Psalm cxliii, 2. Prov. x,9. Eccl. vii, 20. 
++ Psalm li, 6,10. Deut, vi, 5. and xxx, 10. Rom. iv, 2, 3, 5, 6. 
+
+
+5 
+
+
+Direct, VI. OF SANCTIFICATION. 97 
+
+
+unto, not only by the authority of Moses, but of Christ 
+_also, whom they owned as their Lord and Saviour. 
+And we may be sure it was no damning error, to ac- 
+count Moses’s law obliging at that time; for many 
+thousands of the Jews, that were found believers, held 
+the ceremonies of Moses to be in force at that time, 
+and Paul was tender towards them in it.* And other 
+Jews sought justification, not only by their sincere 
+works, but also by trusting on the promise made to 
+Abraham, and on their priesthood and sacrifices; 
+which were types of Christ. And the more legal 
+Pharisees would thank God for their good works, as 
+proceeding from his grace.t And they could as well 
+acknowledge their salvation to be by faith, as the as- 
+serters of salvation by sincere obedience can in these 
+days ; for they accounted, that their sincere obedience 
+was wrought in them by believing the word of God, 
+which contained gospel as well as legal doctrine in it ; 
+and therefore that it must be included in the nature 
+of faith, if faith was taken for the condition of their 
+whole salvation. Let the asserters of the condition of 
+sincere obedience learn from hence, that they are 
+building again that Judaism which the apostle Paul 
+destroyed, whereby the Jews stumbled at Christ,+ 
+and the Galatians were in danger of falling from Christ 
+and grace, and let them beware of falling under that 
+eurse which he hath denounced, on this yery occasion, 
+against any man or angel that shall preach any other 
+gospel than that which he hath preached. || 
+Secondly, The difference between the law and gospel 
+doth not at all consist in this, that the one requireth 
+erfect doing; the other, only sincere' doing; but in 
+this, that the one requireth doing ; the other, no doing 
+but believing for life and salvation. Their terms are 
+different, not only in degree, but in their whole 
+nature. 
+
+
+! 
+i 
+
+
+ * Acts xxi, 20, 26, &xv.5,  } Luke xviii, 11.  t Rom. ix, 32. 
+so § Gal. v, 2,4. || Gal. i, 8) 9. 
+As 5 ' I s 4 
+
+
+i 
+
+
+——— 
+
+
+NO 4 i ee eee 
+
+
+98 THE GOSPEL Mystery Direct. VI. 
+
+
+The apostle Paul opposeth the believing required 
+in the gospel; to all doing for life, as the condition 
+proper to the law.* “The law is not of faith; but 
+the man that doth them, shall live in them.t ‘To 
+him that worketh not, but believeth on him that 
+justifieth the ungodly, his faith is counted for righte- 
+ousness.” If we seek salvation by never so easy and 
+mild a condition of works, we do thereby bring our- 
+selyes under the terms of the law, and do become 
+debtors to fulfil the whole law in perfection, though we 
+intended to engage ourselves only to fulfil it in part,} 
+for the law is a complete declaration of the only terms 
+whereby God will judge all that are not brought to 
+despair of procuring salvation by any of their own 
+works, and to receive it as a gift freely given to them 
+by the grace of God in Christ. So that all that seck 
+salvation, right or wrong, knowingly or ignorantly, 
+by any works, less or more, whether invented by 
+their own superstition, or commanded by God in the 
+Old or New Testament, shall at last stand or fall ac- 
+cording to those terms. 
+
+Thirdly, Since obedience cannot be performed to all 
+the commands of Christ in the gospel, except it be 
+also performed to the moral law, as given by Moses, 
+and as obliging us by that authority. Some asserters 
+of the condition. of salvation by sincere obedience to 
+the commands of Christ, would fain be free from the 
+authority of the law of Moses, because that justifieth 
+none, but thundereth out a curse against all those 
+that seek salvation by the works of it.§ But if they 
+were at all justified by sincere works, their respect to 
+Moses’s authority would not hinder their success; for 
+many that were good Christians, accounted them- 
+selves bound to obey, not only the moral, but the 
+ceremonial law; and, if they had sought justification 
+by any works, they would have sought it by those.|| 
+
+
+* Gal. ili, 12. t+ Rom.iv,5. $Gal.v,3. “§Gal.iij10, 21. 
+|| Acts xx, 20, 21. 
+
+
+ni! Sl } 
+ect. VI. OF SANCTIFICATION. 
+
+
+‘They knew not of any justification by sincere works, 
+as conimanded only in the gospel; yet, if they had 
+erred in any thing absolutely necessary to salvation, 
+the apostles would not have tolerated their weakness, 
+And, whether they will or no, they must secix their 
+salvation by the works of the moral law, as given b 
+‘Moses, or else they can never get it by sincere obedi- : 
+ence to the commands of Christ. Christ never loved 
+Bebeir new condition so well, as to abolish the Mosaical 
+authority of the moral law, for the establishment of 
+it. He came not to destroy the law and the prophets, 
+but to fulfil them, in the practice required by them ; 
+and hath declared, that “those that break one of the 
+_ least of these commandments, and teach men so, shall 
+be called the least in the kingdom of heaven: but 
+whosoever shall do and teach them, the same shall be 
+ealled great in the kingdom of heaven.”* He com- 
+-tmandeth us to do to men whatsoever we would 
+_ they should do to us, because this is the law and the 
+provpeta which is sufficient to prove, that he would 
+have us to account the law authoritative to oblige us 
+in this matter. He requireth his disciples to observe 
+and do whatsoever the scribes and pharisees bid them, 
+_ because they sat in Moses’s seat. 
+And, to come to the point in hand, when -Christ 
+had occasion to answer the questions of those that 
+were guilty of the same error that I am now dealing 
+with, in secking salvation by their own works, he 
+_ shewed them, that they must obey the commands as 
+_ they were already established by the Mosaical autho- 
+ity, in the Scripture of the old Testament: “ What 
+
+
+5 
+
+
+written? how readest thou? This do, and thou 
+halt live.t If thou wilt enter into life, keep the 
+mumandments ; which are Thou shalt do no murder, 
+‘hou shalt not commit adultery, Sc.” 4 
+like manner, the apostles of Christ urged the i 
+rformance of moral duties upon believers, by the 
+17,19. Matt. xxiii, 2, 3. t Luke x, 26, 28. 
+: Hott 
+peor 
+
+
+100 THE GOSPEL MYSTERY Direct. VI, 
+
+
+authority of the law given by Moses. The apostle 
+Paul exorteth to love one another, because he that 
+loveth another, hath fulfilled the law :* and to honour 
+our father and mother, which is the first command- 
+ment with promise.f The apostle John exorteth to 
+love others, as no new, but an old commandment. 
+The apostle James exhorteth to fulfil the royal law, 
+according to the Scripture, Thou shalt love thy neigh- 
+bour as thyself; and to keep all the commandments 
+of the law, one as well as another; because he that 
+said, Do not commit adultery, said also, Do not kill. 
+Sound Protestants have accounted the denial of the 
+authority of the moral law of Moses to be an antino- 
+mian error. And though our late preyaricators 
+against antinomianism maintain not this error, yet 
+they establish a worse error, justification by their 
+sincere gospel-works. I think the denomination of 
+the Antinomians arose from this error. The law of 
+Moses had its authority at first from Christ; for 
+Christ was the Lord God of Israel, that ordained the 
+law by angels on mount Sinai, in the hand of Moses, 
+a mediator for the Israelites, who were then his only 
+church, and with whom we believing Gentiles are 
+now joined, as fellow-members of one and the same 
+body.§ And though Christ hath since abrogated 
+some of the commandments then given by Moses, 
+concerning figurative ceremonies and judicial pro- 
+ceedings, yet he hath not annulled the obligative 
+authority of the moral law, but hath left it im its full 
+force, to oblige us in moral duties, that are still to be 
+practised; as, when some acts of any parliament are 
+repealed, the authority of the same parliament re- 
+maineth inviolable in other acts that are not repealed. 
+I know they object, that the ten commands of the 
+moral law, the ministration of death, written and en- — 
+graven on stones, are also done away by Christ.|| But 
+
+
+* Rom. xiii, 8. + Eph. vi, 2. $ James ii, 8, 10, 11. 
+§ Eph. iiiy-6. || 2 Cor, ili, 7. 
+
+
+LoS 7 
+bal 
+
+
+OF SANCTIFICATION. | 
+
+
+é. 
+. 
+
+
+rect, 
+
+
+_ this faaketh altogether against their conditional cove- ‘ 
+nant: for they are the ministration of death, and done a 
+away, not as they commanded perfect obedience, for 
+even Christ himself commandeth us to be perfect ;* 
+but as they were conditions for procuring life, and 
+_ayoiding death, established by a promise of life to the 
+doers, and a curse to the. breakers of them.t The ; 
+covenant made with Israel on mount Sinai, is abo- 
+lished by Christ, the Mediator of the new covenant. 
+And the Ten Commandments binds us not as they 
+were words of that covenant ;§ I mean, they bind us 
+not as conditions of that covenant, except we seek to 
+he justified by works; for the law, as a covenant doth 
+still stand in force enough to curse those that seek salva- 
+tion by their own works;|| and, if abolished, it is onl 
+to those that are in Christ by faith. But the Ten 
+Commandments bind us still, as they were then given 
+_to a people that were at that time under the covenant 
+of grace made with Abraham, to shew them what 
+duties are holy, just, and good, well pleasing to God, 
+and to be a rule for their conversation. The result of 
+all is, that we must still practise moral duties, as 
+commanded by Moses; but we must not seek to be 
+“ iomine by our practice. If we use them as a rule of 
+life, not as conditions of justification, they can be no 
+ministration of death, or killing letter unto us. Their 
+perfection indeed maketh them to be harder terms to 
+procure life by, but a better rule to discover all im- 
+perfections, and to guide us to that perfection which 
+we should aim at. And it will be our wisdom not to 
+part with the authority of the decalogue of Moses, 
+until our new divines can furnish us with another 
+yystem of morality as complete as that, and as excel- 
+lently composed and ordered by the wisdom of God, 
+d more authentic than that is. 
+“ee x 
+att. v, 48.  +Gal. iii, 10,12,’ — ¢ Heb. viii, 8, 9, 13. - 
+Exod. xxxiv, 28. {| Gal. iii, 10. { Gal. il, 19, 20. 
+i Acts iii, 22, 25,and xv, 10,11, | 
+Rein A Dh i 
+
+
+wea 
+
+
+x 
+
+
+\ ae se 
+
+
+102 THE GOSPEL MYSTERY Direct. VI. 
+
+
+Fourthly, Those that endeayour to procure Christ’s 
+salvation by their sincere obedience to all the com- 
+mands of Christ, do act contrary to that way of salva- 
+tion by Christ, free grace, and faith, discovered in the 
+
+rel, though they own it in profession never so 
+ighly. 
+
+ise: They act contrary to the way of salvation by 
+Christ; for they would heal themselves and save 
+themselves from the power and pollution of sin, and 
+procure God’s favour, by performing sincere obe- 
+dience, before they are come to Christ the only Phy- 
+sician and Saviour. They lay their own obedience 
+lowest in the foundation of their salvation, and build 
+the enjoyment of Christ upon it; who ought to be the 
+only foundation, They would sanctify themselves 
+before they have a sure interest in Christ ; and, going 
+about to establish their own righteousness, they do 
+not submit themselves to the righteousness of God in 
+Christ.* Sometimes they will call the righteousness 
+of Christ, their legal righteousness, that they may 
+make room for an evangelical righteousness of their 
+own works, to be the immediate procuring cause of 
+their justification by Christ; whereas the apostle 
+Paul knew no evangelical righteousness but that of 
+Christ, which he calleth the righteousness of faith 
+without the law,t and not of the law.{t Thus they 
+make void Christ’s salvation while they pretend to 
+own it, and Christ profiteth them nothing. Christ is 
+become of none effect to them, while they would be 
+justified by the law.§ If we would be saved by 
+Christ, we must own ourselves dead, lost sinners, that 
+can have no righteousness for justification but his, no 
+life or ability to do good, until God bring us into 
+union and fellowship with him. Bei 
+
+2d, They do also act contrary to salvation by grace, 
+according to the true meaning of the gospel. For we 
+
+
+* Rom, x, 3, 4. + Rom. iii, 21, 22, t Phil. iii,9. - 
+§ Gal. v, 2, 4. 
+
+
+Direct. VI. OF SANCTIFICATION. 105 
+
+
+are not saved by grace, as the supreme cause of salva- 
+tion by the intervention of works given and accepted 
+by grace, as the procuring cause: in which sense we 
+might be saved by grace, though by a covenant of 
+| works; as a servant that hath monies given him by 
+_his master, to purchase an annuity of his master at a 
+low rate, may profess that he had an annuity given 
+him freely, and yet that he hath purchased it, and 
+may claim it as a due debt. But we are saved by 
+grace, as the immediate and complete cause of our 
+whole salvation, excluding procurement of our salva- 
+‘tion by the condition of works, and claiming it by any 
+law asa due debt. The Scripture teacheth us, that 
+there is a perfect opposition and utter irreconcileable- 
+ness between salvation by grace and works: “If by 
+grace, then it is no more of works; otherwise grace is 
+no more grace: but, if it be of works, then it is no 
+more grace: otherwise work is no more work.”* So 
+also there is an opposition between a reward reckoned 
+of grace, and of debt ;f between a promise of happi- 
+ness by the law and by grace.{ God is so jealous of 
+the glory of his free grace, that he will not save us by 
+any works, though of his own working in us, lest any 
+man should boast.§ He knoweth when he healeth 
+men by physic, or maintaineth them by the labour of 
+their hands, they are prone to attribute the glory 
+rather to the means they use, than to his sole bounty 
+and goodness. 
+__ 3d, They do also act contrary to the way of salvation 
+by faith: for, as I have shewed already, the faith 
+which is required for our salvation in the gospel, is to 
+be understood in a sense contrary to doing good 
+works as a condition to procure our salvation, that so 
+\the true difference between the terms of the law and 
+the gospel may be maintained. Believing is opposed 
+| to all working for salvation, and the law of works to 
+* Rom, xi, 6. + Rom. iv, 4, }{ Rom, iv, 13, 16, 
+§ Eph, ii, 9. 
+
+
+ve 
+
+
+we i» 
+
+
+Mikel 
+
+
+104 THE GOSPEL MYSTERY Direct. VI. 
+
+
+the law of faith.* Therefore we must not here con- 
+sider faith as a work of righteousness, as comprehend- 
+ing any works of righteousness performed or done as 
+a condition to procure a right and title to Christ, as 
+the hand whereby we work, to earn him as our bread 
+and drink, as our wages; but only as the hand 
+whereby we receive Christ, as freely given to us, or as 
+the mouth whereby we eat and drink him; as hath 
+been proved. God giveth a sufficient right to receive 
+Christ and his salvation by the free gospel-offer and 
+invitation ; so that he leaveth nothing for our faith to 
+do, but to lay hold of him as a free gift, that the 
+glory of our salvation may not be ascribed at all to 
+our faith or works, but only to this free grace of God 
+in Christ: “Tt is of faith, that it may be by grace.” + 
+Fifthly, Christ or his apostles never taught a gospel 
+that requixeth such a condition of works for salvation 
+as they plead for. The texts of Scripture which they 
+usually allege tor their purpose, are either contrary to 
+it, or widely distant from it; as they might learn 
+from many Protestant interpreters, if their affection 
+to a Popish tenct had not blinded them. I shall in- 
+stance briefly only a few of these texts, whereby 
+you may have some light to judge of the true mean- 
+ing of the rest. That obedience of faith mentioned 
+by the apostle Paul as the great design of gospel 
+preaching, } is as contrary to their condition of smecere 
+obedience for salvation, as the law of faith is to the 
+law of works.§ It is an obedience that consisteth in 
+believing the report of the gospel; as the apostle ex- 
+plaineth himself.|| They have not at all obeyed the 
+gospel: for Hsaias saith, Lord, who hath believed our 
+report? Taith is said to be imputed for righteousness, — 
+not because it is a work of righteousness itself, but 
+because we do by it renounce all confidence in any 
+righteous works whatsoever, and trust on him that 
+* Rom. iy, 5; iii, 27. Eph. ii, 8, 9. t Rom. vi, 16. 
+
+
+t Rom, i, y. § Rom. ili, 27. || Rom, x, 16, 
+f ican 
+
+
+ape ale ’ j 
+
+
+ey 
+
+
+Direct. VI. OF SANCTIFICATION. 105 
+
+
+justifieth the ungodly; as is clear by that very text 
+which they usually pervert for their purpose.* They 
+grossly pervert these words of Paul,t “ Who will 
+render to every man according to his deeds ; to them 
+who, by patient continuance in well-doing, seek for 
+glory, and honour, and immortality; eternal life.” 
+
+here they will have Paul to be declaring the terms 
+of the gospel, when he is eyidently declaring the 
+terms of the law, to prove, that both Jews and Gen- 
+tiles are all under sin, and that no flesh can be justi- 
+fied by the work of the law; as appeareth ve the 
+tenor of his following discourse. They join evidently 
+withthe Papists against the concurrent judgment of 
+the best Protestant divines, in the interpretation of 
+that text,§ “ Ye see then how that by works a man 
+is justified, and not by faith only.” Where they will 
+have James to deliver the doctrine of justification in 
+more proper expressions than the apostle Paul, who 
+teacheth justification by faith without works; though 
+Paul treateth on this doctrine as his principal subject, 
+and James doth only speak of it occasionally, as a 
+motive to the practice of good works: whereby we 
+may easily judge which of their expressions are to be 
+taken for the most proper. Protestants have shewed 
+sufficiently, that James speaketh not of a trie saving 
+
+
+faith, but of such a dead faith as devils have; not of 
+
+
+justification in a proper sense, but of the declaration 
+and manifestation of it by its fruits, Besides, he 
+speaks of justification by works, as commanded in the 
+law given by Moses; as appearcth by his citing the 
+commandments of the fepsll which our contrivers of 
+the new divinity would have nothing to do with in 
+their model of the doctrine of justification. Another 
+text alleged by them is, “Blessed are they that do 
+
+
+his commandments, that they may have right to the 
+
+
+tree of life, and may enter in through the gates into 
+v 
+
+
+* Rom. iv, 5. + Rom. ii, 6, 7. } Rom. fii, 9, 10. 
+§ Jamos fi, 24, || James ii, 8, 11. | Rev. xxii, 14. 
+
+
+: J *; yy 
+
+
+t 
+° 
+
+
+SO gh ee ae oy Py a 
+
+
+tay 
+
+
+106 THE GOSPEL MYSTERY Direct. VI. 
+
+
+the city.” But the Greek word which is here trans- 
+lated right, is translated, power or privilege.* It 
+signifieth here a rightful possession of the fruit of the 
+tree of life, and not a mere title to it. So this text 
+proveth no more than what the Protestants generally 
+acknowledge, that good works are the way wherein 
+we are to walk to the enjoyment and possession of the 
+glory of Christ; though a title to Christ, and his 
+glorious salvation, be freely given us without any 
+procuring condition of works, They account also, 
+that, when the happiness of heaven is called a reward, 
+it must needs imply a procuring condition of works. 
+But though it be called a reward, because it is given 
+after the doing of good works, and because it recom- 
+penseth good works, better than any wages on earth 
+can recompense the labourer; yet it is a reward of 
+grace, not of debt;{ it is no proper wages, but a free 
+gift.§ “ For the wages of sin is death, but the gift 
+of God is eternal life, through Jesus Christ our Lord.” 
+
+Another thing asserted in the direction is, that 
+those that endeavour to perform this sincere obedience, 
+as the condition to procure a right and title to Christ 
+and his salvation, shall never be able to perform sin- 
+cerely any true obedience by all such endeavours. 
+Though they labour earnestly, and pray fervently, 
+fast frequently, and oblige themselves to holiness by 
+many vows, and press themselves to the practice of it 
+by the most forcible motives, taken from the infinite 
+power, justice, and knowledge of God, the equity and 
+goodness of his commands, the salvation of Christ, 
+everlasting happiness and misery, or any other motive 
+improved by the most affectionate meditation ; yet 
+they shall never attain to the end which they aim at 
+in such an erroneous way. They must restrain their 
+corruptions, and bring themselves to many hypocriti- 
+cal-slavish performances, whereby they may be es- 
+
+
+* John i, 12. } Rey. xxii; 12. Matt. vy, 12, 
+t Rom. iv, 23. § Rom. vi, 23, 
+
+
+OF SANCTIFICATION, 
+
+
+_ teemed among men, as eminent saints; but they shall 
+a not be able to mortify one corruption, or to perform 
+; one duty in such a holy manner as God approveth. 
+_ Yet here I censure only an error, not the life of the 
+_ persons that maintain it. I have heard that some 
+: Sipe legally, and pray evangelically. I doubt not 
+_ but the frame of their hearts and lives is rather ac- 
+cording to their prayers than their sermons. Though 
+_ Peter complied with Judaism in an outward act of 
+_ profession, yet he lived himself like.a Christian.* I 
+- affirm only, that no godly person did or could attain 
+_ to his goodness in this erroneous way. And what a 
+4 lamentable disappointment this to those that have at- 
+_ tempted to alter the Protestant doctrine, and to per- 
+vert and confound law and gospel, and have bred 
+‘much contention in the church, that they might 
+_ secure the practice of sincere obedience against anti- 
+_ nomian errors, by making it the procuring condition 
+of their salvation ; when, after all this ado, the remedy 
+__ is found to be as bad as the disease, equally unservice- 
+able and destructive to that great end for which they 
+designed it: and that it hath an antinomian effect and 
+operation, contrary to the power of godliness. 
+: Much more might be said for the confutation of this 
+novel doctrine: but, if this one thing be well proved, 
+it may be sufficient to make the zealous contrivers of 
+it to be ashamed of their craft, and angry with them- 
+_ selves, and sorry that they have taken so much pains, 
+and stretched their wits, to maintain such an unpro- 
+fitable, unsanctifying opinion. It will be sufficient 
+for the proof of it, if I shew that the practice of true 
+holiness cannot possibly be attained unto, by seeking 
+_to be saved by the works of the law; because I have 
+already proved, that this, doctrine of salvation by 
+sincere Decco, is according to the terms of the 
+law, and not of the gospel. And hereby those also 
+y see their error, that ascribe justification only to’ 
+
+
+. ene ial: 6) +). ream, 
+
+
+108 THE GOSPEL MYSTERY Direct. VI. 
+
+
+the gospel, and sanctification to the law. Yet, because 
+those asserters of the condition of sincere obedience 
+will hardly be persuaded by what hath been said that 
+it is the way of the law of works ; I shall, for their 
+more full conviction, sufficiently manifest that it is of 
+no other nature and operation than any other doctrine 
+that is proper to the law, and hath no better fruit : as 
+I proceed to prove, by the following arguments, that 
+holiness cannot he attained by seeking it by the law of 
+works, that so it may appear not worthy to be called 
+gospel doctrine. 
+
+Ist, The way of salvation by the works of the law 
+is contrary and destructive to those necessary means 
+of a holy practice that have been laid down in the 
+foregoing directions, and manifestly proved out of the 
+holy Scriptures. I have made it appear that a hearty 
+propensity to a holy practice cannot be attained with- 
+out some good persuasion of our reconciliation with 
+God by justification, and of our everlasting happiness, 
+and of sufficient strength both to will and to perform 
+our duty ; and that these, and all other endowments 
+necessary to the same end, are to be had only in Christ 
+by union and fellowship with him; and that Christ 
+himself, with all his fulness, is united to us by faith ; 
+which is not a condition to procure a right or title to 
+Christ, but an instrument whereby we receive him 
+actually into our hearts, by trusting on him for all 
+salvation freely promised to us in the gospel. All 
+these means of a holy practice are things wherein 
+our spiritual life and happiness doth consist; so 
+that, if we have them, everlasting life is begun 
+in us already; and, because they are the neces- 
+sary means of a holy practice, therefore, the be- 
+ginning of everlasting life in us must not be placed 
+after such a practice, as the fruit and consequent of 
+it, but must go before it as the cause before the effect. 
+
+-Now, the terms of the law are directly contrary to _ 
+this method. They place the practice of holiness be- 
+fore life, and make it to be the means and procuring 
+
+
+ves — 
+
+
+Direct. VI. OF SANCTIFICATION. 109 
+
+
+cause of life, as Moses deseribeth them,* The man 
+that doth these things shall live by them. By these 
+terms, you are first to do the holy duties commanded 
+before you have interest in the life promised, or any 
+right to lay hold of it as yours by faith. And you 
+must practise holiness without the fore-mentioned 
+means, or else you can never attain to them. Thus 
+the true means are turned out of their office, and in- 
+stead of being causes, they are made to be effects and 
+fruits of a sty practice. And it will-be in vain ever 
+to expect such effects and fruits; for holiness itself, 
+with all its effects, must needs be destroyed, when its 
+necessary causes are taken away. Therefore the apostle 
+Paul testifieth, that the way of salvation by the works 
+of the law maketh faith void, and the promises of 
+none effect; and frustrateth the grace of God, as if 
+Christ died in vain; and maketh Christ to be of no 
+rofit, and of none effect to us, as those that are fallen 
+om grace.t Let us now examine the modern doc- 
+trine of salvation by the condition of sincere obedience 
+to all the commands of Christ, and we shall quickly 
+find it to be a chip of the same block with the former 
+legal way of salvation, in the same manner destructive 
+to the means of holiness, and to holiness itself. It re- 
+quireth of us the performance of sincere obedience, 
+before we have the means necessary to produce it, by 
+making it antecedent to our justification, and persua- 
+sion of eternal happiness, and our actual enjoyment 
+of union and fellowship with Christ, and of that new 
+nature which is to be hea only in him by faith. It 
+destroyeth the nature of that saving faith whereby 
+_ we actually receive and enjoy Christ and all his bene- 
+fits, and knocketh off our hands from laying hold of 
+Christ and his salvation, by telling us still, as Christ 
+told the legal worker after all his labour, that yet we 
+lack xtihine that it is presumption to take him 
+as our own, until we have performed the condition’ 
+UR Ne > : 
+"Rom, x, 5, f Rom. iv, 14, Gal. i, 21, andy, 2,4. t Mariex, 21. 
+4 aie } K \\ 
+
+
+7 eu: 
+Aiea dy Wn yo 0 a7 
+
+
+ek Aa : _ ek 
+
+
+~ 
+
+
+110 THE GOSPEL MYSTERY Direct. VI, 
+
+
+for our right and title to him ; which is another kind 
+of saving faith, otherwise called sincere obedience. 
+By this devised conditional faith, Satan keepeth many 
+poor souls at bay, poring upon their own hearts for 
+many years together, to find whether they have per- 
+formed the condition, and whether they have, as yet, 
+any right to Christ for their salvation, not daring to . 
+venture to. take him as their own. It is a strong 
+partition-wall that will certainly hinder the soul from 
+coming to Christ, until it be thrown down by the 
+knowledge of salvation by grace, without any procur- 
+ing condition of works. And though it be accounted 
+but as the payment of a pepper-corn fora great estate, 
+yet it is enough to break the ablest man in the world, 
+because it debarreth him from laying hold of the ef- 
+fectual means of holiness, whereby that pepper-corn 
+may be obtained. 
+
+2ndly, Those that seelx salvation by the works of 
+the law, do therein act according to their natural 
+state, They live and walk according to the flesh, or 
+old man; not according to the new state, by Christ 
+living in them. I doubt not but several of them that 
+live under the light of the gospel, are partakers of a 
+new state in Christ, and do walk holily in it ; but the 
+best in this world have in them flesh as well as spirit, 
+and may act according to either state in some mea- 
+sure: and in this matter they do act only according 
+to their carnal natural state. 
+
+When the believing Galations were seduced to a 
+legal way of salvation, the apostle Paul chargeth it 
+upon them as their folly, that having begun in the 
+spirit, they would now be made perfect in the flesh.* 
+And he resembleth those that desire to be under the 
+Jaw, to Abraham’s son, born of Hagar the bond- 
+woman, to shew, that such do walk as those that are 
+born after the flesh, not after the Spirit.f The law 
+was first given to Adam in his pure natural state, to — 
+
+
+* Gal. ili, 3. + Gal. i , 22, 23, 29, 
+
+
+4 ; ; 
+
+
+* 
+
+
+“Direct. VI. OF SANCTIFICATION, 111 
+
+
+prescribe terms for his continuance in the happiness 
+which he then enjoyed. And ever since that time, 
+the flesh, or natural man, is married to the law, and 
+the law hath dominion over a man as long as he liv- 
+eth, i. e. until he be dead to his fleshly state by the 
+body of Christ, and married to him that is raised from 
+the dead.* Weare not at all under the lawas a cove- 
+nant of works, according to our new state in Christ ; 
+as the apostle testifieth, + “ Ye are not under the law, 
+but under grace :” and, } “ If ye be led by the Spirit, 
+ye are not under the law.” From hence we may 
+firmly conclide, that none can possibly attain to true 
+godliness by acting according to legal terms ; because 
+have fully proved already, that it is impossible to 
+be godly while we are in the flesh, or in a natural 
+state, and that, as far as we act according to it, we 
+can do nothing but sin, The law is weak through the 
+flesh, that it cannot bring us to fuifil its own righte- 
+ousness.§ It is married to a cross piece of flesh, that 
+is enmity to it, and can never be subject to it.|| It 
+sueth the natural man for an old debt of obedience, 
+that he is utterly unable to pay since the fall: and 
+the success is accordingly ; it gets nothing. Neither 
+do those take a better course, that would bring them- 
+selves to holiness, by making sincere obedience to 
+Christ’s commands the condition of their salvation. 
+Their way is the same for substance with that of the 
+Galatians before-mentioned, who would be made per- 
+fect in the flesh, not by perfect obedience, but sincere, 
+as hath been shewed before. Their endeavours to pro- 
+cure an interest in Christ by their sincere obedience, 
+do testify against themselves, that they do not act as 
+people that are in Christ, but rather as people that 
+‘Judge themselves to be without an interest in Christ, 
+and to be yet to seek for it. And sincere obedience is 
+_as impossible to be attained unto, as perfect obedience, 
+if we act according to our dead natural state. 
+
+
+> *Rom, vii,1,4.  +Rom.vi, 14. Gal. 5,18. § Rom viii, 3,4 
+
+
+|| Rom. viii, 7. \\ 
+
+
+112 THE GOSPEL MYSTERY Direct. VI. 
+
+
+3rdly, As the law bereaveth of all strengthening 
+means, that are to be had by faith in Christ, and 
+findeth us without strength in our natural state ; so, 
+of itself, it affordeth us no strength to fulfil its own 
+commands: “If there had been a law given that 
+could have given life, yerily righteousness should have 
+been by the law.’’* It doth not so much as promise us 
+life, until we have performed the obedience required 
+by it: “ The man that doth these things shall live by 
+them.”+ It is well called a voice of words,} because 
+its high and big words are not, accompanied with any 
+enlivening power. And the doctrine of life and sal- 
+vation by sincere obedience is not beiter-natured, or 
+more bountiful to us: for it exacteth of us the per- 
+formance of the condition, before it alloweth us any 
+life or salvation by Christ. Can any man rationally 
+expect strength to obey sincerely, by following a 
+doctrine that doth not so much as promise it? The 
+true gospel is.of a more benign nature; for it pro- 
+miseth that “God will pour out of his Spirit upon all” 
+flesh ;”§ and will put his laws in our hearts ;|| and 
+will cause us to walk in his statutes, that we shall 
+keep his judgments and do them.” This word of 
+God’s grace, that requireth not holiness of us as a 
+condition, but promiseth it to us as a free gift, must 
+needs be the only doctrine “that is able to build us up, 
+and to give us an inheritance among all them that are 
+sanctified.”** Seeing it pleased God to bring us to 
+holiness by believing a doctrine, we may reasonably 
+expect that God should work upon us suitably to the 
+nature of the doctrine which we believe; that he 
+should give by a giving doctrine, and exact by an 
+exacting doctrine. 
+
+4thly, The way of procuring life and happiness by 
+the condition of perfect or sincere works, is not a ra- 
+tional method for the recovery of fallen man : though 
+
+
+* Gal. iii, 21. + Rom. x,5.' Heb. xii, 19, § Acts ii, 17. 
+|| Heb. viii, 10. Ezek, xxxvi, 27. ** Acts %x, 732. 
+
+
+Direct. VI. OF SANCTIFICATION. 113 
+
+
+“it were good for the preserving of life before the fall, 
+for it preseribeth the immediate practice of holiness 
+to recover a man dead in sin; as if one would say to 
+the sick of the palsy, “Arise and walk, and then 
+thou shalt be whole, and able to walk.” We some- 
+times say ocstingly to a child that is fallen on the 
+_ ground, “ Come hither and I will help thee up:’’ but 
+“if we should say so to one that is cast on his hed by a 
+dead palsy, we should be “guilty of mocking and 
+cruelly insulting the afflicted. Those that are hum- 
+bled, and made sensible of their original sin and na- 
+tural deadness, know that they must first live by the 
+Spirit, before they can act holily.* They will en- 
+quire, How shall we have strength to perform the 
+duty required?’ If you answer, that they must trust 
+in God and Christ, to help them; they may readily 
+ply, they have no sure ground to trust on God or 
+Christ for any saving grace according to this doctrine, 
+‘before they have performed this condition, at least in 
+a sincere resolution of obedience, and that they are as 
+unable to bring their hearts to such a resolution, as a 
+dead man is to raise himself out of the grave. Take 
+another instance: The method of the doctrine of 
+. works is, You must love God first, and then, on that 
+condition, he will love you again; whereas, on the 
+contrary, we love God, because he loved us first. 
+And if God suspend his love to us upon any condition, 
+our love to him will not be absolute, but suspended 
+upon the same condition, and no way contrary to an 
+actual hating of him. 
+5thly, The law is so far from healing our sinful 
+corruption, that it proveth rather an occasion of sin- 
+ful motions and actings in those that seek salvation 
+by the works of it. This cometh to pass by reason of 
+the power of our natural corruption, which is stirred 
+‘El! and rageth the more when the holy and just law 
+ie of God is set in opposition against it; so that the 
+hs APS TS 
+
+
+Pelee Gal, y, 23, 
+
+
+* 
+
+
++1 Jobni y 19. 
+
+
+114 THE GOSPEL MYSTERY Direct, VI. 
+
+
+fault is not in the law, but in our own hearts, Those 
+that find not this by their own experience, should 
+believe the apostle Paul, who teacheth it plainly, and 
+that from his own experience,* He affirmeth, that 
+there are motions of sin by the law, in a fleshly state ; 
+and that sin, taking occasion by the commandment, 
+Thou shalt not covet, wrought in him all manner of 
+concupiscence, deceived him, slew him, became ex- 
+ceeding sinful; and that without the law, he was 
+alive, and sin dead: but, when the commandment 
+came, sin revived, and he died. He sheweth the 
+cause of this irreconcileable enmity and contrariety 
+between his sinful nature and the law: “ The law is 
+spiritual, but I am carnal, sold under sin.” Take no- 
+tice here, from the reason given by the apostle, that 
+the doctrine of salvation by sincere obedience, will 
+have the same event. Corrupt nature is contrary to 
+sincere obedience, as well as perfect ; and if we make 
+it the condition of our salvation, sin will take the 
+same occasion by it, to become exceeding sinful in its 
+motions and actings. The success of legal doctrine 
+upon the natural man is according to the proverb, 
+** Reprove not a scorner lest he hate thee.”+ Rebuk- 
+ing a madman is the way to enrage him; and 
+such is the natural man in spiritual things, since he 
+fell out of his right mind by the sin of Adam. We 
+find by manifold experience, that though men be 
+generally addicted to the principle of salvation by 
+works, yet multitudes of them hate all strict preach- 
+ers and professors of true holiness, because they are a 
+torment to their consciences. They endeayour to 
+shelter themselves in ignorance of the law ; account- 
+ing, that the less they know, the less they shall an- 
+swer for ; and, therefore, they would not have right 
+things prophesied unto them.{ And they have pre- 
+vailed generally in the world, to darken the natural 
+knowledge of moral duties, in such a degree, that 
+
+
+* Rom. vii, 5,14.  { Prov.ix 8. Isa, xxx, 10, 
+
+
+me) 
+
+
+Direct. VI. OF SANCTIFICATION, 115 
+
+
+there is a necessity of learning them by Divine reve- 
+lation out of the Scriptures. We may find how prone 
+legal writers are to corrupt the sense of the law, that 
+they may leave starting holes for their corruptions, 
+by the corrupt glosses of the scribes and_pharisees, 
+from which Christ did vindicate it.* And, as far as 
+I have observed, none more endeavour to discover the 
+purity and perfection of the law, than. those that 
+seek holiness and salvation without any legal condi- 
+tion, by the mere free grace of God in Christ. The 
+doctrine of salvation by sincere obedience, is but_a 
+mincing the perfection required in the law: and yet 
+how is this doctrine minced again and again, until it 
+is become so small, that the substance of all true 
+obedience is lost? A willingness to be saved accord- 
+ing to Christ’s terms, or a consent that Christ should 
+be our Lord, or a resolution to obey his command- 
+ments, (which is a little more than ignorant men 
+trust on, when they say they hope God will save 
+them because they have a good meaning, though they 
+live in the neglect of all religion) without any farther 
+practice of holiness, shall pass with many for enough 
+of sincere obedience, both to enter them into a state 
+of salvation, and to continue them in it; so that they 
+shall never be accounted breakers of the gospel cove- 
+nant, while so much can be pretended. The most 
+
+
+that is made necessary for salvation, shall be only, to 
+
+
+endeavour to do what we can to obey Christ’s com- 
+mands; though all that the most can do, is nothing 
+that is truly good. Those that have a little more 
+zeal for their salvation by works, are prone to spend 
+it in superstitious observances, because they suit bet- 
+
+
+ter with their carnal nature) than the spiritual com- 
+
+
+mands of God and Christ. I doubt not but this hath 
+been one occasion of the prevailing of Heathenish, 
+
+
+_ Jewish, and Popish superstitions in the world. We 
+
+
+\ 
+
+
+find, by experience, how Popery fell in several 
+
+
+= 
+
+
+* Matt. v. \\ 
+
+
+CF a eee bs het 
+
+
+116 THE GOSPEL MYSTERY Direct. VI. 
+
+
+nations in late years, when the great pillar of it, the 
+doctrine of justification by works, was overthrown b 
+
+the Protestant doctrine of justification by faith alone. 
+Tf these legal zealots be forced, by strong conviction, 
+to endeavour the practice of spiritual duties for the 
+quieting of their guilty consciences, they may be 
+brought to strive and labour earnestly, and even to 
+macerate their bodies with fasting, that they may kill 
+their lusts; but still their lusts are alive, and as strong 
+as ever they were; and to shew forth their enmity 
+against the law of God, by inward fretting, repining, 
+and grudging at it, as a grievous task-master, though 
+a slavish fear restrain their gross outward actings. 
+And, if once these zealots be enlightened with the 
+knowledge of the spiritual nature of the law, to dis- 
+cern that God rejecteth all their slavish service, and 
+will not own it for sincere obedience; then they fall 
+into despair of their salvation, because they see they 
+have failed in their highest attempts to perform the 
+condition; and then-they can easily discover them- 
+selves, that their hearts swell in anger and manifest 
+hatred against the law, yea, and against God and 
+Christ, for prescribing such hard conditions of salva- 
+tion,which they cannot keep, and yet must expect to 
+be damned eternally for breaking them. This filleth 
+them with blasphemous thoughts against God and 
+Christ, and they can hardly refrain from blasphem- 
+ing with their tongues. And when they are brought 
+to this horrible condition, if God doth not in merey 
+discover to them the way of salvation by free grace 
+through faith alone, they will endeavour, if they can, 
+to scar their consciences past feeling of sin, and fully 
+to abandon all religion, which hath proved such an 
+insufferable torment to them: or, if they cannot sear 
+their consciences, some of them are easily prevailed 
+with by satan, rather to murder themselves, than to 
+live longer in the hatred of God, the spirit of blas- 
+phemy, and continual horror of conscience. This is 
+the pestilent effect of legal doctrine upon a carnal 
+
+
+: Direct. wa ” OF SANCTIPICATION, 117 
+
+
+heart, that doth but rouse up and terribly enrage the 
+sleeping lion, our sinful corruption, instead of killing 
+it: as is too evident by the sad experience of many 
+that haye endeavoured with all their might to prac- 
+tise it: and by the Scripture, that sheweth a suffi- 
+cient cause why it cannot be otherwise. Therefore 
+the doctrine of salvation by sincere obedience, that 
+was inyented against antinomianism, may well be 
+ranked among the worst antinomian errors. For my 
+part, I hate it with perfeet hatred, and account it 
+mine enemy, as I have found it to be. And I have 
+found, by some good experience, the truth of the les- 
+son taught by the apostle, that the way to be freed 
+from the mastery and dominion of sin, is, not to be 
+under the law, but under grace.* 
+6thly, The way of salvation by works was blasted 
+by the curse denounced against the first Adam’s sin ; 
+so that now it cannot work life in us, or holiness, but 
+only death: for the law, which requireth both sin- 
+cere and perfect obedience to God in all things, was 
+made known to Adam at his first creation, as the 
+means of continuing the happy life that was then be- 
+stowed upon him ; and it would have been effectual 
+for this end, if he had not transgressed in the forbid- 
+den fruit; But, when he had once brought himself 
+and his posterity under the terrible sentence, Thou 
+shalt surely die,t all that knowledge of God, or his 
+law, that before wrought for continuance of life, was 
+turned by that cursing sentence the contrary way, to 
+work for his death, even for the death of his soul in 
+sin, as well as for the death of his body; and. there- 
+_ fore it quickly moved him to hide himself from God 
+_ asanenemy. It was as if God should say, “ All the 
+. light and knowledge that thou hast, shall not be able 
+to continue thy life, or restore it; but it shall rather 
+to thy death.”’ Therefore, while we continue 
+ur natural state, under the first Adam’s guilt and 
+s & ey 
+
+
+118 THE GOSPEL MYSTERY Direct. VI. 
+
+
+curse, the knowledge of the law, yea and all such 
+knowledge of God and his attributes as natural men 
+may attain to, must needs be in like manner accursed 
+to us. And, seeing man did not use his natural 
+knowledge and wisdom aright, God is resolved to re- 
+venge the abuse of it, by giving us salvation in a way 
+contrary to it, that seemeth foolishness to the natural 
+man; and wholly to abolish the way of living by any 
+of our works, or by any wisdom or knowledge that 
+the natural man can attain unto. “ For it is written, 
+I will destroy the wisdom of the wise, and will bring 
+to nothing the understanding of the prudent. Hath 
+not God made foolish the wisdom of this world?! 
+For, after that in the wisdom of God, the world b 
+wisdom knew not God, it pleased God, by the fool- 
+ishness of preaching, to save them that believe.’”’* 
+Hence we may conclude, that no truth known by 
+the light of nature, can be an effectual principle or 
+motive to work holiness in us; and gospel principles 
+and motives are but abused, when they are applied 
+to a legal way of salvation. 
+
+Tthly, The end which God aimed at in giving the 
+law to Moses, was not, that any should ever attain to 
+holiness or salvation by the condition of perfect or 
+sincere obedience to it; though, if there had been any 
+such way of salvation at that time, it must have con- 
+sisted in the performance of that law, which was then 
+given to the church to be a rule of life, as well as a 
+covenant. ‘There was another covenant made before 
+that time with Abraham, Isaac, and Jacob, a cove- 
+nant of grace, promising all blessings freely through 
+Christ, the promised seed, by which only they were 
+to be saved. And the covenant of the law was added, 
+that they might see their sinfulness and subjection to 
+death and wrath, and the impossibility of attaining to 
+life or holiness by their works, and be forced to trust 
+on the free promise only for all their salvation; and 
+
+
+* 1 Cor. i, 19, 20, 21. 
+
+
+a 1. 
+. VII. or sancrivication. 119 
+_ that sin might be restrained by the spirit of bondage, 
+until the coming of that promised seed Jesus Christ, 
+_ and the more plentiful pouring out of the sanctifying 
+«Spirit by him. This the apostle Paul sheweth 
+largely.* None of the Israelites under the old Tes- 
+_ tament were ever sayed by the Sinai ccvenant ; 
+_ neither did any of them ever attain to holiness by the 
+terms of it. Some of them did indeed perform the 
+- commandments of it sincerely, though imperfectly ; 
+but those were first justified; and made partakers of 
+life and holiness, by virtue of that better covenant 
+made with Abraham, Jsaac, and Jacob, which was 
+_ the same in substance with the new covenant or tes- 
+_ tament established by the blood of Christ. Had it 
+- not been for that better covenant, the Sinai covenant * 
+_ would haye proved to them an occasion of no happi- 
+_ ness, but only of sin, despair, and destruction. Of 
+itself it was only a killing letter, the ministration of 
+_ death and condemnation; and therefore it is now 
+_ abolished.t We have cause to praise God, for de- 
+ livering his church by the blood of Christ from this 
+yoke of bondage: and we have cause to abhor the 
+device of those that would lay upon us a more griey- 
+ous and terrible yoke, by turning our very new cove- 
+nant into a covenant of sincere works, and leaving us 
+_ no such better covenant, as the Israelites had under 
+_ their yoke, to relieve us in our extremity. 
+
+
+DIRECTION VII. 
+Weare not to imagine that our hearts and lives must be changed from 
+4 _ sin to holiness in any measure, before we may safely venture to 
+trust on Christ for the sure enjoyment of himself, and his salvation. 
+
+
+$ EXPLICATION. 
+
+
+Eare naturally so prone to ground our salvation 
+upon our own works, that, if we cannot make them. 
+
+
+be 
+
+
+rocuring conditions and causes of our salvation by 
+
+
+Rom. y, 20,21; x,3,4. $2 Cor. ili, 6, 8, 9, 11. 
+a \\ 
+
+
+: <. y Es i oie 
+120 THE GOSPEL MYSTERY Direct, VII. 
+
+
+Christ, yet we shall endeavour at least to make them 
+necessary preparatives to fit us for receiving Christ 
+and his salvation by faith. And men are easily per- 
+suaded that this is not at all contrary to salvation by 
+free grace, because all that is hereby ascribed to our 
+works, or good qualifications, is only, that they put 
+us in a fit posture to receive a free gift. If we were 
+to go to a prince for a free gift, good manners and due 
+reverence would teach us to trim ourselves first, and 
+to change our slovenly clothes, as Joseph did when 
+he came out of the dungeon into the presence of 
+Pharoah. It seemeth to be an impudent slighting 
+and contemning the justice and holimess of God and 
+Christ, and an insufferable affront and indignity 
+offered to the Divine Majesty, when any dare pre- 
+sume to approach his presence in the nasty pickle of 
+his sins, covered all over with putrifying sores, not at 
+all closed, bound up, or cleansed; much more when 
+they endeavour to receive the most holy One into 
+wich an abominable stinking kennel, as a sinner’s 
+heart is before it be at all reformed. The parable 
+concerning the man that was to be bound hand and 
+foot, and cast into outer darkness, for coming to the 
+royal wedding without a wedding-garment, seemeth 
+to be intended as a warning against all such presump- 
+tion.”* Many that behold with terror the abomi- 
+nable filth of their own hearts, are kept off from com- 
+ing immediately to Christ, by such imaginations, 
+which satan strongly maintaineth and increaseth in 
+them by his suggestions; so that they can by no 
+means be persuaded out of them, until God teacheth 
+them inwardly by the powerful illumination of his 
+Spirit. They delay the saving act of faith, because 
+they think they are not yet duly prepared and quali- 
+fied for it. On the same account, many weak be- 
+lievers delay coming to the Lord’s supper for many 
+years together, even as long as they liye in this 
+
+
+* Matt, xxii, 11, 13. 
+
+
+Direct, VII. OF SANCTIFICATION. 121 
+world; and would be as likely to delay their baptism, 
+if they had not been baptized in infancy. Against 
+all such imaginations, I shall propose the following 
+considerations, 
+
+First, This error is pernicious to the practice of 
+holiness, and to our whole salvation, in the same 
+manner with that treated of in the foregoing direc- 
+tion, and may be confuted by the same arguments 
+which are there produced. Whether’ holiness be 
+made a procuring condition of our salvation through 
+Christ, or only a condition necessary to qualify us for 
+the reception of Christ, we are equally brought under 
+those legal terms of doing first the duties required in 
+the law, that so we may live. Therefore we are 
+equally bereaved of the assistance of those means of 
+holiness mentioned in the foregoing directions, as 
+union and fellowship with Christ, and the enjoy- 
+ments of all his sanctifying endowments by faith, 
+which should go before the practice of holiness, that 
+they may enable us for it; and we are equally left to 
+labour in yain for holiness, while we are in our cursed 
+natural state, whereby our natural corruption will be 
+rather exasperated than mortified; so that we shall 
+
+
+never be duly prepared for the reception of Christ as. 
+
+
+long as we live in the world. Thus, while we endea- 
+_ your to prepare our way to Christ by holy qualifica- 
+_ tions, we do rather fill it with stumbling blocks and 
+_ deep pits, whereby our souls are hindered from ever 
+attaining to the salvation of Christ. 
+Secondly, Any the least change of our hearts and 
+_ lives from sin to holiness, before our receiving of 
+Christ and his salvation by faith, is not at all neces- 
+sary, according to the terms of the) gospel, nor re- 
+quired in the word of God.) Christ would have the 
+yilest sinners come to him for salvation immediately, 
+hhout delaying the time to prepare themselves for 
+- When the wicked jailor enquired, What he 
+st do to be saved? Paul directed him forthwith 
+on Christ, with a promise, that in so doing 
+ee hae. ) 
+
+
+{e \ 
+
+
+122 THE GOSPEL MYSTERY Direct. VIl. . 
+
+
+he should be saved; and straightway he and all his 
+were baptized.* Paul doth not tell him, that he 
+must reform his heart and life first, though he was in 
+a very nasty pickle at that time, having but a little 
+before fastened Paul and Silas in the stocks, and 
+newly attempted a horrid wilful self-murder, Those 
+three thousand Jews that were converted by Peter’s 
+preaching, and added the same day to the church by 
+baptism,+ seemed to have as much need of some con- 
+siderable time to prepare themselves for xeceivin 
+
+Christ as others, because they had but lately pollute 
+
+themselves with the murder of Christ himself. 
+Christ commands his servants to go out quickly into 
+the streets and lanes of the city, and to bring in to his 
+feast the poor, and the maimed, and the halt, and the 
+blind; yea to go out into the high ways and to com- 
+pel them to come in, without allowing them to tarry 
+until they had cleansed their sores, and shifted off 
+their filthy rags and swarms of lice, Christ would 
+have us to believe on him that justifieth the ungodly ; 
+and therefore he doth not require us to be godly be- 
+fore we believe.§ He came as a physician for the 
+sick, and doth not expect that they should recover 
+their health in the least degree before they come to 
+him.|| ‘The vilest sinners are fitly prepared and 
+qualified for this design; which is to shew forth the 
+exceeding riches of grace, pardoning our sins, and 
+saving us freely. For this end the law of Moses 
+entered, that the offence might abound; that so 
+where sin abounded, grace might much more abound.[ 
+He loved us in our most loathsome sinful pollution, 
+so as to die for us: and much more will he love us in 
+it, so as to receive us when we come to him for the 
+purchased salvation, He hath given full satisfaction 
+to the justice of God for sinners, that'they might 
+have all righteousness, and holiness, and all salvation, 
+
+
+* Acts xvi, 30, 33. + Acts ii, 41. t ver. 23. *§ Rom. iv, 5. 
+|) Matt. ix, 12. { Eph. ii, 5, 7. [ Rom. v, 20. 
+
+
+t. VIL. OF SANCTIFICATION. 123 
+
+
+_ only by fellowship with him through faith. There- 
+fore it is no affront to Christ, or slighting or contemn- 
+_ ing the justice and holiness of God, to come to Christ, 
+while we are polluted sinners; but rather it is an 
+affronting and contemning the saving grace, merit, and 
+fulness of Christ, if we endeavour to make ourselves 
+_ righteous and holy before we receive Christ himself, 
+and all righteousness and holiness in him by faith. 
+Christ loathed not to touch a leper, and condescended 
+to wash the feet of his diseiples, and-did not expect 
+that they should be washed and perfumed before- 
+hand, as some great ones of the world are said to do, 
+when they wash the feet of poor men, in imitation of 
+Christ. 
+
+Thirdly, Those that receive Christ with an un- 
+feigned faith, shall never want a wedding-garment 
+to adorn them in the sight of God. Faith itself is 
+very precious in the sight of God, and most holy.* 
+God loveth it, because it giveth the glory of our 
+salvation only to the free grace of God in Christ, 
+and renounceth all dependance upon any conditions 
+that we can perform to procure a right to Christ, or 
+to make ourselves acceptable to him. It containeth 
+in it a hearty love to Christ as a Saviour, and a 
+hungering and thirsting appetite for his salvation ; 
+and it isthe mouth, whereby the soul feedeth hungri- 
+~ ly upon him. What wedding-garment can simners 
+bring with them more delightful than this to their 
+
+bountiful God, whose great design isto manifest the 
+abundant riches of his glorious grace and bounty in 
+_ this wedding feast? The Father himself loveth them, 
+
+because they love Christ, and believe that he came 
+ut from God.t But yet we see that the excellency 
+2 faith lieth in this, that it accounteth not itself, nor 
+any other works of ours, a sufficient ornament to 
+ake us acceptable in the sight of God. It will not 
+be our wedding-garment itself, but it buyeth of Christ 
+
+ay a 
+
+
+, Jude yerse20. ft Rom.iv,16.  t John xvi, 27.- 
+
+
+ee ae ae ee 
+
+
+Te, 
+
+
+124 THE GOSPEL MYSTERY Direct. VII. 
+
+
+white raiment that we might be clothed, and that the 
+shame of our nakedness may not appear.* ‘Though 
+it loveth and desireth the free gift of holiness; yet it 
+abandons all thoughts of practising holiness immedi- 
+ately, before we come to Christ fora holy nature. It 
+putteth on Christ himself, and in him all things that 
+pertain to life and godliness. Thus every true be- 
+liever is clothed with the sun,t even with the Son of 
+righteousness, the Lord Jesus; who is pleased to be 
+himself both our wedding-garment and feast, and all 
+our spiritual and eternal happiness. 
+
+For the more full satisfaction and consolation of 
+those distressed souls that lie under the terrible ap- 
+prehensions of their own sinfulness and the wrath of 
+God, and dare not venture to trust stedfastly on 
+Christ for their salvation until they can find in them- 
+selves some change from sin to holiness; I shall men- 
+tion particularly several of those things that such 
+would find in themselves: and I shall shew, that, if 
+some of them be not partly comprehended in faith it- 
+self, they are fruits and consequences of faith ; and 
+therefore they cannot be rationally expected before 
+we trust on Christ for our salvation. 
+
+First, They think it necessary to repent before they 
+believe on Christ for their salvation, because repen- 
+tance is absolutely necessary to salvation.{ “ Except 
+ye repent, ye shall all likewise perish;” and Christ 
+placeth the duty of repentance before faith.§ “ Re- 
+pent, and believe the gospel.” But we are to know, 
+that Christ requireth repentance first as the end to 
+be aimed at, and faith in the next place, as the only 
+means of attaining to it: and though the end be the 
+first in intention, yet the means are first in practice 
+and execution, though both be absolutely necessary 
+to salvation. For what is repentance, but a hearty 
+turning from sin to God and his service? and what 
+way is there to turn to God, but through Christ, 
+
+
+* Rey. ili, 18. + Rev. xii, 1. t Luke xiii, 3. § Mark i, 15. 
+
+
+ase) 
+
+
+AVAT, OF SANCTIFICATION. 125 
+
+
+i “ who is the way, the truth, and the life; without 
+whom none cometh to the Father ?”* and what way 
+is there of coming to Christ but by faith Therefore, 
+if we would turn to God in the right way, we must 
+first come to Christ by faith ; and faith must go before 
+repentance, as the great instrument afforded us by the 
+grace of God for the effectual performance of it. Re- 
+pentance is indeed a duty which sinners owe naturally 
+to God; but the great question is, How shall sinners 
+be able to perform it? This question is resolved only 
+by the gospel of Christ; repent and believe. The 
+way to repent is, to begin with believing. Therefore 
+the great doctrine of John, in his baptism of repen- 
+tance, was, That they should believe on him that 
+should come after him; that is, on Christ Jesus.t 
+Secondly, Regeneration is also necessary to salva- 
+tion, and therefore many would find it wrought in 
+themselves before they trust on Christ for their sal- 
+yation. But consider what regeneration is. It is a 
+new begetting or creating us in Christ,§ in whom we 
+are partakers of a Divine nature, far different from 
+that which we received from the first Adam. Now, 
+_ faith is the uniting grace whereby Christ dwelleth in 
+us and we in him, as hath been shewed; and there- 
+fore it is the first grace wrought in our regeneration, 
+_ and the means of all the rest: when you truly be- 
+lieve, you are regenerated, and not till then. Those 
+that receive Christ by believing, and those only, are 
+_ the sons of God, “which are born, not of blood, nor 
+of the will of the flesh, nor of the will of man, but of 
+_ 1God,’’|| 
+‘Thirdly, They account it necessary to receive Christ 
+as Lord and Lawgiver, by a sincere resignation of 
+themselves to his government, and a resolution to 
+bey his law, before they receive him as their Saviour. 
+is is one principal lesson of the new divinity, and 
+
+
++ Acts xix, 4, | " } John iii, 3. 
+iy, 15, Eph. ii, 10. {| John i, 12, 13, 
+: Tie \\ 
+
+
+126 THE GOSPEL MYSTERY Direct. VIT. 
+
+
+such a receiving Christ as Lord, is made to be the 
+great act of saving faith ; without which, such faith 
+as I have described, whereby we trust on Christ for 
+salvation is reckoned no better than gross presump- 
+tion. They teach, that Christ will not bestow his 
+salvation on those that do not first yield their subjec- 
+tion to his kingly authority ; but he calleth them his 
+enemies, because they would not that he should reign 
+over them, and requireth that they be brought and 
+slain before him.* And I own it is a certain truth, 
+that Christ will save none but those that are brought 
+to resign themselves sincerely to the obedience of his 
+royal authority and laws. But yet we must observe, 
+that they are not brought to this holy resignation, or 
+to any sincere purpose and resolution of obedience, 
+before they receive his salvation, but rather by re- 
+ceiving it. Men that were never thoroughly sensi- 
+ble of their natural death in sin, do easily bring 
+themselves to resolve upon universal obedience to 
+God, when they are on their death-beds, or in any 
+iminent danger, or when they would prepare them- 
+selves for the Lord’s supper, that so they may make 
+their peace with God, and trust securely on Christ 
+for his salvation. But all resolutions of that kind 
+are vain and hypocritical, sooner broken than made. 
+Those that know the plague of their own hearts, do 
+find that their mind is enmity unto the law of God 
+and Christ, and cannot be subject unto it,f and that 
+they can as soon remove a mountain, as give up them- 
+selves sincerely to obedience, before they trust on 
+Christ for his salvation, and for the gift of a new 
+heart, whereby they may be enabled both to will and 
+to do any thing that isacceptable to God. Weshould 
+have been sufficiently obliged to all obedient purpo- 
+ses, resolutions, and resignations, if Christ had never 
+come into the world to save us ; but he knew that we 
+could perform nothing holily except he made us first 
+
+
+* Luke, xix, 27. + Rom. viii, 7. 
+
+
+OF SANCTIFICATION. 127 
+
+
+| “rman of salvation, and that we shall never obey 
+_ him as a Lawgiver, until we receive him asa Saviour, 
+He isa open Lord ; trust on him first to saye you 
+from the guilt and power of sin and dominion of 
+satan, and to give you a new spiritual disposition ; 
+then, and not till then, the love of Christ will con- 
+strain you to resign yourself heartily to live to him 
+that died for you,* and you will be able to say with 
+an unfeigned resolution, “O Lord, truly I am thy 
+servant; I am thy servant, and the.son of thine hand- 
+maid: thou hast loosed my bonds.” + 
+Pourthly, It seemeth to them evident, that some 
+good works are necessary, before we can trust on 
+Christ safely for the forgiveness of sins, because our 
+Saviour teaches us, that, if ye forgive not men their 
+trespasses, neither will our heavenly Father forgive 
+our trespasses ; and directeth us to pray, “ Forgive us 
+our debts, as we forgive our debtors.”{ Restitution 
+also was to be made of things wrongfully gotten from 
+others, before the sacramental atonement was made 
+by the trespass offering.§ I answer, this is sufficient 
+to prove, that forgiving others, and restitution accord- 
+ing to our ability, or at least a sincere desire and pur- 
+pose so to do, are very closely joined with the forgive- 
+ness of our sins, and are very necessary to fit us for 
+_ prayer, and for sacramental applications of pardoning 
+' grace to ourselves. <A lively faith cannot be without 
+_ these fruits, and therefore we cannot pray, or partake 
+of sacraments, in faith, without them; but yet if we 
+_ strive to do either of these before we trust on Christ 
+_ for our pardon and salvation, we shall do them slavish- 
+_ dy and hypocritically, not in any holy acceptable 
+manner. Dae forgiving others will not be accom- 
+ped with any hearty loye to them as to ourselves 
+for the sake of God; and our restitution will be but 
+a forced act, like Pharaoh’s letting the children of 
+1 go; or like Judas restoring the thirty pieces of 
+
+
+Psa, cxvi, 16. + Matt. vi, 12,15. § Lev. vi, 5, 7. 
+
+
+Sain 
+
+
+128 THE GOSPEL MYSTERY Direct, VIT. 
+
+
+silver, being compelled thereunto by terror of spirit ; 
+and, when the terror that forced us is removed, we 
+shall be as ready to recall our forgiveness and to 
+wrong others again, as Pharaoh was to bring the 
+Israelites again into bondage after he had let them 
+go.* Ifyou would forgive others heartily, so as to 
+love them again, you must first, by faith in Christ 
+apprehend the love and mercy of God towards your- 
+selves; and then you will be able, according to the 
+apostle’s instructions, to be kind, tender-hearted, for- 
+giving one another, even as God for Christ’s sake hath 
+forgiven you.t The readiness of Zaccheus to make 
+restitution, followed upon a discovery of Christ’s love 
+to him; and his joyful receiving Christ into his house, 
+was fruit whereby he did evidence the truth of that 
+faith that was already wrought in his heart. 
+
+5thly, I shall reckon up together several other 
+qualifications that distressed souls would find in them- 
+selves, that they may be duly prepared to trust on 
+Christ for their salvation: and, when they have la- 
+boured anxiously a long time, and cannot get them, 
+at last they lie down in sorrowful dependance, not 
+daring to apply the consolations of the grace of God 
+in Christ to their wounded consciences. Let per- 
+plexed souls mark the particulars, and observe 
+whether the condition of their own souls be reached 
+inany of them. “O thou afflicted, tossed with tem- 
+pests, and not comforted,’ what good qualifications 
+are they that thou wouldst have, that thou mayest 
+be encouraged to lay hold on Christ for salvation! 
+It is likely thou wilt answer, in the bitterness of thy 
+soul, “ O let me have first some love to God and god- 
+liness in mine heart, and freedom from mine hate- 
+ful heart-risings against him and his service! Let 
+me have some good thoughts of God, his justice, 
+mercy, and holiness, that I may be able to justify 
+him, though he damn me, and that I may not be filled 
+
+
+* Exod. xiv, 5. ¥ Eph iy, 32. 
+
+
+Direct, VIT. ov sancriricatron. 129 
+: with murmurings and hellish blasphemies in my 
+_ mind against him. Let the raging of my lusts be 
+_ abated, and the stinking kennel of my wicked heart 
+_ alittle cleansed. Let me have some holy reverential 
+
+fear of God, and not a panic tormenting horror. 
+_ I would be more affected with the wrath of God, and 
+not be of a slighting heedless spirit. I would be 
+more humbled for sin, loathe it, and be ashamed of 
+it, and be sorry for it with a godly sorrow, not merel 
+because of the punishment, but because it grievet 
+and vexeth the Holy Spirit of God. I would be able 
+to make a willing and ingenuous confession of sin, 
+and to pour out my soul to the Lord in lively affec- 
+_ tionate prayer for forgiveness, and to praise and glo- 
+rify him heartily ; and not be like a lifeless stone in 
+the duty of prayer, as Iam.” Are these the things 
+thou desirest, O poor distressed soul? The best reply 
+I can make for thy speedy comfort, is, to inform thee, 
+that the things are good, but thy desires are not well- 
+timed. It is unreasonable for thee to expect these 
+holy qualifications, whilst thou art in thy natural 
+state, under the guilt of sin, and the apprehension of 
+the wrath of God, before thou hast received the ~ 
+atonement, and the new spiritual life that is by 
+Christ through faith in his name. ‘Thou dost but 
+
+_ eXasperate thy corruptions, and harden thy heart, and 
+_ make thy wounds to stink the more, because of thy 
+
+foolishness. Such good qualifications are included in 
+_ the nature of faith, and for the most part they follow 
+
+after it; so that they cannot possibly be obtained 
+before thou trusteth in Christ for thy salvation; as I 
+shall shew concerning them particularly in their 
+order. A love to the salvation of God, and to the 
+free gift of holiness, is included in the nature of faith ; 
+so that it cannot be hearty withoutit. Act faith first, 
+and the apprehension of God’s love to thy soul will 
+eetly allure and constrain thee to love God and his 
+ervice universally: “We love him because he first 
+
+
+, 
+
+
+130 THE GOSPEL MYSTERY Direct. VII. 
+
+
+loved us.”* We cannot be before-hand with God in 
+love: and we must perceive his love, to make us love 
+him: for, if we look upon him as a God contrary to 
+us, that hateth us, and will damn us, our own innate 
+self-love will breed hatred and heart-risings against 
+him ; in spite of our hearts. That love, which is the 
+end of the law, must flow from faith unfeigned.t 
+And if hatred work in thee more than love, how canst 
+thou expect good thoughts of God or any ‘other than 
+blaspheming, or at least mur muring thoughts of him, 
+
+in thiscondition? Ill-will never speaketh or thinketh 
+well. The first right holy thoughts thou canst have 
+of God, are thoughts of his grace and mercy to thy 
+soul in Christ, which are included in the grace of 
+faith. Get these thou ghts first by believing in Christ, 
+and they will breed in 1 thee love to God, and all good 
+thoughts of him, and free thee from blasphemous and 
+murmuring thoughts by degrees; for love thinks no 
+evil. © ‘Then wilt thou be able to account God just 
+and merciful, if he had damned thee, and extended 
+_ his grace to others ; and thou wilt be able to think 
+well of his holiness, and of his decrees, which man 
+
+cannot endure to hear of. The way to get rid of thy 
+raging lusts is by faith, that purifieth the heart, and 
+worketh thy love.§ The soul must be brought to 
+take pleasure in God and Christ by faith, or else it 
+will lust after fleshly and worldly pleasures. And 
+the more you strive against lusts without faith, the 
+more they are stirred up; though you prevail so far 
+as to restrain the fulfilling of them. Beg a holy 
+fear of God, with fear of coming short of the promised 
+rest through unbelief. || Such 1 a fear is an ingredient 
+of faith, and it will breed in us a reverential, yea, a 
+child-like fear of God and his goodness.“ We must 
+haye grace jwhereby we may serve God with rey- 
+erence, &c.’ It isin the margin, we must have or 
+
+
+*} John iv, 19. $1 Em. isi $1 Cor. xiii, 5. 
+
+
+§ Acts xv,9. Gal.v,6. || Heb. iv,1. J Heb. xii, 28. Hos. iii,5. 
+
+
+: ‘ 
+Direct. VII. OF SANCTIFICATION. 
+
+
+hold fast grace. And there is no other way to hold 
+fast grace but by faith; and this will quickly calm all 
+panic and tormenting horror, And, if you would be 
+reed from carelessness, and slighting the wrath of 
+God, your way is, first by believing, to avoid despair- 
+ing, for people grow careless by despairing; and, for 
+their own quiet, they will endeavour to slight evils 
+which they have no hope to prevent; according to 
+the proverb, “ Let us eat and drink, for to-morrow 
+we die.* True humiliation for sin is either a part or 
+fruit of faith ; for on our believing, “ we shall remem- 
+ber our own evil ways, and doings that were not 
+good, and shall loathe ourselves in our own sight for 
+all abominations.”+ We shall also then willingly 
+renounce our own righteousness, and account it but 
+dung, that we may win Christ by faith.{ But beg- 
+gars will make the most of all their nasty rags, until 
+they be furnished with better clothes; and cripples 
+will not cast away their crutches, until they have a 
+better support to lean on. Godly sorrow for sin is 
+wrought in us by believing the pardoning grace of 
+God; as it is found by experience, that a pardon 
+from a prince will sometimes sooner draw tears 
+from a stubborn malefactor, than the fear of a hal- 
+ter will. Thus the sinful woman was brought to 
+_ wash Christ’s feet with her tears.§ Weare not 
+_ like to be sorry for grieving God with our sins, 
+while we look upon him as an enemy that will case 
+himself well enough of his burden, and right him- 
+self upon us by our everlasting destruction. The 
+_ belief of God’s pardoning and accepting grace is a 
+necessary means to bring us to an ingennous confes- 
+_ sion of sins. The people freely confessed their sins 
+_ ‘when they were baptized of John in Jordan for the 
+remission of sins.|| ‘The confession of despairers is 
+reed, like the extorted confession and cryings out 
+of malefactors upon therack. A pardon sooner open- 
+
+
+a ¥ 
+
+
++ Eze. xxxvi, 31. t Phil. iif, 7, 8. 
+7, 38, {| Mark 4,4, 5. 
+
+
+fi se J i} ee 
+132 THE GOSPEL MysTERY Direct. VIII. 
+
+
+eth the mouth to an ingenuous confession, than Con- 
+fess and be hanged, or Confess and be damned. 
+Therefore, if you would freely confess your sins, he- 
+lieve first, that “God is faithful and just to forgive 
+your sins,” through Christ.* And, if you would 
+pray to God, or praise him, with lively affections, 
+you must first believe that God will hear you, and 
+give you what is best for you for Christ’s sake ;t+ 
+otherwise your praying will be only from the teeth 
+outward; for how shall you call on him in whom you 
+have not believed? You must come first to Christ 
+the altar, by faith, that by him, you may offer the 
+sacrifice of praise to God continually.§ 
+
+Finally, 'To pass from particulars to the general as- 
+sertion laid down in the direction ; if you ask, What 
+shall we do that we may work the works of God ; or 
+get any saving qualifications? I must direct you first 
+to faith, as the work of works, and the great saying 
+preparatory to all good qualifications, by answering 
+in our Saviour’s words, “ This is the work of God, 
+that ye believe on him whom he hath sent.”’|| 
+
+
+DIRECTION VIII. \ 
+Be sure to seek for holiness of heart and life only in its due order 
+where God hath placed it, after union with Christ, justification, 
+and the gift of the Holy Ghost ; and, in that order, seek it earnestly 
+by faith, as a very necessary part of your salvation. 
+
+
+EXPLICATION. 
+
+
+I norr the reader will observe warily in all these 
+directions, that the holiness aimed at as the great end 
+in the whole discourse, consisteth not in the grace or 
+act of faith required peculiarly by the gospel ; which 
+though it bea saving gift of Christ, yet is here consid- 
+
+
+* 1 John i, 9. t John xvi, 23, 24. ft Rom. x, 14, 
+§ Heb. xiii, 10, 15. | John vi, 28, 29. 
+
+
+Direct. VIII. OF SANCTIFICATION. 133 
+
+
+ered rather as a means precedent to the reception of 
+
+Christ, and all his salvation, than a part of his salva- 
+
+tion received. But the holiness aimed at, consisteth 
+
+in conformity to the whole moral law, to which we 
+
+are naturally obliged, if there had never been any 
+
+gospel, or any such duty as believing in Christ for 
+vation. 
+
+Now, in this direction, three things are contained 
+that are very necessary to guide us to the attainment 
+of this great end, and therefore worthy of our serious 
+consideration. 
+
+First, It is a matter of high concern, to be ac- 
+quainted with the due place and order wherein God 
+hath settled this holy practice in the mystery of our 
+
+salvation, anda great point of Christian wisdom to 
+seek it only in that order. We know that God isthe 
+God of order, and that his infinite wisdom hath ap- 
+peared in appointing the order of his creatures, which 
+we are Teauon to observe, for attainment of our ends 
+in worldly things ; so also in spiritual things: “‘ God 
+lath made an everlasting covenant, ordered in all 
+things and sure.”’* The benefits of it have an order- 
+ly dependance upon each other, as links of the same 
+golden chain, though several of them and a title to 
+them all, are given to us at one and the same time. 
+And I think enough hath been said already, to shew 
+in what order God brings us to the practice of the 
+moral law. He maketh us first to be in Christ b 
+faith as branches in the vine, that we may bring forth 
+much fruit.t He first purgeth our consciences from 
+dead works by justification, that we may serve the 
+living God.{ He maketh us first to live in the 
+‘Spirit, and then to walk in the Spirit.§ This is the 
+order prescribed in the gospel, which is the power 
+of God. unto salvation ; hows the law prescribeth a 
+\ quite contrary method, that we should first perform 
+its commands, that.so we may be justified and live ; 
+
+
+i 
+
+
+‘\ *2 Sam. xxiii,5. +John xv, 4,5. {Heb. ix, 14. § Gal. v, 25. 
+ee 
+
+
+se ae 
+
+
+134 THE GOSPEL MYSTERY Direct. VIIT, 
+
+
+and thereby it proveth a killing letter to us. Now, 
+mark well the great advantages you have for the at- 
+tainment of holiness, by seeking it in a right gospel 
+order. You will have the advantage of the love of 
+God manifested towards you, in forgiving your sins, 
+receiving you into favour, and giving you the Spirit 
+of adoption, and the hope of his glory, freely, through 
+Christ, to persuade and constrain you, by sweet al- 
+lurements, to love God again, who hath so dearly 
+loved you, and to love others for his sake, and to give 
+up yourselves to the obedience of all his commands 
+out of a hearty love to him ; you will also enjoy the 
+
+
+help of the Spirit of God, to incline you powerfully 
+
+
+7 
+
+
+unto obedience, and to strengthen you for the perfor- 
+mance of it against all your corruptions, and the 
+temptations of satan: so that you will have both wind 
+and tide to forward your voyage in the practice of 
+holiness, Contrariwise, if you rush upon the imme- 
+diate performance of the law, without taking Christ's 
+righteousness and his Spirit in the way to it, you will 
+find both wind and tide against you : your guilty con- 
+sciences, and corrupt dead natures, will certainly de- 
+feat and frustrate all your enterprizes and attempts to 
+love God, and serve him in love, and you will but stir 
+up sinful lust, instead of stirring up yourselves to 
+true obedience: or, at best, you will but attain to 
+some slavish and hypocritical performances, Oh! that 
+people would be persuaded to consider the due place 
+of holiness in the mystery of salvation, and to seek it 
+only there, where they have all the advantage of gos- 
+pel grace to find it. Many miscarry in their zealous 
+enterprizes for godliness ; and, after they haye spent. 
+mueh labour in vain, God maketh a breach upon 
+them, even to their everlasting destruction, as he did 
+upon Uzzah, to a temporal destruction; because they 
+sought him not after a due order.* i 
+
+Secondly, We are to look upon holiness as a very 
+
+
+* 1] Chron, xifi, 10. 
+
+
+7 
+
+vt, VIII. OF SANCTIFICATION. 135 
+necessary part of that salvation that is received by 
+faith in Christ. Some are so drenched in a covenant 
+of works, that they accuse us for making good works 
+needless to salvation, if we will not acknowledge them 
+\ to be necessary, either as conditions to procure an in- 
+terest in Christ, or as preparatives to fit us for the re- 
+ceiving him by faith. And others, when they are 
+_ taught by the Scriptures that we are saved by faith, 
+_ through faith without works, do begin to disregard 
+_ all obedience to the law, as not at all necessary to 
+_ -salyation, and do account themselves obliged to it only 
+in point of gratitude: if it be wholly neglected, they 
+doubt not but free grace will save them harmless, 
+Yea, some are given up to such strong antinomian de- 
+lusions, that they account it a part of the liberty from 
+
+_ the bondage of the law purchased by the blood of 
+_ Christ, to make no conscience of breaking the law in 
+their conversation. One cause of these errors, that 
+are so contrary one to the other, is, that many are 
+
+_ prone to imagine nothing else to be meant by salva- 
+tion, but to be delivered from hell, and to enjoy hea- 
+venly happiness and glory : hence they conclude, that, 
+eit works be a means of glorification, and pre- 
+cedent to it, they must also be a precedent means 
+
+of our whole salvation ; and that, if they be nota 
+necessary means of our whole salvation, they are not 
+at all necessary to glorification. But though salva- 
+tion be often taken in Scripture, by ila of eminency, 
+for its perfection in the state of heayenly glory ; yet, 
+: according to its full and proper signification, we are 
+to understand by it all that freedom from the evil of 
+; our natural corrupt state, and all those holy and 
+happy enjoyments that we receive from Christ our 
+viour, either in this world by faith, or in the world 
+-eome by glorification.) Thus, justification, the gift 
+he Spirit to dwell in us, the privileges of adoption, 
+parts of our salvation which we partake of in this 
+. Thus also, the conformity of our hearts to the 
+God, and the fruits of righteousness with which 
+
+
+NE oo oe 
+
+
+136 THE GOSPEL Mystery Direct. VIII. 
+
+
+we are filled by Jesus Christ in this life, are a neces- 
+sary part of our salvation. God saveth us from our 
+sinful uncleanness here, by the washing of 1egenera- 
+tion and renewing of the Holy Ghost, as well as from 
+hell hereafter.* Christ. was called Jesus, 7. e. a Sa- 
+viour, because he saved his people from their sins.t 
+Therefore it is part of our salracan to deliver us from 
+our sins ; which is begun, in this life, by justification 
+and sanctification, and perfected by glorification, in 
+the life to come. Can we rationally doubt, whether 
+it be any proper part of our salvation by Christ, to 
+be quickened, to live to God, when we were by na- 
+ture dead in trespasses and sins; and to have the 
+image of God in holiness and righteousness restored 
+to us, which we lost by the fall ; and to be freed from 
+a vile dishonourable slavery to satan, and our own 
+lusts, and made the servants of God ; and to be hon- 
+oured so highly, as to walk by the Spirit, and bring 
+forth the fruits of the Spirit? and what is all this but 
+holiness in heart and life: conclude we then that ho- 
+liness in this life is absolutely necessary to salvation, 
+not only as a means to the end, but by a nobler kind 
+of necessity, as part of the end itself. Though we are 
+not saved by good works, as procuring causes; yet 
+we are saved to good works, as fruits and effects of 
+saving grace, which God hath prepared that we should 
+walk in them.{ It is indeed one part of our salvation 
+to be delivered from the bondage of the covenant of 
+works; but the end of this is, not that we may have 
+liberty to sin, (which is the worst of slavery) but that 
+we may fulfil the royal law of liberty, and that we may 
+serve in newness of Spirit, and not in the oldness of the 
+letter.”’§ Yea, holiness in this life is such a part of our 
+salvation, as is a necessary means to make us meet to 
+be partakers of the inheritance of the saints in heaven-. 
+ly light and glory: without holiness we can never see 
+
+
+* Ezek, xxxvi, 29, ‘Tit. ili, 5. ~ + Matt. i, 21. 
+t Eph. ii, 10. § Gal. vy, 13. Rom, vii, 6. 
+
+
+. 
+
+
+rect. VIII. 
+
+
+OF SANCTIFICATION. 137 
+
+
+God,* and are as unfit for the glorious presence, as 
+swine for the presence-chamber of an earthly prince. 
+I confess, some may be converted, when they are so 
+near the point of death, that they may have little 
+time to practice holiness in this world: but the grace 
+of the Spirit is active like fire,t and as soon as it is 
+given, it will immediately produce good inward 
+workings of love to God, and Christ, and his people ; 
+which will be sufficient to manifest the righteous 
+judgment of God in saving them at the great day, 
+when he shall judge every man_aceording to his 
+work: though some possibly may not have so much 
+time to discover their inward grace in any outward 
+good words, as the thief upon the cross. f 
+The third and last thing to be noted in this direc- 
+tion is, That holiness of heart and life is to be sought 
+for earnestly by faith, as a very necessary part of our 
+salvation. Great multitudes of ignorant people, that 
+___ live under’the gospel, harden their hearts in sin, and ~ 
+ruin their souls for ever, by trusting on Christ for 
+such an imaginary salvation, as consisteth not at all 
+in holiness, but only in forgiveness of sin, and deliver- 
+ance from everlasting torments. They would be free 
+from the punishments due to sin, but they love their ~ 
+lusts so well, that they hate holiness, and would not 
+be saved from the service of sin. The way to oppose 
+this pernicious delusion is, not to deny, as some do, 
+that trusting on Christ for salvation, is a saving act 
+of faith: but rather to shew, that none do or can 
+trust on Christ for true salvation, except they trust 
+on him for holiness: neither do they heartily desire 
+_ true salvation, if they do not desire to be made holy 
+and righteous in their hearts and lives, If ever God 
+and Christ give you salvation, holiness will be one 
+part of it; # Christ wash you not from the filth of 
+your sins, you have no part with him.§ What a 
+
+
+. oe aS 
+
+
+xii, 14. + Matt.ili, 11, {Luke xxii, 40, 43. 
+§ John xiii, 8. 
+M 20 
+
+
+138 THE GOSPEL MYSTERY Direct. VIII. 
+
+
+strange kind of salvation do they desire, that care not 
+for holiness! They would be saved, and yet be alto- 
+gether dead in sin, aliens from the life of God, bereft 
+of the image of God, deformed by the image of satan, 
+his slaves and vassals to their own filthy lusts, utterly 
+unmeet for the enjoyment of God in glory. Such a 
+salvation as that, was never purchased by the blood 
+of Christ; and those that seek it, abuse the grace of 
+God in Christ, and turn it into lasciviousness. They 
+would be saved by Christ, and yet out of Christ, in a 
+fleshly state; whereas God doth free none from con- 
+demnation but those that are in Christ, that walk not 
+after the flesh, but after the Spirit: or elsethey 
+would divide Christ, and take a part of his salvation, 
+and leave out the rest; but Christ is not divided.* 
+They would have their sins forgiven, not that they 
+may walk with God in love in time to come, but that 
+they may practise their enmity against him, without 
+any fear of punishment. But let them not be de- 
+ceived, God is not mocked. They understand not 
+what true salvation is, neither were they ever yet 
+
+
+thoroughly sensible of their lost estate, and of the: 
+
+
+great evil of sin: and that which they trust on Christ 
+for, is but an imagination of their own brains; and 
+therefore their trusting is gross presumption. True 
+gospel faith maketh us come to Christ-with a thirsty 
+appetite, that we may drink of living water, even of 
+his sanctifying Spirit ;+ and ery out earnestly to save 
+us, not only from hell, but from sin saying, “Teach 
+us to do thy will; thy Spirit is good;{ Turn thou 
+me, and I shall be turned ;§ “Create in me a clean 
+heart, O God, and renew a right spirit within me.”’|| 
+_ This is the way whereby the doctrine of salvation by 
+grace doth necessitate us to holiness of life, by con- 
+
+
+straining us to seek for it by faith in Christ, asasub- - 
+
+
+*1Cor.i, 13. © + John vii, 37, 38. } Psalm cxliii, 10. 
+§ Jer, xxxi, 18. || Psalm li, 10. : 
+
+
+r ee ae “~ . Cage Dea) 
+De " Z 
+
+
+Ar FS OF SANCTIFICATION. 139 
+
+
+stantial part of that salvation which is freely given to 
+
+
+us through Christ. 
+
+
+DIRECTION IX. 
+
+
+We must first receive the comforts of the gospel, that we may b able 
+to perform sincerely the duties of the law. 
+
+
+EXPLICATION. 
+
+
+Srycr man fell from obedience to God, which he was 
+enabled and engaged to perform by the comforts of 
+his first happy state in paradise, God might have 
+justly palace ever to give man again any comforts 
+beforehand to encourage him to his duty; that the 
+way to holiness being hedged up against him with 
+the thorns and briars of fear, grief, and despair, he 
+might never be able to escape the sentence of death 
+which was denounced against his first transgression. 
+This justice of God is manifest in the method of the 
+legal covenant, wherein God promiseth us no life, 
+comfort, or happiness, until we have thoroughly per- - 
+formed his law; and may be seen in the mount Sinai 
+omeeren, explicated* throughout. And we are 
+y nature so strongly addicted to this legal method 
+
+
+of salvation, that it is a hard matter to dissuade those 
+
+
+that live under the light of the gospel, from placing 
+the duties of the law before the comforts of the gos- 
+pel. If they cannot make salvation itself, yet they 
+will be sure to make all the comforts of it, to depend 
+upon their own works, They think it as unreason- 
+
+
+able to expect comfort before duty, as wages before 
+_ work, or the fruits of the earth before the husband- 
+man’s labours.t They account the only effectual 
+
+
+-way to secure the obedience we owe to the law of 
+God is, to ground all our comforts on the performance 
+it; and that the contrary doctrine strengthens the 
+
+
+* Lev. &Xxvi. < +2 Tim. ii, 6: 
+\\ 
+
+
+| 
+
+
+ey ae ed 
+
+
+140 THE GOSPEL MYSTERY Direct. IX. 
+
+
+hands of the wicked, by prophesying peace to them, 
+where there is no peace ;* and openeth the flood-gates 
+to all licentiousness. Therefore some preachers will 
+advise men not to be solicitous and hasty of getting 
+comfort, but that they should rather exercise them- 
+selves diligently in the performance of their duty ; 
+and they tell them, that, in so doing, their condition 
+will be safe and cepts at last; though they never 
+enjoy any comfort of their salvation, as long as they 
+live in this world. 
+
+That you may rightly understand what I have as- 
+serted in the direction against such vulgar errors, 
+take notice, that I do not make the only place of 
+gospel comfort to be before the duties of the law. I 
+acknowledge, that God comforteth his people on 
+every side, both before and after the performance of 
+their duty, and that the greatest consolations do fol- 
+low after duty ; yet some comforts God giveth to his 
+people before-hand, as adyance-money, to furnish 
+them for his service, though most of the pay comes 
+in afterwards. Neither do I hereby speak any peace 
+to those that continue in their sinful natural state : 
+for the comforts I speak of, cannot be received with- 
+out rejecting those false confidences whereby natural 
+men harden themselves in sin; nor without that 
+effectual working of the Spirit, whereby we are made 
+good trees, that we may bring forth good fruit. 
+Though they are given before the sincere practice of 
+the law; yet they are not given to us in our corrupt 
+sinful nature, but in and with the new holy nature ; 
+which immediately produceth a holy practice, though 
+it must necessarily go before, as the cause before the 
+effect : and they are no other than comforts of those _ 
+spiritual benefits by which our new estate and na- 
+ture is produced, and of which it is constituted and - 
+made up; as the comforts of redemption, justifica- 
+tion, adoption, the gift of the Spirit, and the like. 
+
+
+* Tizek. xiii, 16, 22. t Psalm Ixxi, 21. — 
+
+
+Direct. IX. OF SANCTIFICATION. 141 
+
+
+“ 
+
+
+Neither do I intend here any transport or ravishment ~ 
+of joy and delight, but only such manner of comfort 
+as rationally strengthens, in some measure, against 
+the oppression of fear, grief, and despair, which we 
+are liable unto, by reason of our natural sinfulness 
+and misery. 
+
+This explanation of the sense of my assertion, is 
+sufficient to answer some common objections against 
+it. And I hope the truth of it will be fully evi- 
+denced by. the following arguments. 
+
+First, This truth is a clear consectary from those 
+rinciples of holiness that have been already con- 
+rmed, I have shewn, that we must have a good 
+ersuasion of our reconciliation with God, and of our 
+appiness in heaven, and of our sufficient strength 
+
+both to will and to do that which is acceptable to 
+God through Jesus Christ, that we may be rationally 
+inclined and bent to the practice of holiness ; and that 
+these endowments must be had, by receiving Christ 
+himself, with his Spirit, and all his fulness, by trust- 
+ing on him for all his salvation, as he is freely pro- 
+mised to us in the gospel, and that by this faith we 
+do as really receive Christ, as our food by eating and 
+drinking. Now let right reason judge: can we be 
+persuaded of the love of God, of our everlasting hap- 
+piness, and our strength to serve God, and yet be 
+without any comforts! Can the glad tidings of the 
+gospel of peace be believed, and Christ and his Spirit 
+actually received into the heart, without any relief 
+to the soul from oppressing fear, grief, despair? Can 
+the salvation of Christ be comfortless, or the bread 
+and water of life without any sweet relish, to. those 
+that feed on him with hungering and thirsting appe- 
+tites? God will not give such benefits as these to 
+those that do not desire and esteem them above the 
+world, And certainly the very receiving of them 
+will be comfortable to such, except they receive them 
+lindfold ; which they cannot do, when the very 
+nd bestowing them openeth the eyes of a 
+
+
+142 THE GOSPEL MYSTERY Direct. 1X. 
+
+
+sinner, and turns him from darkness to light, where- 
+by he doth, at least, in some measure, see and per- 
+ceive spiritually the things that concern his present 
+and future peace, and reap some encouraging and 
+strengthening comfort thereby to the practice of 
+holiness. 
+
+Secondly, Peace, joy, hope, are recommended to us 
+in Scripture, as the spring of other holy duties ; and 
+fear and oppressing grief forbidden, as hinderances to 
+true religion: “ The peace of God keepeth our hearts 
+and minds through Christ Jesus.* Be ye not sorry, 
+for the joy of the Lord is your strength,t Every man 
+that hath this hope in him, purifieth himself, even as 
+he is pure.{ Fear hath torment: he that feareth, is 
+not made perfect in love.”’§ This is the reason why 
+the apostle doubleth his exhortation, to rejoice in the 
+Lord always, as a duty of exceeding weight and ne- 
+cessity.|| What are such duties but comfort itself? 
+And can we think that these duties are necessary to 
+our continuance in a holy practice, and yet not to the 
+beginning of it, where the work is most difficult, and 
+encouragement most needful? Therefore, we must 
+make haste, in the first place, to get a comfortable 
+frame of spirit, if we would make haste, and not 
+delay to keep God’s holy commandments. 
+
+Thirdly, The usual method of gospel doctrine, as it 
+is delivered to us in the holy Scriptures, is, first to 
+comfort our hearts, and thereby to establish us in 
+every good word and work.4 And it appears how. 
+clearly this method is adjusted in several epistles 
+written by the apostles, wherein they first acquaint 
+the churches with the rich grace of God towards them 
+in Christ, and the spiritual blessings which they are 
+made partakers of, for their strong consolation ; and 
+then they exhort them to. a holy conversation an- 
+swerable to such privileges. And it is not only the 
+
+
+* Phil. iv, 7. + Neh. viii, 10. $1 John iii, 3. 
+§1 John iv. 18, || Phit. tv; 4, {| 2 Thess. ii, 17, 
+
+
+Pt / 
+TF a 
+
+
+ev Ls 
+Sew 
+
+
+Direct. IX. OF SANCTIFICATION, 143 
+
+
+method of whole epistles, but of — particular ex- 
+hortations to duty, wherein the comfortable benefits 
+of the grace of God in Christ are made use of as argu- 
+ments and motives to stir up the saints to a holy 
+ee? which comfortable benefits must first be 
+elieved, and the comfort of them applied to our own 
+souls, or else they will not be forcible to engage us to 
+the practice for which they are intended. To give 
+you a few instances of a multitude that might be 
+alleged, we are exhorted to practise holy duties, be- 
+cause we are dead to sin-and alive to-God through 
+Jesus Christ our Lord ;* and because sin shall not 
+_have dominion over us: for we are not under the law 
+but under grace,t because we are not in the flesh but 
+in the Spirit; and God will quicken our mortal 
+bodies by his Spirit dwelling in us ;{ because our 
+bodies are the members of Christ, and the temples of 
+the Holy Ghost ;§ because God hath made him to be 
+sin for us, who knew no sin, that we might be made 
+the righteousness of God in him ;|| and hath pro- 
+mised that he will dwell in us, and walk in us, and 
+be to us a father, aud we shall be to him sons and 
+
+' daughters ;4 because God hath forgiven us for Christ’s 
+sake, and accounted us his dear children ; and Christ 
+hath loved us and given himself for us, and we that 
+were some time darkness, are now light in the Lord,** 
+because we are risen with Christ ; and when Christ, 
+who is our life, shall appear, then shall we also appear 
+with him in glory,tt because God hath said, 1 will 
+never leave thee, nor forsake thee,}{ because of the 
+many promises made to us.§§ Search the Scriptures ; 
+and you may with delight see that this is the vein that j 
+
+- runneth through gospel exhortation; and you may . 
+find the like vein of comfort running through the 
+
+ prophetical exhortations in the Old Testament. 
+
+
+* Rom. vi, 11. + Rom. vi, 14. t Rom. viii, 9 11. 
+
+. vi, 15,19. || 2 Cor. v, 21. 4 2 Cor. vi, 16, 18, and vii, 1. 
+B2,andv,1,2,8. tt Col.iii, 1,4. tt Heb. xfii, 5. 
+
+. §§ 2 Cor, vil, 1. 
+
+
+St Se ee 
+
+
+144 THE GOSPEL MYSTERY. Direct. IX, 
+
+
+Some may chject, “That the apostles used this 
+method in their writings to saints who had practised 
+holiness already, that so they might continue and 
+_ increase therein.” But to that I may easily reply: 
+Tf it be a method needful for grown saints, much 
+more for beginners, that find the work of obedience 
+most difficult, and have most need of strong consola- 
+tion. And I hope to shew how we may be able to 
+lay hold of these consolations by faith in the very first 
+beginning of a holy life. Besides, the gospel propos- 
+eth peace and comfort freely to those that are not yet 
+brought to holiness, that, if they have hearts to re- 
+ceive it, they may be converted from sin to righteous- 
+ness. When the apostles entered into a house, they 
+were first to say, Peace be to this house.* At their 
+very first preaching to sinners, they acquainted them 
+with the glad tidings of salvation by Christ, for 
+every one that would receive it as a free gift by 
+faith. They assured them, if they would but trust 
+heartily on Christ for all his salvation, they should 
+have it, although they were at present the chief of 
+sinners ; which was comfort sufficient for all that duly 
+esteem spiritual comfort, hungering and thirsting after 
+it. And this is a-method agreeable to the design of 
+the gospel, which is to-advante the riches of the grace 
+of God in all our spiritual enjoyments. God will give 
+us his consolations before our good works, as well! as 
+after them, that we may know that he giveth us 
+everlasting consolation and good hope through grace, 
+and not through the procurement of our works. 
+
+Fourthly, The nature of the duties of the law re- 
+
+uireth a comfortable state of the soul for the per- 
+formance of them. I have before proved sufficiently, 
+that they require a persuasion of our reconciliation 
+with God, and of our future happiness, and strength 
+whereby we may be able to walk in holy obedience: 
+
+
+* Luke x, 5. t Acts iii, 26,—xiii, 26, 32, and xvi, 30, 31. 
+$2 Thess. ii,-16. , P 
+
+
+=) hs home 
+
+
+Direct. IX. OF SANCTIFICATION, 145 
+
+
+Joshua must be strong and very courageous, that he 
+might observe to do according to the law that Moses 
+the servant of the Lord commanded him.* I shall 
+instance briefty in the comforts, without which seve- 
+ral great duties cannot be sincerely performed. Can 
+we love God and delight in him above all, while we 
+look upon him as our everlasting enemy ; and appre- 
+hend no love and mercy in him towards us, that may 
+render him a suitable good for us, and lovely in our 
+eyes? What doleful melody will the heart make in 
+the duty of praise, if we account that all those per- 
+fections for which we praise him, will rather aggra- 
+vate our misery than make us happy? what a heart- 
+less work will it be to pray to him, and to offer up 
+ourselves to his service, if we have no comfortable 
+hope that he will accept us? Is it possible for us to 
+free ourselves from carking cares, by casting our care 
+upon the Lord, if we do not apprehend he careth for 
+us? Can we be patient in affliction with cheerfulness, 
+and under persecutions, except we have peace with 
+God, and rejoice in hope of the glory of God!+ what 
+reason can persuade us to submit willingly, according 
+to our duty, to the stroke of present death, if God be 
+pleased to lay it upon us, when we have no comforts 
+to relieve us against the horrible fear of intolerable 
+torments in hell for ever? 
+
+If we should be called to suffer martyrdom for the 
+
+
+_ Protestant religion, as our ancestors in this nation 
+have done, we should find it necessary to abandon the 
+
+
+xe 
+
+
+\YE 
+
+
+= 
+bi 
+
+
+D 
+- 
+
+
+late upstart notions that have been bred in a time of 
+ease, and to embrace the comfortable doctrine of for- 
+mer Protestants, which, through the grace of God, 
+made so many courageous and joyful martyrs. 
+Fifthly, The state of those that are to be brought 
+
+
+om sin to godliness, requires necessarily that, after 
+
+
+they he convinced of the vanity of their former false 
+confidences, and of their deadness in original sin, and 
+
+
+t Rom. y, I, 2, 3. 
+N i 
+
+
+\\ 
+
+
+‘ a ae Yt 
+oe Seer mS 
+
+
+146 THE GOSPEL MYSTERY. Direct. 1X. 
+
+
+subjection to the wrath of God, they should have a 
+supply of new gospel comforts afforded, to encourage 
+their fainting souls to holy practices. How little do 
+many physicians of souls consider the condition of 
+their unconverted patients, that are altogether with- 
+out spiritual life and strength, and are, or must be 
+convinced thereof? He that prescribeth bodily exer- 
+cise to a man lying bed-ridden under a dead palsy, 
+before any effectual means be used to strengthen him, 
+deserveth the naine of a merciless insulting tormentor, 
+rather than a wise and tender-hearted physician. 
+How unreasonable is it to prescribe the immediate 
+
+ractice of love to God, and universal obedience to 
+him out of love, as the means of cure, for those that 
+see nothing but wrath and enmity in God towards 
+them in their present condition? hat is it but to 
+require a man to work without strength, promising 
+him that he shall have strength when his work is 
+done? For comfort or joy is so called, because it 
+strengtheneth.* True it is, that the law, which is 
+the ministration of condemnation, obligeth them to 
+obedience : but our merciful God expecteth no sin- 
+cere performance of his law from such impotent 
+miserable wretches, in order to their salvation by 
+Christ, until he hath first delivered them, in some 
+measure, from those discomforts, slavish fears, and 
+despondencies that hold them captive under the law 
+of sin and death. We may require a strong healthy 
+person first to work, and then to expect meat, drink, 
+and wages; but a fainting famished person must first 
+have food, or a reviving cordial to strengthen his 
+heart, before he can work. 
+
+Sixthly, Both Seripture and experience shew, that 
+this is the method whereby God bringeth his people 
+from sin to holiness. Though some of them are 
+brought under terrors for a while, that sin may be 
+the more embittered, and the salvation of Christ ren- _ 
+
+
+* Neh. viii, 10. 
+
+
+(jay | 
+
+
+Direct. LX. OF SANCTIFICATION. 147 
+
+
+dered more precious and acceptable to them; yet 
+such are again delivered from their terrors, by the 
+comfort of God’s salvation, that they may he fitted 
+for holiness. And generally a holy life beginneth 
+with comfort, and is maintained by it. God gave to 
+Adam, at his first creation, the comfort of his love 
+and favour, and the happiness of paradise, to encou- 
+rage him to obedience ; and when he had lost those 
+comforts by the fall, he was no longer able to obey, 
+until he was restored by new comfort of the promised 
+seed, Christ, the second Adam, set God always be- 
+fore his face, and he knew that, because God was at 
+his right hand, he should not be moved, therefore his 
+heart was glad, and his glory rejoiced.* This made 
+him willing to bear his agony and bloody sweat, and 
+to he obedient unto death, even the death of the cross. 
+God drew the Israelites to obedience with the cords 
+ofa man, with the bands of love, by taking off the yoke 
+on their jaws, and laying meat before them.t David 
+telleth us, for our instruction, how he was brought to 
+a holy conversation. “ ‘Thy loving-kindness is hefore 
+mine eyes; and I have walked in thy truth.” Lord, 
+I have hoped for thy salvation, and done thy com- 
+menener et We have several examples in the New 
+Testament of the joy that sinners had in the first re- 
+ceiving of Christ.|| And when the gospel first came 
+_ to the Thessalonians, “they received the word in 
+much affliction, with joy in the Holy Ghost.”q 
+“When the Gentiles heard the word of God, the 
+were glad: and as many as were ordained to eterna 
+life believed.** The apostle Paul was constrained by 
+the love of Christ to give up himself to live to Christ.++ 
+_ I dare appeal to the experience of any that obey God 
+out of hearty love. Let them examine themselves, 
+and consider whether they\are brought to give up 
+
+
+_ * Psa. xvi, 8,9. t Hos. xi,4. Psa. xxvi,3.  § Psa. cxix, 166° 
+it || Acts ii, 41. J 1 Thess. i, 4, 5, 6. ** Acts xiil, 48, 
+\ tt 2 Cor. v, 14, 15, : 
+
+
+Vi 
+
+
+148 THE GOSPEL MYSTERY Direct. 1X. 
+
+
+themselves to serve God in love, without comfortable 
+apprehensions of the love of God towards them? I 
+dare say there are no such prodigies in the new birth. 
+
+Seventhly, What comfortless religion do those make 
+that allow people no comfort beforehand, to strengthen 
+them for holy performances which are very cross, 
+displeasing, and grievous to their natural inclinations, 
+as the plucking out of a right eye, cutting off a right 
+hand ; but would have them first to do such things 
+with love and delight, under all their present fears, 
+despondencies, and corrupt inclinations, and to er 
+that by doing the work thoroughly and sincerely, 
+they shall at last attain to a more favourable state? 
+All true spiritual comfort, as well as salyation, is in- 
+deed quite banished out of the world, if it be suspended 
+upon the condition of our good works, which hath 
+already appeared to be the condition of the law, that 
+worketh no comfort, but wrath.* This makes the 
+way of godliness odious to many. They think they 
+shall never enjoy a pleasant hour in this world ifthey 
+walk in them, and they had rather comfort themselves 
+with sinful pleasures, than have no comfort at all. 
+Others labour a while in such a comfortless religion, 
+with inward fretting and repining at the bondage of 
+it, and at last grow weary, and throw off all religion, 
+because they know none better. They that bind such 
+heavy burdens upon ‘men, and grievous to be borne, 
+will plead that they are not to be blamed, because 
+they do but preach the gospel of God and Christ ; 
+whereas, indeed, they preach a gospel of man’s own 
+forging, contrary to the nature of the true gospel of 
+Christ, which is glad tidings of great joy to all people.t 
+An uncomfortable gospel cannot proceed from God 
+the Father, who is the Father of mercies and the God 
+of all comfort ;} nor from Christ, who is the consola- 
+tion.of Israel ;§ nor from the Spirit, who is the Com- 
+forter.|| God mecteth him that rejoiceth and worketh 
+
+
+* Rom. iv, 14,15. + Lukeii, 10. $2 Cor.i,3. § Luke ii, 25. _. 
+|| John xvi, 16, 17. 
+
+
+Direct. X. OF SANCTIFICATION. 149 
+
+
+righteousness.* He will be served with gladness and 
+singing ; as he shewed by the type of variety of 
+music, and great numbers of musicians in the temple. 
+Christ ks to us by his gospel, that his joy may 
+abide in us, and that our joy may be full.t No sor- 
+row is approved of by God, except godly sorrow, 
+which can never be in us without some comfort of the 
+love of God towards us. They that are offended at 
+the uncomfortableness of a religious life, never yet 
+knew the true way of religion, else they would find, 
+that the ways of wisdom are.sways of pleasantness, and 
+all her paths peace. 
+
+
+DIRECTION X. 
+
+
+That we may be prepared by the comforts of the gospel, to perform 
+sincerely the duties of the law, we must get some assurance of our 
+salvation, in that very faith whereby Christ himself is received into 
+our hearts: therefore we must endeavour to believe on Christ con- 
+fidently, persuading and assuring ourselves in the act of believing, 
+that God freely giveth to us an interest in Christ and his salvation, 
+according to his gracious promise. 
+
+
+EXPLICATION. 
+
+
+Ir is evident, that those comforts of the gospel that 
+are necessary to a holy practice, cannot be truly re- 
+ceived without some assurance of our interest in 
+Christ and his salvation; for some of these comforts 
+consist in a good \persuasion of our reconciliation with 
+_ God, and of our future heavenly happiness, and of 
+_ strength both to will and to do that which is accep- 
+_ table to God through Christ; as hath been before 
+_ shewed, Hence it will clearly follow, that this as- 
+surance is very necessary to enable us for the practice 
+f holiness, as those comforts that must go before the’ 
+s of the law in order of nature, as the cause goeth 
+
+
+150 THE GOSPEL MYSTERY Direct. X. 
+
+
+before the effect, though not in any distance of time. 
+My present work is to shew what this assurance is, 
+that is so necessary unto holiness, and which I have 
+here asserted we must act, in that very faith whereby 
+we receive Christ himself into our hearts, even in jus- 
+tifying saving faith. This doctrine seemeth strange 
+to many that profess themselves Protestants in late 
+days ; whereas it was formerly highly owned by the 
+chief Protestants whom God made use of to restore 
+the purity of the gospel, and to maintain it against 
+the Papists for many years. ‘They commonly taught, 
+That faith wags a persuasion or confidence of our own 
+salvation in Christ ; and that we must be sure to apply 
+Christ and his salvation to ourselves in believing. And 
+this doctrine was one of the great engines whereby 
+they prevailed to overthrow the Popiah superstition, 
+whereof doubtfulness of salvation is one of the prin- 
+cipal pillars, But many of the successors of: those 
+Protestants have deserted them, and left their writ- 
+ings to be shamefully insulted by the Papists. And 
+this innovation hath been of longer standing amongst 
+us than several other parts of our new divinity, and 
+maintained by those that profess to abhor that cor- 
+rupt doctrine which the Papists have built upon such 
+principles. Modern divines may think they stand 
+upon the shoulders of their predecessors whose labours | 
+they enjoy, and that they can see farther than they; 
+as the schoolmen might have like thoughts of the an- 
+cient fathers : but, for all this, they may not be able 
+to see so far, if the eyes of their predecessors were 
+better enlightened by the Spirit of God, to understand 
+the mystery of the gospel. And why may we not 
+judge that it is so in the present case? The eyes of 
+men in these late years have been blinded in this point 
+of assurance by many false imaginations. They think 
+because salvation is not promised to us absolutely, 
+but upon condition of believing on Christ for it ; 
+therefore we must first believe directly on Christ for 
+our salvation, and, after that, we must reflect our 
+‘ Soin 
+
+
+151 
+
+
+minds upon our faith, and examine it by several 
+marks and signs, especially by the fruit of sincere 
+obedience ; and if, upon this examination, we find out 
+certainly, that it is true saving faith, then, and not 
+before, we may believe assuredly that we in particular 
+shall be saved. On this account they say, that our 
+salvation is by the direct, and our assurance by the 
+reflex, act of faith ; and that many have true faith, 
+and shall be saved, that never have any assurance of 
+their salvation as long as they live in this world. 
+They find, by Scripture and experience, that man 
+siete saints of God are frequently troubled wit 
+oubtings whether they shall be saved, and whether 
+their faith and obedience be sincere, so that they can- 
+not see assurance in themselves: therefore they con- 
+clude that assurance must not be accounted absolutely 
+necessary to justifying faith and salvation, lest we 
+should make the hearts of doubting saints sad, and 
+drive them to despair. They account that former 
+Protestant’ were guilty of a manifest absurdity, in 
+making assurance to be of the nature and definition 
+of saying faith, because all that hear the gospel, are 
+bound to saving faith, and yet they are not bound 
+absolutely to believe that they themselves shall.be 
+saved ; for then many of them would be bound to 
+believe that which is not declared in the eae con- 
+cerning them in particular ; yea, that which is a plain 
+lie, because the gospel sheweth that many of those 
+that are called are not chosen to salvation, but perish 
+for ever.* No wonder if the appearance of so great 
+an absurdity move many to imagine, that saving 
+faith is a trusting or resting on Christ, as the only 
+_ sufficient means of salvation, without any assurance ; 
+_ or, that it is a desiring and venturing to trust or rely 
+upon him, in a mere state of Hapa and uncertainty 
+- concerning our salvation, or with a probable opinion 
+njectural hope of it at best. 
+. ; * Matt. xx, 16. 
+
+
+) cs 
+152 THE GOSPEL MYSTERY Direct. X. 
+
+
+Another objection against this doctrine of assurance 
+is, that it destroyeth self-examination, bringeth forth 
+the evil fruits of pride and arrogancy, if they knew 
+their places in heaven already before the day of judg- 
+ment ; causeth carelessness of duty, carnal security, 
+all manner of licentiousness. And this maketh them 
+commend doubtfulness of .our salvation, as necessar 
+to maintain in us humility, religious fears, watchful- 
+ness, much searching and trying our spiritual state 
+and ways, diligence in good works, and all devotion. 
+
+Against all these contrary imaginations, I shall en- 
+deayour to maintain this ancient Protestant doctrine 
+of assurance, which I have expressed in the direction. 
+And, first, L shall lay down some observations for the 
+right understanding of it, which will be sufficient to 
+turn the edge of the strongest objections that can be 
+made against it. 
+
+First, Observe diligently, that the assurance direct- 
+ed unto, is not a persuasion that we have already re- 
+ceived Christ and his salvation, or that wé have been 
+already brought into a state of grace: but only that 
+God is pleased graciously to give Christ and his sal- 
+vation unto us, and to bring us into a state of grace, 
+though we have been altogether in a state of sin and 
+death uutil this present time : so that this doctrine doth 
+not at all tend to breed presumption in wicked and un- 
+regenerate men, that their state is good already : but 
+only encourageth them to come to Christ confidently 
+for a good state. I acknowledge, that we may, yea, 
+many must be taught to doubt whether their present 
+state be good; and that it is humility so to do; and 
+that we must find out the certainty and sincerity of 
+our faith and obedience by self-examination, before 
+we can have a well-grounded assurance that we are 
+ina state of grace and salvation already ; and that 
+such an assurance belongeth to that which they call 
+the reflex act of faith, (if any act of faith can bemade 
+of it, it being spiritual sense or feeling of what is in — 
+myself, ) and is not of the essence of that faith whereby 
+
+
+r » 
+
+
+Direct. X: OF SANCTIFICATION. 1538 
+
+
+we are justified and saved; and that many precious 
+saints are without it, and subject to many doubts that 
+are contrary to it; so that they may not know at all 
+that it shall go well with them at the day of judg- 
+ment; and that it may be sometimes intermitted, if 
+not wholly lost after it is gotten ; and that we should 
+strive to walk holily, that we may attain to it, be- 
+cause it is very useful for our growth and increase in 
+faith, and in all holiness. Most Protestants among 
+us, when they speak or write of assurance, mean onl 
+that which is by reflection. And I have'said pester 
+briefly to shew, that what I assert, is consistent with 
+the doctrine which is commonly received concerning 
+it, and destructive to none of the good fruits of it ; 
+therefore not guilty of those evils that some falsel 
+charge it with. This kind of assurance, which I speak 
+of, answereth not the question, Whether I am already 
+ina state of grace and salvation? There is another 
+great question that the soul must answer, that it may 
+get into a state of grace, Whether God be graciously 
+pleased now to bestow Christ and his salvation upon 
+me, em I have been hitherto a very wicked crea- 
+ture : e must be sure to resolve this question con- 
+fortably, by another kind of assurance in the direct 
+act of faith, wherein we are to persuade ourselves 
+(without reflecting upon any good fakes in 
+- ourselves) that God is ready gracious y to receive us 
+into the arms of his saying mercy in Christ, notwith- 
+standing all our former wickedness, according to that 
+gracious promise, I will call them my people, which 
+were not my people; and her, beloved, which was not 
+beloved. And it shall come to pass, that in the place 
+where it was said unto them, Ye are not my people, 
+there shall they be called, the children of the living 
+_God.* 
+_ Secondly, The assurance directed unto, is not a per- 
+- suasion of our salvation whatever we do, or however 
+i P 
+
+
+* Rom. ix, 25, 26. 
+
+
+we 
+
+
+164 THE GOSPEL MYSTERY Direct. X. , 
+
+
+we live and walk ; but only in a limited way through 
+mere free grace in Christ, by partaking of holiness as 
+well as forgiveness, and by walking in the way of 
+holiness to the enjoyment of the glory of God. We 
+shall not heartily desire or endeavour to assure our- 
+selves of such asalvation as this is, if we be not brought 
+first to see our own sinfulness and misery, and to 
+despair of our own righteousness and strength, and to 
+hunger and thirst for the sanctifying as well as jus- 
+tifying grace of God in Christ; that so we may walk 
+in the ways of holiness, to the enjoyment of heavenly 
+glory. The faith whereby we receive Christ, must 
+
+ave in it, not only a persuasion of happiness, but 
+these and the like good qualifications that will make 
+it a most holy faith. Certainly an assurance thus 
+qualified, will not beget any pride in us, but rather 
+humility and self-loathing, except any account it 
+pride, to rejoice and glory in Christ, when we have 
+no confidence in the flesh.* It will not destroy reli- 
+gious fear, and breed carnal security ; but rather it 
+will make us fear going aside from Christ, our only 
+refuge and security, and walking after the flesh. 
+Noah had cause to enter into the ark, and to abide 
+there with assurance of his preservation ; yet he might 
+well be afraid to venture out of the ark, because he 
+was persuaded, that continuance in the ark was his 
+only safety from perishing in the flood. And how 
+can a persuasion of salvation, in a way of holiness, 
+breed slothfulness in duty, carelessness, and licen- 
+tiousness? It doth rather mightily allure us, and 
+stir us up to be always abounding in the work of the 
+Lord, forasmuch as we know that our labour shall 
+not be in vain 1n the Lord.t They that are persuad- 
+ed of the free grace of God toward them in Christ, 
+are not indeed solicitous about earning their salvation 
+“by their own legal works. And satan is ready to sug- 
+gest to them, that this is a sinful carelessness, and 
+
+
+* Phil, fii, 3. +1 Cor, xv, 58, 
+
+
+vt 
+
+
+BY" if "eye hoa oat 
+fp oleae a me 
+
+
+Direct. X. OF SANCTIFICATION. 155 
+
+
+tendeth to licentiousness. But they that will believe 
+this false suggestion of satan, shew plainly, that they 
+do not yet know what it is to serve God in love, and 
+that they are held in, to all their obedience, by the 
+bit and bridle of slavish fear, as the horse and mule, 
+that have no understanding.* 
+
+Thirdly, Beware of thinking so highly of this as- 
+surance, as if it were inconsistent with any doubting 
+in the same soul. <A great reason why many Protes- 
+tants have receded from the doctrine of their ances- 
+tors in this point, is, because they think there can be 
+no true assurance of salvation in any that are troubled 
+with doubtings, as they find many be, whom they 
+cannot but own as true believers, and precious saints 
+of God. True, indeed, this assurance must be con- 
+trary to doubtings in the nature of it; and so, if it 
+were perfect in the highest degree, it would exclude 
+all doubting out of the soul, and it doth now exclude 
+it in some degree. But is there not flesh as well as 
+spirit in the best saints on earth ?+ Is there not a law 
+in their members warring against the law of their 
+minds?{ May not one that truly believeth, say, 
+Lord, help my unbelief?§ Can any one on earth say, 
+they have received any grace in the highest degree, 
+and that they are wholly free from the contrary cor- 
+ruption ? Why then should we think, that assurance 
+cannot be true, except it be perfect, and free the soul 
+from all doubtings? The apostle accounts it a great 
+blessing to the Thessalonians, that they had much as- 
+surance ; intimating, that some true assurance might 
+be in a less degree.|| Peter had some good assurance 
+of Christ’s help, when he walked on the water at 
+Christ’s command ; and yet he had some doubtfulness 
+in him, as his fear shewed when he saw the wind 
+
+_ boisterous. He had some faith contrary to doubt- 
+ing, though it were but little, as Christ’s words to 
+
+
++ * Psalm xxii, 9. + Gal. v, 17. t Rom. vii, 23. 
+a -S Mark ix, 24. _ || 1 Thess, i, 5. p 
+
+
+. > a ve 
+es, § SNe eee cna he 
+
+
+156 THE GOSPEL MYSTERY Direct. X. 
+
+
+him shew. O thou of little faith, wherefore didst 
+thou doubt?* It is strange if the flesh and the devil 
+should never oppose a true assurance, and assault it 
+with doubtings. A believer may be sometimes so 
+overwhelmed with doubtings, that he may not be 
+able to perceive an assurance in himself. He is so 
+far from knowing his place in heaven already (as some 
+scoffingly object) that he will say, that he knoweth 
+not any assurance that he hath of being there, and 
+needeth diligent self-examination to find it out. Yet, 
+if at that time he can blame his soul for doubting, 
+Why art thou cast down, O my soul? and why art 
+thou disquieted within me? hope thou in God, for I 
+shall yet praise him;t+ if he can condemn his doubt- 
+ings as sinful, and say with himself, This is my infir- 
+mity;{ these doubtings are of the flesh, and of the 
+devil; if he still endeavour to call God, Father, and 
+complain to him, that he doubteth whether he be his 
+father, and pray, that God will give him the assur- 
+ance of his fatherly love, which he is not sensible of, 
+and dispel those fears and doubtings: I say, that such 
+a one hath some true assurance, though he must strive 
+to grow to a higher degree; for, if he were not per- 
+suaded of the truth of the love of God towards him, 
+he could not rationally condemn his fears and doubts 
+concerning it as sinful; neither could he rationally 
+pray to God as his Father, or that God would assure 
+him of that love that he doth not think to be true. 
+Do but grant that it is the nature of saving faith, 
+thus to resist and struggle with slavish fears of wrath, 
+and doubting of our own salvation ; and you grant, in 
+effect, that there is, and must be, something of assurance 
+of our salvation in saving faith, whereby it resisteth 
+doubtings; and you are, in effect, of the same judg- 
+ment with me in the assertion, however strange my 
+expressions seem to you. If this that I have said, 
+concerning our imperfection in assurance, as well as 
+
+
+* Matt. xiv, 29—31. + Psalm xlii, 11. } Psalm Ixxvii, 10. 
+
+
+* 
+
+
+: Direct. xX. OF SANCTIFICATION, 157 
+
+
+in other graces, were well considered, this ancient 
+Protestant doctrine would be freed much from pre- 
+judice, and gain more esteem among us. 
+
+Fourthly, In the last place, Let it be well observ- 
+ed, that the reason why we are to assure ourselves in 
+our faith, that God freely giveth Christ and his sal- 
+vation to us particularly, is not, because it is a truth 
+before we believe it, but because it hecometh a cer- 
+tain truth when we believe it, and because it will 
+never be true, except we do in some measure persuade 
+and assure ourselves that it isso. We have no abso- 
+lute promise or declaration in Scripture, that God 
+certainly will or doth give Christ and his salvation to 
+aa one of us in particular; neither do we know it 
+to be true already by Scripture, or sense, or reason, 
+_ before we assure ourselves absolutely of it: yea, we 
+are without Christ’s salvation at present, in a state of 
+
+_ sin and misery, under the curse and wrath of God. 
+
+Only I Shall prove, that we are bound, by the com- 
+
+mand of God, thus to assure ourselves ; and the Serip- 
+
+ture doth sufficiently warrant us, that we shall not 
+
+_ deceive ourselves in believing a lie: but according to 
+our faith, so shall it be to us.* This is a strange kind 
+of assurance, far different from other ordinary kinds; 
+and therefore no wonder if it be found weak and im- 
+perfect, and difficult to be obtained, and assaulted 
+with many doubtings. We are constrained to believe 
+_ other things on the clear evidence we have that they 
+are true, and would remain true, whether we believe 
+' them or no; so that we cannot deny our assent, with- 
+out rebelling against the light of our senses, reason, 
+conscience. But here our assurance is not impress- 
+on our thoughts by any evidence of the thing ; 
+t we must work it out in ourselves by the assist- 
+ee of the Spirit of God, and thereby we bring our 
+thoughts into captivity to the obedience of Christ. 
+but God can justly require of us this kind of 
+
+
+‘ 
+
+
+* Matt. ix, 29. 
+
+
+158 THE GOSPEL MYSTERY Direct. X. 
+
+
+assurance, because he only calleth those things that 
+are not, as though they were.* He only ean give 
+existence to the things that yet are not, and make a 
+thing to be true, upon our believing it, that was not 
+true before. He only can make good that promise, 
+What things soever ye desire when ye pray, believe 
+that ye receive them, and ye shall have them.f Who 
+is he that saith, and it cometh to pass, when the Lord 
+commandeth it not?{ Therefore this faith is due to 
+God only, and greatly redoundeth to his glory. Men 
+will often require a believing something like it: as 
+when one says, I will forgive your offence, and be 
+your friend, if I can find that you believe it, and that 
+you take me for a friend. But their fallible word is 
+not sufficient ground to make us persuade ourselves 
+absolutely, that we shall have their promised fayour, 
+The faith of miracles gives us some light in this mat- 
+ter. Christ assured them on whom they were wrought, 
+and who had power given them of working them, » 
+that the miracles should be wrought, if they believed 
+without doubting of the event. And there is a rea- 
+son for this resemblance ; because the end of working 
+miracles was to confirm the doctrine of the gospel of 
+salvation by faith in Christ’s name, as the Scriptures 
+clearly shew: and indeed the salvation of a sinner is 
+avery great miracle. It is reported that wizards do 
+often require those that come to them, that they 
+should believe they shall obtain what they desire of — 
+them, or at least that they are able to fulfil their de- 
+sires, whereby the devil, the master of those wizards, 
+sheweth himself to be God’s ape, and that he would 
+fain have that honour and glory ascribed to himself 
+that is due to God alone. 
+
+Having thus explained thenature of that assurance — 
+which I have directed unto, I shall now produce 
+several arguments to prove, that there is, and must 
+necessarily be, such an assurance or persuasion of our 
+salvation in saving faith itself. % 2 ; 
+
+* Rom.iyv,17. + Mark xi, 24. { Lam. iii, 37. 
+
+
+a re 
+
+
+§ Mark xi, 22, 23. 
+
+
+rie 
+© ey 
+
+
+rect. X. OF SANCTIFICATION, 169 
+_ _ First, This assurance of salvation is implied in the 
+description before given of that faith, whereby we re- 
+ceive Christ, and his salvation, into our hearts. I 
+described faith to be a grace of the Spirit, whereby 
+we heartily believe the gospel, and also believe on 
+Christ, as he is revealed and freely promised to us 
+therein, for all his salvation. And I shewed, in the 
+explanation, that believing on Christ is the same with 
+resting, relying, leaning, staying ourselves on Christ, 
+or God through Christ, for our salvation. It may 
+be, some will like that description the better, because 
+faith was there described by terms that are ordinarily 
+used, even by those that deny the necessity of assur- 
+ance; but these ordinary terms do sufficiently include 
+assurance in the nature of faith, and they cannot 
+stand without it. And this sheweth, that many hold 
+the doctrine of assurance implicitly, and profess it, 
+though they think the contrary. Believing on Christ 
+for salvation, as freely promised to us, must needs 
+include a dependance on Christ, with a persuasion, 
+that salvation shall be freely given, as it is freely 
+promised to us. Believing with a divine faith, 
+-grounded on the infallible truth of the free promise, 
+if it did not in some measure exclude a mere suspense, 
+and wayering opinion or conjecture, were not worthy 
+tobe so called. Some may be so absurd as to say, that 
+faith is only a believing, that we shall be saved by 
+_ Christ if we perform such conditions as he requireth : 
+and then indeed it will leave us where it found us, as 
+_ to any certainty of salvation, until those conditions 
+_ be performed, But I have already prevented such 
+an absurdity, by shewing, that this believing on 
+Christ, is itself, not only the condition of our salva- 
+tion, but also the instrument whereby we actually 
+receive it. Believing, being the proper act of faith, 
+ist needs have the same contraries to it; as stagger- 
+“* wavering,t doubting, | fear.§ These contraries 
+
+
+iv, 20. + Heb. x, 23. } Matt. xiv, 31. § Mark y, 36. 
+
+
+’ 
+160 THE GOSPEL MYSTERY Direct. X. 
+
+
+do much illustrate the nature of faith: and do shew, 
+that believing must have some confidence in it, else it 
+would have doubting in the very nature of it: for 
+what man that understandeth the preciousness of his 
+immortal soul, and his danger of losing it, can ever 
+avoid fear, doubting, and trouble of heart, by any be- 
+lieving whereby he doth not at all assure himself of 
+his salvation? The other terms of trusting and rest- 
+ing on Jesus Christ, &c. whereby faith is often de- 
+scribed by orthodox teachers, must include assurance 
+of salvation, because they signify the same thing with 
+believing on Christ. The soul must have its sufficient 
+support, to bear it up against oppressing fears, 
+troubles, cares, despair, that it may thus trust and 
+rest. ‘The right manner of trusting and hoping in the 
+Lord, is, by assuring ourselves, against all fears and 
+doubtings, that “the Lord is our God, and he is be- 
+come our salvation. I trusted in thee, O Lord: I 
+said, thou art my God.* The Lord is my rock, and my 
+fortress, and my deliverer; my God, my strength, in 
+whom I will trust.f Behold, God is my salvation: I 
+will trust and not be afraid.{ O my soul, hope thou 
+in God, who is the health of my countenance, and m 
+
+God.”§ True hope is grounded in God only, that he 
+will bless us, that it may be an anchor for the soul, 
+sure and stedfast.|| If you trust, rely, and stay 
+yourselves on Christ, or hope in him, without assur- 
+ing yourselves at all of salvation by him, you make 
+no better use of him, than if he were a broken reed : 
+and, if you would stay yourselves on the Lord, you 
+must look upon him as your God; as the prophet 
+teacheth, Let him trust in the name of the Lord, and 
+stay upon his God.@ If you would rest in the Lord, 
+you must believe, that he dealeth bountifully with 
+you,[ or else, for aught you know, you may make 
+
+
+* Psalm xxxi, 14. + Psalm xviii, 2. t Isa. xii, 2. 
+§ Psalm xlii, 11. || Heb. vi, 17—19. q Isa. i, 10. 
+{ Psalm cxvi, 7, 
+
+
+> 
+
+
+‘4 
+
+
+4 
+
+
+Direct. X. OF SANCTIFICATION. 161 
+
+
+your bed in hell. And you will shew little regard of 
+Christ, and of your own soul, if you dare to rest 
+under the wrath of God, without any persuasion of a 
+sure interest in Christ. People may please them- 
+selyes with such a trusting or resting, &c. when the 
+are at ease; but, in time of temptation, it vanisheth 
+away, and appeareth to be no true faith, but is turned 
+into shame. The soul that liveth in’ such wavering 
+_and doubting concerning salvation, doth not stay itself 
+nor rest at all; but is like a wave of the sea, driven 
+with the wind, and tossed; he is a double-minded 
+man, unstable in all his ways.* If you continue in 
+mere suspense and doubtfulness of salvation by Christ, 
+your desire to trust, is but a lazy woulding, without 
+any fixed resolution, and you dare not yet venture to 
+trust on him stedfastly. If you call it only your de- 
+sire to trust and rely on Jesus Christ, I may answer, 
+that you cannot do this much in a right manner, ex- 
+cept you desire and venture to persuade and assure _ 
+yourselves of your salvation by Christ, notwithstand- 
+ing all the causes that you have to doubt and fear the 
+contrary. If it be objected, that we may trust on 
+Christ only as a sufficient means of salvation, without 
+any assurance of the effect; I shall acknowledge, 
+that the sufficiency of God and Christ-is a good 
+round for us to rest on: but we must understand by 
+it, not only a sufficiency of power, but also of good- 
+will and mercy towards us; for what have we to do 
+-more with the sufficiency of God’s and Christ’s 
+power than fallen angels, without his good-will to- 
+wards us? And if this be truly believed, it will ex- 
+clude doubtfulness concerning your salvation. 
+Secondly, Several places of Scripture declare posi- 
+ively and expressly, that we are to be assured of our 
+ation in that faith whereby we are justified and 
+I shall produce some instances. We are ex- 
+| to draw near to God with full assurance of 
+
+
+a ate a Sl ils 
+
+
+“4 } 
+_- * James i, 6, 8 iy 
+4, Oe 0 2 13; ; ae e 
+or or ae f ie 
+
+
+162 THE GOSPEL MYSTERY Direct. X. 
+
+
+faith.* Many apply this text to that which they call 
+the reflex act of faith, because they imagine that all 
+assurance must needs be by reflection. But the words 
+of the text do clearly teach us to understand it of that 
+act of faith whereby we draw near to God; that is, 
+the direct act; and it is that very faith whereby the 
+just do live, even justifying saving faith.t And this 
+assurance must be full, at least in the true and proper 
+nature of it, in opposition unto mere doubtfulness 
+and uncertainty, though we are yet further to labour 
+for that which is full in the highest degree of perfec- 
+tion. And the same faith whereby we are exhorted 
+to draw nigh unto God, and whereby the just liveth, 
+is, a little after,{ affirmed to be the substance of 
+things hoped for, and the evidence of things not seen. 
+Why should saving faith have these high titles and 
+attributes given to it, if it did not contain in it a sure 
+persuasion of the great things of our salvation hoped 
+for, which maketh them to be evident to the eyes of 
+our mind, as if they were already present in their 
+substance, though not yet visible to our bodily eyes? 
+That faith whereby we are made partakers of Christ, 
+and to be Christ’s house, must be worthy to be called 
+confidence, and accompanied with rejoicing hope: 
+«Whose house are we, if we hold fast the confidence 
+and rejoicing of the hope firm unto the end.”’§ What 
+is confidence concerning any thing, but trusting con- 
+cerning it, with a firm persuasion of the truth of it? 
+If we have only a strong opinion concerning a thing, 
+without any absolute certainty, we use to say, that 
+we are not altogether confident of it. The faith 
+whereby we are justified, must be in a measure like 
+to the faith whereby Abraham against hope believed 
+in hope, that his seed should certainly be multiplied 
+according to the promise of God: though, by reason 
+_ of the deadness of his own body, and of Sarah’s 
+
+
+* Heb. x, 22, + Heb, x, 38. t Chap. xi, 1. 
+§ Heb. iii, 6, 14. ahr 
+(Zz es 
+
+
+wh 
+Direct. X. OF SANCTIFICATION. 165 
+
+
+womb, he could have no.evidence from his own quali- 
+fications to assure himself of it ; but all appearances 
+were rather to the contrary; as the apostle teacheth 
+clearly.* As absolute as this promise was, thus 
+made to Abraham, yet it was not to be fulfilled with- 
+out this assurance of faith; and, by the like faith, the 
+free promises of salvation by Christ will be absolutely 
+fulfilled tous. The apostle Jamesexpressly requir- 
+eth, that we should ask good things of God in faith, 
+nothing doubting; which includeth assurance mani- 
+festly: and he tells us plainly, that without it a man 
+ought not to think that he shall receive any thing of 
+the Lord. Therefore we may firmly conclude, that 
+without it we shall not receive the salvation of Christ.t 
+And that which the apostle James requireth us not to 
+doubt of, is the obtaining the things that we ask; as 
+we may learn from an instruction to the same pur- 
+pose given to us by Christ himself, “What things 
+soever ye desire, when ye pray, believe that ye receive 
+them, and ye shall have them.” More places of 
+Scripture might be alleged to the same purpose ; but 
+these are sufficient to evince, that we are bound to 
+assure ourselves of our salvation in faith itself, or else 
+we are never likely to enjoy it; and that it is not 
+humility, but rather proud disobedience, to live in a 
+state of mere suspense and doubtfulness concerning 
+our salvation ; and that this assurance must be in the 
+direct act of faith whereby we are justified and saved. 
+For, as for that which is called the reflex act of faith, 
+it isa certain truth, and generally owned, that it is 
+not absolutely necessary to salvation to any; and that 
+it is sinful and pernicious to many to believe, that 
+_ they are already entered’ into a state of grace and 
+salvation. 
+Thirdly, God giveth us sufficient ground in Serip- 
+_ ture to come to Christ with confident faith, at_the 
+very first; trusting assuredly, that Christ and his 
+i \\ 
+iy + James i, 6, 7. t Mark xi, 24. | 
+
+
+ae 
+
+
+9, 23, 24, 
+
+
+164 THE GOSPEL MYSTERY Direct. X.. 
+
+
+salvation shall be given to us without any failing and 
+delay, however vile and sinful our condition hath 
+been hitherto. The Scripture speaketh to the vilest 
+sinners in such a manner as if it were framed on pur- 
+pose to beget assurance of salvation in them imme- 
+diately.* This promise is universal, that whosoever 
+believeth on Christ, shall not be ashamed, without 
+making a difference between Jew and Greek.f And 
+this promise is confirmed by the blood of Christ, who 
+was given for the world, and lifted up upon the cross 
+for this very end, that whosoever believeth on him, 
+should not perish, but have everlasting life.[ His 
+invitation is free to any, If any man thirst, let him 
+come to me and drink; and this drink is promised to 
+every one that believeth.§ The command of beliey- 
+ing is propounded, not only in general, but in parti- 
+cular; and the promise of salvation upon believing, is 
+also applied personally, and that to such as haye 
+been hitherto in a state of sin and wrath; as to the 
+wicked, persecuting, self-murdering jailor.|| ‘ Believe 
+
+
+_ on the Lord Jesus, and thou shalt be saved, and 
+
+
+thine house.” God commanded them that walked 
+altogether in sin hitherto, to call him their own 
+father, in their very first returning.{| So,** God 
+saith, he will say, Thou art my people; and they 
+shall say, Thou art my God: confidently averring 
+their personal interest in him, God hath joined con- 
+fidence and salvation inseparably together: In re- 
+turning and rest shall ye be saved; in quietness and 
+in confidence shall be your strength.t+ What a poor 
+slender use and improvement do many make of these 
+discoveries of the rich grace of God towards sinners, 
+who say, that, if we see that we have performed the 
+condition of believing, then we may take Christ confi- 
+dently as our own! ‘They skip over the first and 
+
+
+* Acts ii, 39, and iii, 26. + Rom.x, 11,12, $John iii, 14, 15, 16. 
+§ John vii, 37,39. || Acts xvi, 31. Jer. iii, 4. ** Hos. ii, 23. 
++7 Isa. xxx, 15. py 
+
+
++ fh ea 
+
+
+‘on ol 
+
+
+Direct. X. OF SANCTIFICATION. 165 
+
+
+principal use they ought to make of them. The very 
+performance of the condition is to take Christ as our 
+own immediately, and to eat him, and drink him, by 
+believing confidently on him for our salvation. If an 
+honest rich man say to a poor woman, I promise to 
+be thy husband if thou wilt have me; say but the 
+word, and I am thine; may she not presently answer 
+confidently, then thou art my husband, and I claim 
+thee for my husband: and should she mot rather say 
+so, than say, I believe not what thou sayest? If an 
+honest man say, do but take this gift, and it is your 
+own; do but eat and drink, and you are freely wel- - 
+come; may not I take the gift and eat and drink at 
+first, without any further ado, and with assurance 
+that it is mine freely? If I do it doubtingly, I dis- 
+parage the honesty and credit of the donor, as if he 
+were not a man of his word. In like manner, if, 
+fearing to be too confident, lest we should believe a 
+lie, we should come to Christ doubtingly, and in 
+mere suspense, whether we shall be freely entertained, 
+after all God’s free invitations and promises, should 
+we not disparage the faithfulness of God! and should 
+we not be guilty of making God a liar? as the apostle 
+John teacheth, because of our not believing the re- 
+cord which God gave of his Son: And this is the re- 
+cord that God hath given to us, eternal life; and this 
+life is in his Son.* And what if the salvation prom- 
+ised be not absolutely intended for all to whom the 
+; gos el cometh ; it is enough, that God giveth us his 
+faithful word, that they that believe shall have it, 
+and none else; and hath absolutely intended to fulfil 
+his word that none shall find it to be a lie to them, 
+_ and hath joined believing and salvation inseparably 
+- together. On this ground) God may justly cause the 
+promise of this salvation to be published to all, and 
+May justly require all to believe on him assuredly 
+wr their salvation, that so it may appear whether 
+
+
+* | John vy, 10, Il. 
+
+
+166 TUE GOSPEL MYSTERY —»«-_Direct. X. 
+they will give him the glory of his iruth; and, if 
+they will not, he may justly reject them, and punish 
+them severely for dishonouring him by their unbelief. 
+In this case, we must not look to the secret decrees 
+of God, but to his revealed promises and command. 
+Thus God promised to the Israelites in the wilder- 
+ness, that he would give them the land of Canaan, 
+and would fight for them against their enemies; and 
+required them not to fear or be discouraged, that so 
+the promise might be fulfilled to them: yet God 
+never absolutely decreed or intended, that those 
+Israelites should enter in; as the event did quickly 
+manifest. Yet were they not bound in this case to 
+trust confidently in God to give them victory over 
+their enemies, and to give them the possession of the 
+land? had they not sufficient ground for such a faith? 
+Was it not just with God to consume them in the 
+wilderness for their unbelief? Let us therefore fear, 
+lest a promise being made of entering into this ever- 
+lasting rest through Christ, we should come short of 
+it, and fall after the same example of unbelief.>+ 
+Fourthly, The professors of true godliness that we 
+read of through the Scripture of the Old and New 
+Testament, did commonly profess their assurance and 
+persuasion of their interest in God and his salvation, 
+and were directed by the word of God so to do; and 
+true saints had still some true assurance of it. And 
+we have no cause to judge that this assurance was 
+grounded on the certainty of their own good qualifi- 
+cations, but rather on the promises of God by the 
+direct act of faith. We may judge of the ordinary 
+rofession of the frame of spirit that was in the saints 
+y some instances. I shall begin with the profession 
+that the church made when it was very corrupt, at 
+its first coming out of Egypt, when few of them could 
+assure themselves, by their own good qualifications, 
+that they were in a state of grace already ; which 
+
+
+* Deut. i, 20, 21, 29, 30. + Heb. iv, 1, 11. : 
+
+
+= * = 
+
+
+t, X. OF SANCTIFICATION, 167 
+
+
+_ many now imagine to be the only way of assurance. 
+_ Even in that corrupt time, the children of Israel sung 
+that triumphant song of Moses, “The Lord is my 
+strength and my song, and he is become my salvation : 
+he is my God,” &c.* Moses taught them, in this 
+song, to assure themselves of their own personal in- 
+terest in the salvation ; and he guided them to the 
+practice of their duty. And they did not find fault 
+with Moses, as some do with ministers in these days, 
+for putting them to express more confidence in their 
+song, than they could find ground for in their qualifi- 
+cations ; but they applied themselves to the exercise 
+of their faith, agreeably to their song ; and, doubtless, 
+this faith was unfeigned in some few of them, though 
+but feigned in others ; for it is testified of them that, 
+then they believed his words, they sang his praise.t 
+Several other psalms and songs that were by Divine 
+appointment in common use under the Old Testa- 
+ment, are as clear an evidence as we can desire, of 
+that assurance of faith which was commonly professed A 
+and that people were generally bound to, under the Fe 
+Old Testament.{ Many other psalms, or expressions 
+in psalms, might be alleged. ‘The spirits of few, in 
+comparison, could have thoroughly complied with 
+such psalms, though they were true believers, if all 
+the assurance of the love of God must altogether de- 
+pend upon the certain knowledge of the sincerity of 
+their own hearts. We have a great-cloud of witnesses 
+gathered out of the whole history of the Old Testa- 
+
+- ment,§ who did, and suffered, and obtained great 
+
+_ things by faith, whose examples are produced on pur- 
+
+_ pose that we may follow them in believing, to the say- 
+| ing of our souls.|| And if we consider these examples ~ 
+particularly, we shall find that many of them do 
+evidently guide us to such a saving faith as hath an 
+rance of the effect contained in the nature of it. 
+
+
++ Psa. cvi.12.  ¢ Psa. xxiii, xxvii, xliv, xlvi. 
+_ § Heb, xi. || Heb. x, 39.) 
+
+
+- 
+
+
+Z ’ 
+
+
+i ee 
+
+
+lige 
+
+
+168 THE GOSPEL MYSTERY Direct. X. 
+
+
+I confess we read several times of the fears and doubt- 
+ings of the saints under the Old Testament ; but we 
+read also how their faith opposed such fears and 
+doubts, and how they themselves condemned them as 
+contrary to faith, as in the Psalms.* The most 
+mournful Psalm in Scripture begins with an expres- 
+sion of some assurance.t And we may note, that 
+the doubtings that we meet with of the saints of 
+old, were commonly occasioned by some extraordi- 
+nary affliction, or some heinous transgression ; not by 
+common failings, or the common original depravation 
+of nature, or the uncertainty of their election, or any 
+thought that it is humility to doubt, and that they 
+were not bound to be confident of God’s salvation, 
+because then many might be bound to believe a lie. 
+It is hard to find any of these occasions of doubting 
+under the Old Testament, though they are grown so 
+rife among us now under the new Testament. 
+
+In the time of the apostles, we may well expect 
+that the assurance of faith grew higher, because the 
+salvation of Christ was revealed, and the spirit of 
+adoption poured forth plentifully, and the church 
+made free from its former bondage under the terrify- 
+ing legal covenant. Paul could prove to primitive 
+Christians, by appeals to their own experience, that 
+they were the children and heirs of God, because 
+they had not received the spirit of bondage again unto 
+fear, but the spirit of adoption, whereby they cry, 
+Abba, Father. The Spirit itself bearing witness with 
+our spirits, (or beareth our spirits witness, as the 
+Syriac and vulgar Latin render it, and as the like 
+Greek phrase is rendered) { that we are the children 
+of God. And if children, then heirs.§ And the 
+apostle tells the Ephesians, that, after they believed, 
+they were sealed with the Holy Spirit, which was the 
+earnest of their inheritance.|| They were sealed from 
+
+
+* Psa. xlii, 11. xxxi, 22, and Ixxvili, 7. 10. + Psa. Ixxxviii, 1. 
+t Rom.ix,1.  § Rom, viii, 15, 16,17. Gal.iv,6. || Eph. i, 13, 14. — 
+
+
+‘ 
+
+
+pet : 
+
+
+Direct. +s OF SANCTIFICATION, 169 
+
+
+the same time that they believed; for the original 
+words are in the same tense. If this witness, seal, 
+and earnest of the Spirit had not been ordinary to he- 
+lievers, it would not have been sufficient to prove that 
+they were the children of God; and such manner of 
+arguing might have driven some to despair, that 
+wanted this witness, seal, and earnest. 
+
+Let us enquire now whether the Spirit beareth wit- 
+ness that we are the children of God, and enableth us 
+to ery, Abba, Father, by the direct act, or by that 
+which they call the reflex act of faith? For we must 
+not think that it is done by an enthusiasm, without 
+any ordinary means ; nor can we reasonably imagine 
+that no true believers can call God, Father, by the 
+guidance of the Spirit, but only those few that are so 
+sure of their own sincerity, that, by reflecting upon 
+it, they can ground an act of faith concerning their 
+own interest in Christ; no, surely. Therefore we 
+may judge rather that the Spirit worketh this in us, 
+
+y giving us saving faith itself, by the direct act of 
+which all true believers are enabled to trust assuredly 
+on Christ for the enjoyment of the adoption of chil- 
+dren, and all his salvation, according to the free pro- 
+mise of God ; and to call God, Father, without re- 
+flecting on any good qualifications in themselves: for 
+the Spirit is received by the direct act of faith,* and 
+so he is the Spirit of adoption and comfort to all that 
+receive him. They that assert that the Spirit wit- 
+nesseth our adoption only, by assuring us of the sin- 
+cerity of our faith, love, and other gracious qualifica- 
+tions, and by the reflex act of faith, do teach also 
+
+commonly, that you must again try whether the 
+spirit thus witnessing, be the spirit of truth or of 
+_ delusion, by searching narrowly whether our inward 
+' grace be sincere or counterfeit ; so that hereby the 
+_ testimony of the Spirit is rendered so hard to be dis- 
+_ cerned, that it standeth us in no stead; but all our 
+
+
+* Gal. iil, 2. ‘ 
+Pe be 
+
+
+bes 
+
+
+at Jags iia ae Pl ae 
+
+
+“s Petes rs 
+
+
+‘ 
+
+
+, Direct. X. 
+
+
+170 THE GOSPEL MYSTERY 
+
+
+assurance is made at last to depend on our own cer- 
+tain knowledge of our own sincerity. There are 
+several other evidences to shew that believers generally 
+were persuaded of their salvation in the apostle’s 
+times. They loved and waited for the coming of 
+Christ to judge the world.* They loved all the saints 
+for the hope that was laid up for them in heaven.t 
+The Corinthians, who were very carnal, and but babes 
+in Christ, were persuaded that they should judge the 
+world, and angels, and that their bodies were members 
+of Christ, and the temples of the Holy Ghost.f The 
+very first coming of the gospel to the Thessalonians 
+was in the Holy Ghost, and much assurance; so that 
+-they received it in much affliction, with joy of the 
+Holy Ghost, when as yet they had no considerable 
+time to get assurance, by reflecting on their good 
+qualifications.§ Like-ways, the believing Hebrews, 
+when they were illuminated at their first conversion, 
+took joyfully the spoiling of their goods, knowing 
+that they had in heaven a better and an enduring 
+substance: and this was their confidence, which the 
+were not to cast off, because the just liveth by faith. 
+And, therefore, it appeareth that this confidence be- 
+longeth necessarily to justifying saving faith.]|| 
+
+Now, let those that allege the examples or expe- 
+riences of many modern Christians to disprove all 
+that I have asserted, consider well whether these are 
+fit to be laid in the balance against all the Scripture 
+examples and experiences that I have produced out 
+of the Old and New Testaments. I confess that as- 
+surance of salvation is more rarely professed hy Chris- 
+tians in these times than formerly ; and we may thank 
+some teachers for it that have deserted the doctrine of 
+former Protestants on this point, and vented against 
+it several errors, such as haye been already named ; 
+
+
+and now would take advantage to confirm the truth — 
+
+
+* 1 Cor. i, 7.—2 Tim, iv, 8. f Col. i,3, 4,5. £1) Cor. vi, 2; 3,15, 19. | 
+§ 1 Thess. i, 5, 6. || Heb. x, 32, 34, 35, 38. 
+
+
+4 
+
+
+OF SANCTIFICATION, 171 
+
+
+_of their doctrines from those doubtings in Christians 
+that have heen chiefly occasioned by it. But, how- 
+ever, the nature of saving faith is still the same; and 
+I assert, that in these days, as well as formerly, it 
+always hath in it some assurance of salvation by Christ 
+which doth and will appear, at least in resisting and 
+condemning all doubtings and praying against them, 
+and endeavouring to trust assuredly, and to call God, 
+Father ; except in extraordinary desertions, by which 
+our case must not be tried» We are not to trust the 
+judgment of many concerning themselves.. They will 
+judge falsely that they have no assurance at all, be- 
+cause they know not yet, by marks and signs, that 
+they are in a state of grace already, or because they 
+
+think that there is no assurance when there are many 
+doubtings, and because it is so weak and so much op- 
+pressed with doubting that it can hardly be discerned, 
+as life in a fainting fit. But, if their judgments be 
+better informed, they may be brought to discern some 
+assurance in themselves. We are also to take heed of 
+mistaking those for true believers that are not so; and 
+of judging this point by their experiences, which is a 
+vulgar error. The blind charity of some moveth them 
+to take all for true believers who are full of doubts 
+and troubles concerning their salvation, though it 
+may be they only are convinced of sin, and brought 
+to some zeal of God, that is not according to the 
+knowledge of the way of salvation by Christ: and 
+they think it duty to comfort such ignorant persons, 
+
+y persuading them that their state is good, and their 
+faith right, though they have no assurance of salva- 
+tion. Thus they are brought to judge falsely con- 
+cerning the nature of faith out of their blind charity 
+o such as are yet in ignorance and unbelief; and, 
+instead of comforting such, they rather take the direct 
+
+7 to harden them in their natural state, and to 
+
+livert them from secking consolation by saving faith 
+Christ, aud to ruin their souls for ever. 
+
+The chief office of this faith, 
+
+
+ks i Paes 
+
+
+in its direct 
+\\ 
+
+
+172 THE GOSPEL MYSTERY Direct, X. 
+
+
+saving act, is to receive Christ and his salvation ac- 
+tually into our hearts, as hath been proved; which 
+office cannot be rationally performed, except we do, 
+in some measure, persuade our hearts and assure our- 
+selves of the enjoyment of him. As the body receiveth 
+things into itself by the hands and mouth, so the soul 
+receiveth these things to itself, and layeth actual hold 
+of them, by the faculty of the will, making choice of 
+them and embracing them, in a way of present enjoy- 
+ment and possession, as it doth by the faculty of the 
+understanding see and apprehend them, Thus the 
+soul receiveth comfort from outward things, as a 
+righteous person cannot receive inward comfort from 
+outward things, as from worldly estate, wife, husband, 
+friends, &c., except he choose them as good, and ac- 
+count them his own by a right and title. This is the 
+only rational way whereby the soul can actively lay 
+hold on Christ, and take actual possession of him, and 
+his salvation, and he is freely offered and promised to 
+us in the gospel, by the grace of faith, which God hath 
+appointed to be our great instrument for the receiving 
+of him, and closing with him. If we do not make 
+choice of Christ as our only salvation and happiness, 
+or if we be altogether in a state of suspense and 
+doubting, whether God will be pleased to give Christ 
+to us or no, it is evident that our souls are quite loose 
+from Christ, and have no holdfast or enjoyment of 
+him. They do not so much as pretend to any actual 
+* receiving or laying hold or choosing of him, neither | 
+are they fully satisfied that it is lawful for them so to 
+do, but rather they are yet to seek whether they have 
+any good ground and right to lay hold on him or no. 
+Let any rational man judge whether the soul doth, or 
+can put forth any sufficient act for the reception and 
+enjoyment of Christ as its Saviour, head, or husband, 
+while it is yet in doubt, whether it be the will of 
+Christ to be joined with it in such a near relation? 
+Can a woman honestly receive any one as her hus- 
+band, without being assured that he is fully willing 
+
+
+| Direct. X. OF SANCTIFICATION. 173 
+
+
+to be her husband? The same may be said concern- 
+‘ing the several parts of Christ’s salvation, which are 
+to be received by faith. It is evident that we do not 
+aright receive the benefit of remission of sins, for the 
+purging of our consciences from that guilt that lieth 
+upon them, unless we have an assured persuasion of 
+od’s forgiving them. We do not actually receive 
+into our hearts our reconciliation with God, and adop- 
+tion of children, and the title to an eyerlasting inheri- 
+tance, until we can assure ourselves that God is gra- 
+ciously pleased to be our God and Father, and take us 
+to be ie children and heirs. We do not actually re- 
+ceive any snfficient strength to encourage our hearts to 
+holiness in all difficulties, until we can stedfastly be- 
+lievethat God is with us and will not fail norforsake us, 
+_ Hence, then, we may firmly conclude that whoso 
+seeketh to be saved by faith, and doth not seek to 
+have assurance or confidence of his own salvation, 
+doth but deceive himself and delude his soul with a 
+mere fancy instead of saving faith, and doth, in effect, 
+seelx to be saved in his corrupt natural state, without 
+receiving and laying actual hold of the Lord Jesus 
+Christ and his salvation. 
+
+Siwthly, It is also a great and necessary office of 
+saving faith, to purify the heart, and to enable us to 
+live and walk in the practice of all holy duties, by the 
+grace of Christ, and by Christ himself living in us, as 
+
+th been shewed betore; which office faith is not 
+
+_ able to perform, except some assurance of our own - 
+interest in Christ and his salvation be comprehended 
+in the nature of it. If we would live to God, not to 
+ourselves, but by Christ living in us, according to 
+. Paul’s example, we must be able to assure ourselves, 
+as he did, “Christ loved me, and gave himself for 
+' me.”* We are. taught, that, “if we live in the 
+_ Spirit, we should walk in the Spirit.”*+ It would be 
+_ high presumption if we should endeavour to walk 
+
+
+* Gal. fi, 20. f Gal. v, 25... Cay 
+53 B24 
+
+
+174 THE GOSPEL MYSTERY Direct. X. 
+
+
+above our natural strength and power by the Spirit, 
+before we have made sure of our liying by the Spirit. 
+I have shewed, that we cannot make use of the com- 
+fortable benefits of the saying grace of Christ, where- 
+by the gospel doth engage and encourage us to a holy 
+practice, except we have some confidence of our own 
+interest in those saving benefits. If we do not as- 
+suredly believe, that we are dead to sin, and alive to 
+God through Christ, and risen with Christ, and not 
+under the law, but under grace, and members of 
+Christ’s body, the temple of his Spirit, the dear chil- 
+dren of God, it would be hypocrisy to serve God 
+upon the account of such privileges, as if we reckoned 
+ourselves to be partakers of them, He that thinks 
+he should doubt of his salvation, is not a fit disciple 
+for this manner of doctrine; and he may reply to the 
+eae of the gospel, If you would bring me to 
+oliness, you must make use of other more effectual 
+arguments; for I cannot practise upon these princi- 
+ples, because I have not faith oneal to believe that 
+I have any interest in them. Some arguments taken 
+from the justice and wrath of God against sinners, 
+and his mercy towards those that perform the condi- 
+tion of sincere obedience, would work more power- 
+fully upon me. O what a miserable worthless kind 
+of saving faith is this, that cannot fit a believer to 
+practise, in a gospel-manner, upon the most pure and 
+powerful principles of grace, but rather leave him to 
+work upon legal principles, which can never bring 
+him to serve God acceptably out of love! And as 
+such a faith faileth wholly in the right manner of 
+obeying upon gospel-principles, so it faileth also in 
+the very matter of some great duties, which are of 
+such a nature, that they include assurance of God’s 
+love in the right performance of them; such are those 
+great duties of peace with God, rejoicing in the Lord 
+always, hope that maketh not ashamed, owning the. 
+Lord as our God and our Saviour, praying to him as 
+our Father in heaven, offering up body and soul as an 
+
+
+Direct. X. OF SANCTIFICATION. 175 
+
+
+acceptable sacrifice to him, casting all our cares of 
+body and soul upon him, contentment and hearty 
+thanksgiving in every condition, making our boast in 
+the Lord, triumphing in his praise, rejoicing in tribu- 
+lation, putting on Christ in our baptism, ae 
+Christ’s body as broken for us and his blood as she 
+for us in the Lord’s supper, committing our souls 
+willingly to God as our Redeemer, whenever he shall 
+be pleased to call for us; loving Christ’s second ap- 
+os and looking for~it-as that blessed hope. 
+hen we fall into any sudden doubting whether we are 
+in a state of grace already ; when we are called to any 
+present undertaking, as to partake of the Lord’s re 
+per, or any duty that requires assurance to the right 
+performance of it, we must relieve ourselves by trust- 
+ing confidently in Christ for the present gift of his 
+salvation, or else we shall be driven to omit the duty, 
+or not to perform it rightly or sincerely. Can we 
+judge ourselves already in a state of grace by the re- 
+flex act of faith, if we do not find, that we perform 
+these duties, at least several of them, sincerely; or if 
+we do not find, that we have such a holy faith as doth 
+enable or incline us to the performance of them? 
+And can we be thus enabled and inclined by any 
+faith that is without some true assurance of our sal- 
+vation? Therefore J conclude, that we must neces- 
+sarily haye some assurance of our salvation in the 
+direct act of faith, whereby we are justified, sanctified, 
+and saved, before we can, upon any good ground, as- 
+sure ourselves, that we are already in a state of salva- 
+tion, by that which they call the reflex act.. Give 
+me such a saving faith as will produce such fruits as 
+these. No other faith will work by love, and there- 
+- fore will not avail to salyation in Christ.* The 
+apostle James putteth thee upon shewing thy faith 
+_ by thy petks. And, in this trial, this faith of as- 
+' surance cometh off with high praise and honour. 
+
+
+ASE ; * Gal. v, 6. + James ii, 18. 
+‘ie a \\ 
+
+
++e oe he oN vey Pee Pe 
+
+
+q Bley 1) wi Dts | da: 
+—— es Se i 
+ee vies. 
+
+
+176 THE GOSPEL MYSTERY Direct. X. 
+
+
+When God calleth his people to-work outward mi- 
+racles by it, all things have been possible to them ; 
+and it hath frequently brought forth such works of 
+righteousness, as may be deservedly esteemed great 
+spiritual miracles, rom hence hath proceeded that 
+heroic fortitude of the people of God, whereby their 
+absolute obedience to God hath shined forth in doing 
+and suffering those great things which are recorded 
+in the holy Scriptures, and in the histories of the 
+church. And if we be ever called to the fiery trial, 
+as Protestants formerly were, we shall find their doc- 
+trine of assurance will encourage us in suffering for 
+the sake of Christ. 
+
+Seventhly, The contrary doctrine which excludeth 
+assurance out of the nature of saving faith, bringeth 
+forth many evil fruits. It tendeth to bereaye our 
+souls of all assurance of our salvation, and solid com- 
+fort, which is the life of religion, by placing them 
+after sincere universal obedience; whereas, if we 
+have them not first, we can never attain to this obe- 
+dience, nor to any assurance that dependeth on it, as 
+hath been proved. And this, as far as it prevails, 
+makes us subject to continual doubtings concerning 
+our salvation, and to tormenting fears of wrath, whic 
+casteth out true love to God, and can produce no bet- 
+ter than slavish hypocritical service. It is one of the 
+principal pillars whereby manifold superstitions in 
+
+opery are supported, as their monkish orders, their 
+satisfaction for sin by works of penance, bodily mace- 
+rations, whippings, pilgrimages, indulgencies, trusting 
+on the merits of saints, &c. When once men have 
+lost the knowledge of the right way to assure them- 
+selves of salvation, they will catch at any straw, to 
+
+avoid drowning in the gulph of despair. 
+
+There is no way to administer any solid comfort to 
+the wounded spirits of those that see themselves void 
+of holiness, under the wrath and curse of God, dead _ 
+in sin, not able so much as to think a good thought, ~ 
+You do but increase their terror and anguish, if you — 
+
+
+bn 
+a 
+
+
+EI tis 
+
+
+i: id SAY See *~ 
+
+
+Direct. X. OF SANCTIFICATION, 177 
+
+
+tell them, they must first get faith and obedience, 
+and, when they find they have done that, they may 
+rsuade themselves, that God will receive them into 
+is grace and favour. Alas! they know that they 
+cannot believe nor obey, except God present them 
+with his grace and favour. And what if they be even 
+at the point of death, struggling with death’s pangs, 
+so that they have no time or leisure to get good qua- 
+lifications, and examine the goodness of them. You 
+must have a more speedy way to comfort such, by 
+discovering to them the free promises of salyation to 
+the worst of sinners by faith in Christ, and by exhort- 
+ing them to apply those promises, and trust on Christ 
+confidently for remission of sins, holiness, and glory ; 
+assuring ra also, that God will help them to be- 
+_ lieve sincerely on Christ, if they desire it with all 
+their hearts; and that it is their duty to believe, be- 
+cause God commands it. 
+Several other evils are occasioned by the same doc- 
+' trine. Men are unwilling to know the worst of them- 
+
+
+. 
+
+
+selves, and prone to think their qualifications better- 
+
+
+than they are, that they may avoid despair. Others 
+
+please and content themselves without any assurance 
+
+of their interest in Christ, because they think that it 
+
+is not necessary to salvation, and that but few attain 
+_ to it: and in this they shew little love to Christ, or 
+_ to their own souls. 
+
+Some foster doubtings of salvation as signs of hu- 
+mility, though they will hypocritically complain of 
+them. Many mis-spend their time in poring upon 
+their own hearts, to find out some evidence of their 
+interest in Christ, when they should rather be em- 
+ployed in receiving Christ, and walking in him, by a 
+
+confident faith. 
+
+Some are troubled with doubts, whether they 
+should call God, Father, and what apprehensions 
+_ they should have of him in prayer, and are offended 
+at ministers, that, in their public prayers, use any 
+expressions that the people cannot join in; as when 
+
+
+178 THE GOSPEL MYSTERY Direct, X. 
+
+
+they de own God as their God and Father, and Christ as 
+_ their Saviour; and, upon the same account, they are 
+offended at the public singing of many of David’s 
+salms, and avoid partaking of the Lord’s supper, 
+ecause they are not satisfied about their interest in 
+Christ. 
+
+Though true believers have some assurances of sal- 
+vation in saving faith itself, yet it is much weakened 
+in many by this contrary doctrine, and assaulted with 
+many doubtings; and then other good qualifications 
+must needs be low and weak together with it, and so 
+obscure, that it is very hard to discern them. How 
+hard a thing then will it be for true believers to as- _ 
+sure themselves, by the certain knowledge of their 
+own sincerity, that they are in a state of grace 
+already, which some say is the only assurance of faith? 
+Some prescribe such marks and signs to distinguish 
+sincerity from hypocrisy, that believers cannot sufhi- 
+ciently try themselves by them, except they have 
+more knowledge and experience than ordinary. 
+
+Thus many believers wall heayily in the bitterness 
+of their Souls, conflicting with fears and doubtings all 
+their days, And this is the cause that they have so 
+little courage and fervency of spirit in the ways of 
+God, and that they so much mind earthly things, and 
+are so afraid of sufferings and death: and, if they get 
+some assurance by the reflex act of faith, they often 
+soon lose it again by sins and temptations. The way 
+to avoid those evils, is, to get your assurance, and to 
+maintain it, and renew it upon all occasions by the 
+direct act of faith, by trusting assuredly on the name 
+of the Lord, and staying yourself upon your God, 
+when you walk in darkness, and sce no light in any 
+of your own qualifications.* I doubt not but the ex- 
+perience of many choice Christians will bear witness 
+to this truth. 
+
+
+* Isa, 1, 10. 
+
+
+F 
+
+
+(4 
+
+
+Direct. £98 OF SANCTIFICATION. 179 
+
+
+DIRECTION XI. 
+
+
+Endeavour diligently to perform the great work of believing on Christ, 
+in a right manner, without any delay, and then also to continue 
+and increase in your most holy faith; that so your enjoyment of 
+Christ, union and fellowship with him, and all holiness by him, may 
+be begun, continued, and increased in you. 
+
+
+EXPLICATION. 
+
+
+Havine already discovered to you the-powerful and 
+effectual means of a holy practice, my remaining 
+work is, to lead you to the actual exercise and im- 
+provement of them, for the immediate attainment of 
+the end. And I think it may be clearly perceived, 
+by the foregoing directions, that faith in Christ is the 
+duty with which a holy life is to begin, and by which 
+the foundation of all other holy duties is laid in the 
+soul. It is before sufficiently proved, that Christ 
+himself, with all endowments nacennnd to enable 
+us to a holy practice, is received actually into our 
+hearts by faith. This is the uniting grace, whereby 
+the Spirit of God knitteth the knot of mystical mar- 
+riage between Christ and us, and maketh us branches 
+of that noble vine ; members of that body, joined to 
+that excellent head; living stones of the spiritual 
+temple, built upon the precious living corner-stone, 
+and sure foundation ; partakers of the bread and drink 
+_ that came down from heaven, and giveth life to the 
+world, This is the grace whereby we pass from our 
+corrupt natural state to a new holy state in Christ, 
+also from death in sin to the life of righteousness, and 
+whereby we are comforted, that so we may be esta- 
+plished in every good word and work. If we put the 
+baestion, What must we do, that we may work the 
+works of God? Christ resolveth it, that we believe 
+on him whom he hath sent.* He putteth us first 
+upon the work of believing, which is the work of 
+¥ “a J . 
+
+
+_ * John vi, 28, 29.. 
+
+
+180 THE GOSPEL MYSTERY Direct. XI, 
+
+
+God by way of eminency, the work of works, because 
+all other good works proceed from it. 
+
+The rirsr thing in the present direction, is, to put 
+
+ou upon the performance of this great worl: of be- 
+eee on Christ, and to guide you therein, For you 
+are to consider distinctly four things contained in it. 
+
+First, The first is, You are to make it your diligent 
+endeavour to perform the great work of believing on 
+Christ. Many make little conscience of this duty. 
+It is not known by natural light, as many moral 
+duties are, but only by supernatural revelation in the 
+gospel, and it is foolishness to the natural man. 
+These are sometimes terrified with apprehensions of 
+other sins, and will examine themselves concerning 
+them ; and, it may be, will write them down, to help 
+their memories and devotion. But the great sin of 
+not believing in Christ, is seldom thought of in their 
+self-examinations, or registered in the large catalogue 
+of their sins, And even those who are convinced, 
+that believing on Christ is a duty necessary to salva- 
+tion, do neglect all diligent endeavours to perform it ; 
+either because they account, that it is a motion of the 
+heart which may be easily performed at any time, 
+without any labour or diligent endeavour ; or, on the 
+contrary, because they account it as difficult as all 
+the works of the law, and utterly impossible for them 
+to perform by their most diligent endeavours, except 
+the Spirit of God work it in them by his mighty 
+power ; and that therefore it is in vain for them to 
+work, until they feel this working of the Spirit in 
+their hearts: or because they account it a duty so 
+peculiar to the elect, that it would be presumption 
+for them to endeavour the performance of it, until 
+they know themselves to be elected to eternal life 
+through Christ. I shall urge you to a diligent per- 
+formance of this duty, notwithstanding all these im- 
+pediments, by the following consideration. It is wor- 
+thy of our best endeavours, as appeareth by the pre- 
+ciousness, excellency, and necessity of it already dis- 
+covered, 
+
+
+NAT es coy J - \ 
+Direct. XI. OF SANCTIFICATION, - 181 
+If the light of nature was not darkened in the mat- 
+
+ters of salvation, it would shew us, that we cannot of 
+ourselves find out the way of salvation ; and would 
+condemn those that despise that revelation of the way 
+of salvation that God hath given us in the gospel de- 
+clared in the holy Scriptures. The great end of 
+preaching the gospel, is for the obedience of faith :* 
+that so we may be brought to Christ, and all other 
+obedience. Yea, the great end of all revealed doc- 
+trines in the whole Scripture, is, to make us wise un- 
+to salvation by faith which is in Christ Jesus.”+ The 
+end of the law given by Moses, was for righteousness 
+to eyery one that believeth ;{ and Christ was that 
+end for righteousness. ‘The moral law itself was re- 
+yealed, in order to our salvation by believing on 
+Christ : or else the knowledge of it had nothing avail- 
+ed fallen man, that was unable to performit. ‘There- 
+fore they that slight the duty of believing, and ac- 
+count it foolishness, do thereby slight, despise, and 
+_villify the whole counsel of God revealed in the Scrip- 
+ture. The law and the gospel, and Christ himself, 
+are become of none effect to the salvation of such. 
+The only fruit that such an one can attain to, by all 
+_,the saving doctrines of the Scripture, is only some 
+hypocritical moral duties, and slavish performances, 
+
+_ which will be as filthy rags in the sight of God in 
+_ the great day. However many mind not the sin of 
+; unbelief in their self-examinations, and write it not 
+in their scrolls; yet let them know, that this is the 
+most pernicious sin of all? All the sins in their scrolls 
+_ would not prevail to their condemnation, yea they 
+would not prevail in their conversation, were it not 
+for their unbelief. This one sin prevailing, maketh 
+it impossible for them to please God in any duty 
+-whatsoever.§ If you will not mind this one main 
+sin now, God will at last mind you of it with a ven-. 
+
+_ geance; for he that believeth not on the Son, shall not 
+
+
+5. +2 Tim, iii, 15. $~Rom.x,4.  § Heb. xi, 6. 
+
+
+182 THE GOSPEL MYSTERY Direct. XT. 
+
+
+see life; but the wrath of God abideth on him.* 
+The Lord Jesus shall be revealed from heaven in 
+flaming fire, taking vengeance on those that obey not 
+the gospel of our Lord Jesus Christ. 
+
+Secondly, Believing on Christ, is a work that will 
+require diligent endeavour and labour for the perfor- 
+mance of it. We must labour to enter into that rest, 
+lest any man fall by unbelief.t We must shew dili- 
+gence to the full assurance of hope to the end, that 
+we may he followers of them who through faith and 
+patience inherit the promises.§ It is a work that re- 
+quireth the exercise of might and power; and there- 
+fore we have need to be strengthened with might by 
+the Spirit in the inward man, that Christ may dweil 
+in our hearts by faith.|| I confess, it is easy, pleasant, 
+and delicious in its own nature, because it is a motion 
+of the heart, without any cumbersome bodily labour ; 
+and it is a taking Christ and his salvation as our own, 
+which is very comfortable and delightful ; and the 
+soul is carried forth in this by love to Christ and its 
+own happiness, which is an affection that maketh 
+eyen head works easy and pleasant: yet it is made 
+difficult to us, by reason of the opposition that it 
+meets with from our own inward corruptions, and 
+from satan’s temptations. It isno easy matter to re- 
+ceive Christ as our happiness, and free salvation, with 
+true confidence and lively affection, when the guilt 
+of sin lieth heavily upon the conscience, and the wrath 
+of God is manifested by the word and terrible judg- 
+ments : especially when we have been long accustom- 
+ed to seek salvation by the procurement of our own 
+works, and to account the way of salvation by free 
+grace, foolish and pernicious ; when our lusts incline 
+us strongly to the things of the flesh and the world ; 
+when Satan doth his utmost, by his own suggestions, 
+and by false teachers, and by worldly allurements 
+
+
+* John iii, 36. $2 Thess, i, 7 } Heb. iv, 11. 
+§ Heb. vi, 11, 12. || Eph, iii, 16; 17. 
+
+
+‘Direct. XT. OF SANCTIFICATION. 183 
+
+
+and terrors, to hinder the sincere performance of this 
+duty. Many works that are easy in their own na- 
+ture, prove difficult for us to perform in our cireum- 
+stances. ‘To forgive our enemies, and love them as 
+ourselves, is but a motion of the mind, easy to be per- 
+formed in its own nature; and yet many that are con- 
+vineed of their duty, find it a hard matter to bring 
+their hearts to the performance of it. It is but a mo- 
+tion of the mind, to cast our care upon God for world- 
+ly things ; and rich men may think they can do it 
+easily : but poor men that have great families, find it 
+a hard matter. That easy comfortable duty which 
+Moses exhorteth the Israelites to, when Pharaoh, with 
+his chariots and horsemen, overtook them at the Red 
+Sea, Fear ye not, stand still, and see the salvation of 
+the Lord, which he will shew to you to-day,* was 
+not easily performed. The very easiness of some duties 
+makes their performance difficult ; as Naaman, the 
+Syrian, was hardly brought to wash to be clean, be- 
+cause he thought it to be too slight and easy aremedy 
+for the cure of his leprosy.t ven in this very case, 
+people are offended at the duty of believing on Christ, 
+as too slight and easy a remedy to cure the leprosy of 
+the soul; they would have some harder thing enjoin- 
+ed them, to the attainment of so great an end as this 
+everlasting salvation. The performance of all the 
+moral law is not accounted work enough for this 
+end.{ However easy the work of believing seemeth 
+to many, yet common experience hath shewed, that 
+
+_ men are more easily brought to the most burdensome, 
+unreasonable, and inhuman observances : as the Jews, 
+and Christian Galatians were more easily brought to 
+
+_ take upon their necks the yoke of Moses’s law, which 
+none were able to bear.§ The Heathens were more 
+easily brought to burn their, sons and their daughters 
+in the fire to their gods.|| The Papists are brought 
+
+
+= 
+* Exod. xiv,.13. +2 Kings v, 12, 13, $. Matt. xix, 17, 20, 
+fi SS Acta: xv, 10; || Deut. xii, 31. 
+
+
+ae 
+
+
+184 THE GOSPEL MYSTERY Direct. XI. 
+
+
+more easily to their vows of chastity, and poverty, 
+and obedience to the most rigorous rules of monastic 
+discipline ; to macerate and torture their bodies with 
+fastings, scourgings, and pilgrimages; and to bear all 
+the excessive tyranny of the papal hierarchy, in a 
+multitude of burdensome, superstitious, and ridieulous 
+devotions. They that slight the work of faith for its 
+easiness, shew, that they were never yet made sensi- 
+ble of innumerable sins, and the terrible curse of the 
+law, and wrath of God that they lie under ; and of the 
+darkness and vanity of their minds, the corruption 
+and hardness of their hearts, and their bondage under 
+the power of sin and satan ; and have not been truly 
+humbled; without which they cannot believe in a 
+right manner, Many sound believers have found by 
+experience, that it hath been a very hard matter to 
+bring their hearts to the duty of believing ; it hath 
+cost them vigorous struggles and sharp conflicts with 
+their own corruptions, and satan’s temptations. It 
+is so difficult a work, that we cannot perform it with- 
+out the mighty working of the Spirit of God in our 
+hearts, who only can make it to be absolutely easy to 
+us, and doth make it easy, or suffer it to be difficult, 
+according as he is pleased to communicate his grace 
+in various degrees unto our souls. 
+
+Thirdly, Though we cannot possibly perform this 
+great work in a right manner, until the Spirit of God 
+work faith in our hearts by his mighty power; yet it 
+is necessary that we should endeavour it; and that be- 
+fore we can find the Spirit of God working faith 
+effectually in us, or giving strength to believe. We 
+can perform no holy duty acceptably, except the 
+Spirit of God work it in us; and yet we are not 
+hereby excused from working ourselves, but we are 
+the rather stirred up to the greater diligence: Work 
+out your salvation with fear and trembling; for it is 
+God that worketh in you both to will and to do of — 
+his good pleasure.* The way wherchy the Spirit 
+
+* Phil. ii, 12, 13. a 
+
+
+; Direct. XI. OF SANCTIFICATION, 185 
+
+
+works faith in the elect, is, by stirring them up to 
+endeayour to believe. And this is a way suitable to 
+the means that the Spirit useth; i, e. the exhortation, 
+commands, and invitations of the gospel: which 
+would be of no force, if we were not to obey him, 
+until we find faith already wrought in us. Neither 
+can we possibly find, that the spirit of God doth 
+effectually work faith, or give strength to believe, 
+until we act it; for which end, all inward graces, as 
+well as all other inward habits, are disc¢érned by their 
+acts, as seed in the ground by its springing. We can- 
+not see any such thing as love to God or man in our 
+hearts before we act it. Children know not their 
+ability to stand upon their feet, until they have made 
+trial, by endeavouring so to do; so we know not our 
+spiritual strength, until we have learned by experience 
+from the use and exercise of it. Neither can we 
+know, or assure ourselves absolutely, that the Spirit 
+of God will give us strength to believe, before we act 
+faith; for such a knowledge and assurance, if it be 
+right, is saving faith itself in part; and whosoever 
+trusteth on Christ assuredly for strength to believe 
+by his Spirit, doth, in effect, trust on Christ for his 
+own salvation, which is inseparably joined with the 
+grace of saving faith. Though the Spirit worketh 
+_ our duties in us by faith: yet he worketh faith in us 
+_ immediately by hearing, knowing, and understanding 
+the word: Faith cometh by hearing, and hearing by 
+the word of God.* And in the word he maketh no 
+absolute promise or declaration, that he will work 
+faith in this or that unbelieving heart, or that he will 
+give strength to believe to any one in particular, 
+or begin the work of believing in Christ; for faith 
+itself is the first grace whereby we have a particular 
+_ interest in any saving promise. It is a thing hidden 
+- in the secret council and purpose of God concerning 
+a us, whether he will give us his Spirit and saving faith, 
+
+
+Ba aa Pont * Rom::x,0'7: 
+} i (a\7 y\ 
+
+
+EJ Oe CaN aE 
+
+
+186 THE GOSPEL MYSTERY Direct. XT, 
+
+
+until our election be discovered by our believing 
+actually. Therefore, as soon as we know the duty 
+of believing, we are to apply ourselves immediately 
+to the vigorous performance of the duty, and in so 
+doing, we shall find that the spirit of Christ hath 
+strengthened us to believe, though we know not cer- 
+tainly, that he will do it before-hand.. The Spirit 
+cometh indiscernably upon the -elect to work faith 
+within them; like the wind that bloweth where it 
+lists, and none knoweth whence it cometh, and 
+whither it goeth, but only we hear the sound of it, 
+and thereby know it when it is past and gone.* We. 
+must therefore begin the work, before we know that 
+the Spirit doth or will work in us savingly: and we 
+shall be willing to set upon the work if we be.Christ’s 
+people; for Thy people shall be willing in the day of 
+thy power.t It is enough that God discovereth to us 
+before-hand in the gospel what faith is, and the ground 
+we have to believe on Christ for our own salvation ; and 
+that God requireth this duty of us, and will help us 
+in the performance of it, if we apply ourselves heartily 
+thereunto: Fear not, | command thee to be strong, 
+and of good courage.{ Arise and be doing, and the 
+Lord will be with thee.§ Therefore whoso receiveth 
+this gospel-discovery as the word of God in hearty 
+love, is taught by the Spirit, and will certainly come 
+to Christ by believing.|| Every one that receiveth it 
+not, despiseth God, maketh him a liar, and deserveth 
+justly to perish for his unbelief. 
+
+Fourthly, Though the Spirit worketh saving faith 
+only in the elect, and others believe not, because they 
+are not of Christ’s sheep ;{] and on that account it is 
+called the faith of God’s elect ; | yet all that hear the 
+gospel, are obliged to the duty of believing, as well as 
+to all the duties of the moral law, and that.before they 
+know their own particular election: and they are 
+
+
+*) John iii, 8. + Psa, cx, 3. t Josh. i,9, | §1 Chron. xxii, 16, 
+|| John vi, 45. q John x, 26. Wael Sn ks ‘ 
+
+
+— Direct, XI. OF SANCTIFICATION, 187 
+
+
+eo 
+
+
+liable to condemnation for unbelief, as well as for an 
+other sin; He that believeth not is condemned al- 
+ready, because he hath not believed on the name of 
+the only begotten Son of God.* The apostle Paul 
+sheweth, that the elect Israelites obtained salvation, 
+and the rest that were not elected, were blinded; and 
+yet even these were broken off from the good olive- 
+tree, because of their unbelief.t We cannot have 
+a certain knowledge of our election to eternal life 
+before we do believe; it is a thing hidden in the 
+unsearchable counsel of God, until it be manifest by 
+- our effectual calling and believing on Christ. The 
+apostle knew the election of the Thessalonians, by 
+finding the evidence of their faith, that the gospel 
+came to them, not in word only, but also in power, 
+and in the Holy Ghost, and in much assurance; and 
+_ that they had received the word in much afiliction, 
+with joy in the Holy Ghost.{ We are to see our 
+calling, if would find out that God hath chosen us.§ 
+Therefore we must believe on Christ before we know 
+our election, or else we shall never know it, and shall 
+_ never believe. And it is no presumption for us to trust 
+- confidently on Christ for everlasting life, before we 
+have any good evidence of our election; because God, 
+_ that cannot lie, hath made a general promise, That 
+_ whosoever believeth on him shall not be ashamed, 
+without making the least difference among them that 
+_ perform this duty.|| The promise is as firm, and sure 
+to be fulfilled, as any of God’s decrees and purposes ; 
+and therefore it is a good and sufficient ground for 
+_ our confidence. It is certain, that all that the Father 
+_ hath given to Christ by the decree of eternal election, 
+shall come to Christ : ‘and it is as really certain, that 
+_ ‘Christ will in no wise cast) out any that cometh to 
+him, whosoever he be. And we need not fear that 
+we shall infringe God’s decree of election, by beliey- 
+
+
+- 
+
+
+John ili, 18, | Rom. xi, 7,20. “$1 Thess. i, 4, 5, 6. 
+» i, 26, 27. || Rom, x, 11,12. John vi, 37. 
+} * 
+
+
+188 THE GOSPEL MYSTERY Direct. XI. 
+
+
+ing on Christ confidently for our salvation, before 
+we know what God hath decreed concerning us ; for, 
+if we believe, we shall at last be found among the 
+elect: and, if we refuse to believe, we shall thereby 
+willfully sort ourselves among the reprobate, that 
+stumble at the word, being disobedient whereunto 
+also they are appointed.* I shall add further, that 
+though we have no evidence of our particular election 
+before we believe, yet we are to trust on Christ as- 
+suredly to make it evident to us, by giving us that 
+salvation which is the peculiar portion of the elect 
+only. All spiritual saving blessings, wherewith God 
+blesseth his people in Christ, are the peculiar portion 
+of them whom God hath chosen in Christ before the 
+foundation of the world,+ yet we must necessarily 
+trust on Christ for those saving blessings or have none 
+at all. We are to pray in faith, nothing doubting, 
+that God will remember us with the favour that he 
+beareth to his people ; that we may see the good of 
+his chosen, and glory with his inheritance.{ There- 
+fore we are to trust assuredly on God that he will 
+deal with us as his chosen people. Thus it appeareth, — 
+that it is not presumption, but your bounden duty, 
+to apply yourselves to the great work of believing on 
+Christ for salvation, without questioning at all be- 
+forehand, whether you are elected or no: Secret 
+things belong to God, but those things that are re- 
+vealed, belong unto us, that we may do them.$ 
+
+The srconp thing directed to is, that you should 
+endeavour for a right manner of performing this duty. 
+This-is a point of great concernment, because the 
+want of it will render your faith ineffectual to sancti- 
+fication and salvation. The great duty of love, which 
+is the end of the law, and the principal fruit of sanc- 
+tification, must flow from faith unfeigned.|| There 
+is a feigned faith, that doth not really receive Christ 
+
+
+* | Peter ii, 8. t Eph. i, 3, 4. $ Psal. evi, 4, 5. 
+§ Deut. xxix, 29. }) 1 Tim. i, 5, 
+
+
+rect x7, ' OF SANCTIFICATION, 189 
+
+
+into the heart, and will not produce love, or any true 
+_ obedience ; such as Simon Magus had ;* for, notwith- 
+standing his faith, he was in the gall of bitterness, 
+and in the bond of iniquity ; and such as those Jews 
+had, to whom Christ would not commit himself, who 
+did not confess him, lest they should be put out of 
+the synagogue;t and such as the apostle James 
+speaks of, “ What doth it profit you, my brethren, if 
+aman say he hath faith, and have not works? Can 
+that faith save him? The devils also believe and 
+tremble.”{ Take heed therefore, lest you deceive 
+your souls with a counterfeit faith, instead of the 
+precious faith of God’s elect. The way to distinguish 
+the one from the other is, by considering well what 
+is the right manner of that believing which is effec- 
+tual to salyation. Hypocrites may perform the same 
+works for the matter, with true saints ; but they are 
+defective in the manner of performance, wherein the 
+excelleney of the work doth chiefly consist. One 
+_ great reason why many seek to enter in at the strait 
+_ gate and are not able,§ is, because they are ignorant 
+and defective in the right manner of acting this faith 
+whereby they are to enter. Now I confess, that God 
+
+_ only is able to guide us effectually in the right way 
+of believing. And we have this great consolation, 
+
+_ when we see our own folly and proneness to mistake 
+our way, that, if we heartily desire and endeavour to 
+believe on Christ aright, we may confidently trust on 
+_ Christ to guide us. God hath promised, that the 
+way-faring men, though fools, shall not err in the 
+way of holiness ; and that he will teach sinners in the 
+ay; “The meek will he guide in judgment, and 
+ie meek will he teach his way ;’’|| and he command- 
+them that lack wisdom, to ask it of God in faith, 
+hing doubting. But, however, we are to know, 
+God guideth us only according to the rule of his 
+
+
+3/23. + John ii, 23, and xii, 42. t James ii, 14, 19. 
+2. || Psa. xxv, 8,9. G James i, 5, 6. 
+
+
+Ra afc. Gp: 
+
+
+190 THE GOSPEL MYSTERY. Direct. XI. 
+
+
+- 
+
+
+word : and we must endeavour to learn the right way 
+of believing out of the word, or else we are not able 
+so much as to trust rightly on God for guidance and 
+direction in this great work. 'To help you herein, I 
+have given you before, in this treatise, a description 
+of saving faith ; and have shewed, that it containeth 
+two acts in it; the one is, believing the truth of the 
+gospel; the other is, believing on Christ as revealed 
+and freely promised to us in the gospel for all his 
+salvation. Now your great endeavour must be to 
+perform both these acts in a right manner; as I shall 
+shew concerning each of them in particular. 
+
+In the first place, you are highly concerned to 
+endeavour for a right belief of the truth of the gospel 
+of Christ: that so you may be well furnished, dis- 
+posed, and encouraged to believe on Christ as revealed 
+and promised in the gospel. Hereby you are to 
+remove all discomfortable thoughts and objections of 
+satan and your own conscience, and to overcome all 
+corrupt inclinations that hinder a cheerful embracing 
+of Christ and his salvation. It is found by experience, 
+that, when any fail in the second act of faith, the 
+reason of the failing is commonly some defect in this 
+first act. There is some false imagination or other in 
+them, contrary to the belief of the truth of the gospel ; 
+which is a strong hold of sin and satan that must be 
+
+ulled down before they can receive Christ into their 
+hearts by believing on ioe If they knew the name 
+of Christ as he is discovered in the gospel, and judged 
+aright of the truth and excellency of it, they would 
+not fail to put their trust in him. And we are in 
+great danger of entertaining such false imaginations, 
+and to account many truths of the gospel strange 
+paradoxes, yea, foolish and pernicious, because of our 
+ignorance, self-conceitedness, guilty consciences, cor- 
+rupt affections, and manifold errors, wherewith our 
+judgments are prepossessed in matters of salvation ; 
+and because satan laboureth to beguile us, as he did ' 
+Eve, through his subtilty, to corrupt our minds from 
+
+
+——a 
+
+
+, ’ ¥ 
+
+
+: Direct. XI. OF SANCTIFICATION. 191 
+
+
+the simplicity of the gospel that isin Christ.* I shall 
+therefore give you some particular instructions that 
+are of greater moment, to prevent such defects as we 
+are most liable to, in the first act of our faith. 
+Firstly, You must believe with a full persuasion, that 
+you are a child of wrath by nature, as well as others ; 
+fallen from God by the sin of the first Adam; dead 
+in trespasses and sins; subject to the curse of the law, 
+of God, and to the power of satan, and to insupport- 
+able misery to all eternity ;.and that you cannot pos- 
+sibly procure your reconciliation with God, or any 
+spiritual life and strength to do any good work, by 
+any endeavouring to get salvation according to the 
+terms of the legal covenant; and that you cannot 
+find any way to escape out of this sinful and miser- 
+able condition by your own reason and understand- 
+ing, without supernatural revelation, nor be freed 
+from it, except by that infinite power that raiseth the 
+dead. We must not be afraid, as some are, to know 
+our own vileness and sinfulness, neither must we be 
+willing to think ourselves better than we are ; but must 
+be heartily desirous and glad to know the worst of 
+our own condition ; yea, when we have found out the 
+worst that we can of ourselves, we must be willing to 
+believe, that our hearts are deceitful, and desperately 
+wicked, beyond all that we can know and find out.t 
+This is all necessary to work in us true humiliation, 
+self-despair, and self-loathing, that we may highly 
+esteem, and earnestly. seek the salvation of Christ, as 
+the one thing necessary. It maketh us sick of sin, 
+and sensible of our need of the great Physician, and 
+willing to be ordered according to any of his preserip- 
+tions, whatsoever we suffer, rather than to follow our 
+own wisdom.t It was for want of this humiliation 
+that the Scribes and Pharisees were not so forward to 
+enter into the kingdom of heaven as the publicans 
+_and harlots.§ 
+
+
+*2Cor.xi,3. tJer.xvii,9. tMatt.ix,J2.  § Mattexxi. 31. 
+mre t is, \\ 
+
+
+Se ; 
+192 THE GOSPEL MYSTERY Direct, XI. 
+
+
+- Secondly, You are to believe assuredly, that there is 
+no way to be saved, without receiving ail the saving 
+benefits of Christ, his Spirit as well as his merits, sanc- 
+tification as well as remission of sins by faith. It is 
+the ruin of many souls that they trust in Christ for 
+remission of sins, without any regard to holiness; 
+whereas these two benefits are inseparably: joined in 
+Christ, so that none are freed from condemnation by 
+Christ, but those that are enabled to walk holily, - 
+that is, not after the flesh, but after the Spirit.* i 
+is also the ruin of souls, to seek only the remission of 
+sins by faith in Christ, and holiness by our endea- 
+vours, according to the terms of the law; whereas we 
+can never live to God in holiness, except we be dead 
+to the law, and live only by Christ living in us by 
+faith. That faith which receiveth not holiness as well 
+as remission of sins from Christ, will never sanctify 
+US; oe therefore it will never bring us to heavenly 
+lory. 
+e Thirdly, You are to be fully persuaded of the all-suf- 
+ficiency of Christ for the salvation of yourself, and all 
+that believe on him, that, his blood cleanseth from all — 
+sin.{ Though our sins be never so great and horrible, _ 
+and continued in never so long, yet he is able to de- 
+liver us from the body of death, and mortify our cor- _ 
+ruptions, be they ever so strong. We find in Serip- 
+ture that abominable wicked persons have been saved 
+by him, idolaters, adulterers, effeminate, covetous, / 
+drunkards, extortioners, &c.,§ such as have sinned, 
+against the light of nature as the heathen, and the 
+light of Scripture as the Jews; such as have denied 
+Christ as Peter, and persecuted and blasphemed him ~ 
+as Paul. Many that have fallen into great sins are 
+ruined for ever, because they do not account the grace 
+of Christ sufficient for their pardon and sanctification : 
+when they think they are gone, and past all hope of © 
+recovery, that their sins are upon them, and they pin 
+
+
+* Rom viii, 1. + Heb. xii, 14, t John i, 7. 
+
+
+Direct. XI. OF SANCTIFICATION, 193 
+
+
+away in them, how shall they live?* This despair 
+works secretly in many souls, without much trouble 
+and horror, and maketh them careless of their souls 
+and true religion. The devil fills some with horrid, 
+filthy, blasphemous thoughts, on purpose that the 
+may think their sins too great to be forgiven; though 
+commonly such thoughts are the least of the sins of 
+those that are pestered with them, and rather the 
+devil’s sins than theirs, because they are hurried into 
+them sore against their wills; but, if their hearts be 
+somewhat polluted with them, Christ  testifieth, 
+“that all manner of sin and blasphemy shall be for- 
+iven, except the blasphemy against the Holy 
+host.”+ And as for those that are guilty of blas- 
+phemy against the Holy Ghost, the reason why the 
+are never forgiven, is not because of any want of sub. 
+ficiency in the blood of Christ, or in the pardoning 
+mercy of God; but because they never repent of that 
+sin, and never seck to God for mercy through Christ, 
+but continue obstinate until death; for the Scripture 
+testifieth, that it is impossible to renew them again 
+unto repentance,| so that the merits of Christ are suf- 
+ficient for all that seek to him for mercy by believing. 
+There are others that despair of ever getting any vic- 
+tory over their lusts, because they have formerly 
+made many vows and resolutions, and have used 
+many vigorous endeavours against them in vain. 
+‘Such are to persuade themselves, that the grace of 
+‘Christ is sufficient for them, when all other means 
+haye failed; as the woman that had the issue of blood, 
+and was nothing bettered, but rather grew worse by 
+any remedies that physicians could describe, yet per- 
+guaded herself that, if she might but touch the clothes . 
+of Christ, she would be whole.§ Those that despair 
+reason of the greatness of their guilt and corrup- 
+, do greatly dishonour and undervalue the grace 
+whe " ‘ -« 
+
+
+B xiii, 20. +t Matt. xii, 31. t Gi a Ge of 
+
+
+4 
+
+
+Su ily as oT 
+
+
+Fibs 
+
+
+FS ge a ee 
+
+
+194 THE GOSPEL MYSTERY Direct, XT. 
+
+
+of God, his infinite mercy, and the infinite merits of 
+Christ’s blood, and power of his Spirit, and deserve 
+to perish with Cain and Judas, Abundance of people 
+that give up themselves to all licentiousness in this 
+wicked generation, lie under secret despair; which 
+maketh them so desperate in swearing, blaspheming, 
+whoring, drunkenness, and all manner of wickedness. 
+However horrid and heinous soever our sins and cor- 
+ruptions haye been, we should learn to account them 
+a small matter in comparison to the grace of Christ, 
+who is God as well as man, and offered himself, by 
+the eternal Spirit, as a sacrifice of an infinite value, 
+for our salvation; and can create us anew as easily as 
+he created the world by a word speaking. 
+
+Fourthly, Youare to be fully persuaded of the truth 
+of the general free promise in your own particular case, 
+that if you believe on Christ sincerely, you shall have 
+everlasting life, as well as any other in the world, 
+without performing any condition of works to procure 
+an interest in Christ: for the promise is universal, 
+“ Whosoever believeth on him shall not be asham- 
+ed,”’* without any exception. And if God exclude 
+you not, you must not exclude yourselves; but rather 
+conclude peremptorily, that, how vile, wicked, and 
+unworthy soever you be, yet, if you come, you shall 
+be accepted as well as any other in the world. You 
+are to believe that great article of the creed, the re- 
+mission of sins, in your own case, when you are prin- 
+cipally concerned, or else it will little profit you, to 
+believe it in the case of others. This is that which 
+hinders many broken wounded spirits from coming to 
+the great physician, when they are convinced of the 
+abominable filthiness of their hearts, that they are 
+dead in sin, without the least spark of true grace and - 
+holiness in them. They think that it isin vain for 
+such as they are, to trust on Christ for salvation ; and 
+that Christ will never save such as they are. Why 
+
+
+: 
+
+
+* Rom, ix, 33. 
+
+
+Direct. XI. OF SANCTIFICATION. 195 
+
+
+so? they can be but lost creatures at worst; and 
+Christ came to seek and save those that are lost. If 
+they who are dead in sin, cannot be sayed, then all 
+must despair and perish ; for none have any spiritual 
+life, until they receive it by believing on Christ. 
+Some think themselves to be worse than any others, | 
+and that none have such wicked hearts as they ; and : 
+though others be accepted, yet they shall be rejected. 
+But they should know, that Christ came to save the 
+chief of sinners;* and that the design of God is, to 
+shew the exceeding riches of his grace in our salya- Y 
+tion ;f which is most glorified by pardoning the 
+greatest sinners. And itis but our ignorance, to think 
+ourselves like nobody : for all others, as well as we, — ; 
+are naturally dead in trespasses and sins; their mind 
+is enmity to God, and is not subject to his law, 
+nor indeed can be ;{ and every imagination of the 
+thoughts of their hearts is only evil, and continuall 
+80 ;§ they have all the same corrupt fountain of all 
+abominations in their hearts, though they may have 
+exceeded many others in several actual sins. Others 
+think that they haye out-stayed their time, and there- 
+fore now they should find no place for repentance, 
+though they should seek it carefully with tears,|| 
+But, behold now is the accepted time ; behold now is 
+the day of salvation,{[ even as long as God calleth 
+upon you by the gospel. And although Esau was re- 
+jected, who sought rather the earthly than the spirit- ; 
+ual blessings of the birthright, yet they shall not be 
+rejected, that seek the enjoyment of Christ, and his 
+i aiion, as their only happiness. If you come into ys 
+Christ’s vineyard at the eleventh hour of the day, ' : 
+
+
+SE ee ee eee eee 
+
+
+you shall have your penny, as well as those that come 
+early in the morning ; because the reward is of grace, 
+and not of merit.** And here you must be sure to 
+believe steadfastly, that Christ and all his salvation 
+
+
+—*) Tim. i, 15. t Eph. ij, 7. t Rom, viii, 7. § Gen. vi, 5. 
+Bb. xii, 17. { 2 Car. vi, 2. x¥ Matt. xx, 9, 10. 
+a oe Lee ’ : 
+
+
+etre ¥ 
+
+
+\ Nie 
+
+
+4 = 
+
+
+196 THE GOSPEL MYSTERY Direct. XI. 
+
+
+is bestowed as a free-gift upon those that do not work 
+to procure any right or title to him, or meetness or 
+worthiness to receive him, but only believe on him 
+that justifieth the engodly.* If you put any condi- 
+tion of works or good qualifications between your- 
+selves and Christ, it will be a partitionwall which you 
+can never climb over, 
+
+Fifthly, Youare to believeassuredly, that it is the will 
+of God you should believe in Christ, and have eternal 
+life by him, as well as any other; and that your be- 
+lieving is a duty very acceptable to God ; and that he 
+will help you, as well as any other, in this-work, be- 
+cause he calleth and commandeth you, by the gospel, 
+to believe in Christ. This maketh us to set cheerfully 
+upon the work of believing; as when Jesus com- 
+manded the blind man to be called, they said unto 
+him, “Be of good comfort, rise; he calleth thee.” + 
+A command of Christ made Peter to walk upon the 
+water.{ And here we are not to meddle with God’s 
+secret of predestination, or the purpose of his will to 
+give the grace of faith to some rather than to others ; 
+but only with his revealed will, in his gracious invi- 
+tation and commands, by which we are required to 
+‘believe on Christ. This will of God is confirmed b 
+his oath, “As I live, saith the Lord God, I have no 
+pleasure in the death of the wicked, but that the 
+wicked turn from his way, and live: turn ye, turn ye~ 
+from your evil ways; for why will ye die, O house of 
+Tsvacl?”§ Christ testifieth, that “he would often 
+have gathered the children of Jerusalem, even as a 
+hen gathereth her chickens under her wings, and they 
+would not.”’|| And the apostle Paul testifieth, that 
+God will have all men to be saved, &c.4 You are to 
+reject and abandon all thoughts that are contrary to 
+this persuasion, "What if few be saved? Thy salva- 
+tion will not make the number too great; for few 
+
+
+* Rom. iv, 5. + Mark x, 49.- t Matt. xiv, 29. 
+§ Ezek, xxxiii, 11. |) Matt, xxifi, 37. 1 Tim, ii, 4. 
+
+
+OF SANCTIFICATION, 
+
+
+- will follow thee in the duty of believing. What, if 
+the wrath of God be revealed from heaven against 
+thee in many terrible judgments, and the word, and 
+thine own conscience, condemn thee, and Christ seems 
+to reckon thee no better than a dog, as he did the 
+woman of Canaan?* ‘Thou art to make a good in- 
+terpretation of all these things, that the end of them 
+is, to drive thee to Christ, as this was the end of the 
+curses of the law, and all the terrible dispensations of 
+them.t If a prophet, or angel from, heaven, were 
+sent of God, on purpose to-declare, that the sentence 
+of everlasting damnation is declared against thee ; it 
+would be thy duty to believe, that God sent him to 1 
+give thee timely warning, for this very end, that thou 
+mightest believe, and turn to God by faith and re- 
+entance. Jeremiah prophesied against the Jews, 4 
+that God would pluck them up, pull them down, and ; 
+destroy them for their sins; yet he himself taught d 
+them, “if they turned from their evil ways, God s 
+~ would repent of the evil.”{ Jonah preached nothin F 
+but certain destruction to Nineveh, to be execute 
+upon them within forty days ;§ yet the intent of that E 
+_ terrible message was, that those heathenish people 1 
+might escape destruction by repentance. The most 
+absolute and peremptory denunciations of divine yen- 
+geance against us, while we are in this world, must 
+_ be always understood with a secret reserve of salva- 
+tion for us, upon our faith and repentance. And we 
+are to account, that the reason why God doth so ter- 
+_ ribly denounce his judgments against us by his word, 
+38, that we may escape them, by flying for refuge to 
+_ his free mercy in Christ. Take heed of fostering any 
+thoughts, that God hath absolutely decreed to shew 
+“no saving mercy to you, or that you have already 
+mitted the unpardonable sin, or that it is in vain 
+ou to attempt the work of believing, because 
+vill not help you in it. If such thoughts prevail 
+
+
+——_—- 
+
+
+.—————— ee Se 
+
+
+ay 
+
+
+‘t Jer, xviii, 7, 8, 11. 
+
+
+gh 
+
+
+§ Jonah iil, sony 
+
+
+Re 
+
+
+198 THE GOSPEL MYSTERY Direct. XT. 
+
+
+in your hearts, they will do you more hurt than the 
+most blasphemons thoughts that terrify you, or any 
+of the grossest abominations that ever you were guilty 
+of; because they obstruct your believing on Christ 
+for salvation. “The Spirit and the bride say, Come. 
+Christ saith, whosoever will, let him take the water 
+of life freely.”* Therefore we are to abandon all 
+thoughts that hinder our coming to Christ, as very 
+sinful and pernicious, arising in us from our own cor- 
+ruptions, and satan’s delusions, and utterly opposite 
+to the mind of Christ, and teachings of the Spirit. 
+And what ground can we have to entertain such un- 
+believing thoughts? Hath God made us of his privy 
+council, that we should be able to know that God 
+hath decreed us to damnation, before it be manifest 
+by our final unbelief and impenitence? As for the 
+unpardonable sin, it consisteth in renouncing the way 
+of salvation by Christ with the whole heart, after we 
+have attained to the knowledge of it, and are con- 
+vinced of the truth of it by the gospel. It is the sin 
+that the Christian Hebrews would have been guilty 
+of, if they had revolted from Christianity to the re- 
+ligion of the unbelieving Jews, that accounted Christ 
+to be an imposter, and were most rancorous persecu- 
+tors of him and his ways.t They that have commit- 
+ted that sin, continue implacable, malicious enemies 
+to Christ and his ways to the end, without any re- 
+pentance. Therefore, if you can but find, that you 
+desire seriously to get an interest in Christ, and to be 
+better Christians than you are; if you be troubled and 
+grieved, that your hearts and lives are so wicked, and 
+that you want faith, love, and true obedience; yea, if 
+your hearts be not maliciously bent to persecute the 
+gospel, and prefer atheism, licentiousness, or any false 
+religion before it ; you have no cause to suspect your- 
+selves to be guilty of this unpardonable sin. 
+
+Stathly, Add to all these a full persuasion of the in- 
+
+
+* Rey. xxii, 17. } Heb. vi, 4, 5. — 
+
+
+> eer 
+
+
+Bs 
+= 
+
+
+7 
+
+
+“Direct. Al, OF SANCTIFICATION. 199 
+
+
+comparable glorious excellency of Christ, and of the 
+way of salvation by him. You are to esteem the en- 
+joyment of Christ as the only salvation and true hap- 
+piness, and such an happiness as hath in it unsearch- 
+able riches of glory, and will make our cup to run 
+over with exceeding abundance of peace, and joy, and 
+glory, to all eternity. We must account all things 
+but loss, for the excellency of the knowledge of Christ 
+Jesus our Lord.* Such a persuasion as this, will 
+allure and incline your wills and affections to choose 
+and embrace Christ as the chief good, and never to 
+rest satisfied without the enjoyment of him; and to 
+reject every thing that stands in competition with 
+him, or the enjoyment of him, Christ is precious in 
+the esteem of all true believers} Their high esteem 
+of his incomparable preciousness and excellency, in- 
+duceth them to sell all, that they may buy this pearl 
+of great price.{ This maketh them to say, “ Lord, 
+evermore give us this bread, that cometh down from 
+heaven, and giveth life to the world. Lord, to whom 
+shall we go? thou hast the words of eternal life.§ 
+Because of the savour of his good ointments, his name 
+is as ointment poured forth ; therefore do the virgins 
+love him.’’|| They are sick of love to him, because 
+he is, in their eyes, the chiefest among ten thousand. 
+As the glory of God that appeared in the wonderful 
+beauty of the temple, and in the wisdom and glory of 
+Solomon, drew worshippers to God from the utmost 
+
+rts of the earth : so the unparalleled excellence of 
+Christ, which was prefigured by the glory of Solomon 
+and the temple, doth more powerfully draw believers 
+in the gospel-days, The devil, who is the god of this 
+world, knows how necessary it is for our salvation, to 
+discern all the glory and excellency of Christ ; and 
+therefore, where the gospel is preached, he maketh it his 
+great work to eclipse the glory of Christ in the minis- 
+
+
+5. * Phil, 1H, 8. t1 Pet. ii, 7. t Matt. xiii, 46, 
+_ § John vi, 33, 34, 68. || Song i, 3. »  ¥ Song v, 8, 10. 
+Oar ve =H : Gs pels = 
+
+
+~~ 
+
+
+Se > cae r I : 
+200 THE GOSPEL MYSTERY Direct, XI. 
+
+
+try, and to blind the minds of the people, lest the 
+light of the glorious gospel of Christ should shine un- 
+to them.* One that is convinced of the truth of the 
+gospel, may be averse to the embracing of it, until he 
+see also the goodness of it, that Christ is altogether 
+lovely and excellent. 
+
+I come now to the second principal act of faith, 
+whereby Christ himself, and his Spirit, and all his 
+saving benefits, are actually received into the heart ; 
+which is, believing on Christ, as revealed and freely 
+promised to us in the gospel, for all his salvation. 
+The Spirit of God doth habitually dispose and incline 
+our hearts to a right performance of this aet, by ena- 
+bling us to perform the first act, according to the for- 
+mer instructions, by believing assuredly those great 
+things of the gospel whereby we are delivered into a 
+form of doctrine ;+ which we are to obey from our 
+hearts, and to follow as our pattern, in the manner of 
+our acting faith in Christ for salvation. Therefore I 
+need only exhort you briefly to act your faith in 
+Christ, according to that form and pattern, in which 
+we have been already so largely instructed. You are 
+to believe in Christ as alone sufficient, and all-sufficient 
+for your happiness and salvation; despairing alto- 
+gether of any attainment of happiness by your own 
+wisdom, strength, works of righteousness, or any 
+fleshly worldly confidences whatever, We must be 
+as dead people to all other confidences, and account 
+them to be loss for Christ, according to the example 
+of the blessed apostle We must not be grieved, 
+
+
+that we have nothing to trust upon besides Christ for 
+
+
+our salvation; but rather, we are to rejoice, that we 
+need nothing else, and that we have a sure foundation 
+to rely upon, incomparably better than any other 
+that can be imagined. And we must resolve to cast 
+the burden of our souls wholly on Christ, and to seelx 
+salvation no other way, whatsoever becomes of us, — 
+
+
+#2 Cor. iv, 4. + Rom. vi, 17. f Phil, 4i,3, 7,8 
+
+
+oP 
+
+
+irect, XI. OF SANCTIFICATION. 201 
+If the cripple lay not the whole weight of his body 
+upon a strong staff, but part of it on a rotten one, 
+he is like to receive a fall. Ifthe swimmer will not 
+commit his body wholly to the water to bear him up, 
+but catch at weeds, or struggle to feel out ground, he 
+may sink to the bottom. Christ will be all our sal- 
+vation, or nothing. If we seek to be saved any other 
+way, as the Galatians did by circumcision, Christ will 
+profit us nothing.* 
+You are also to receive Christ merely as a free gift 
+given to the chief of sinners; resolving, that you will 
+not perform any conditions to procure yourselves a 
+right and title to him ; but that you will come to him 
+as a lost sinner, an ungodly creature, trusting on him 
+that justifieth the ungodly ; and that you will buy 
+him without money, and without any price whatso- 
+ever.f Look not on your own faith or love, or any 
+good qualifications in yourselves, as the ground of 
+your trusting in Christ, but only to the free grace 
+and loving-kindness of God in Christ : “ How excel- 
+__ lent is thy loving-kindness, O God! therefore the chil- 
+dren of men put their trust under the shadow of thy 
+wings;”{ For if you make your faith, love, or good 
+ualifications, to be your first and principal founda- 
+tion, and you build Christ upon them instead of build- 
+ing all upon Christ, you invert the order of the gos- 
+_ pel, and Christ will profit you nothing. ‘ 
+Another thing to be observed diligently is, that you 
+must come to Christ for a new holy heart and life, 
+and all things necessary thereunto, as well as for de- 
+: liverance from the wrath of God, and the torments of 
+hell. You must also come to him with an ardent love 
+and affection to him, and esteem him better than a 
+' thousand worlds, and the only excellent portion, 
+loathing and abhorring yourself asa vile, sinful, and 
+miserable creature, and accounting all things dung 
+n comparison of his excellency; that you may be 
+
+
+fare Fo 
+
+
+202 THE GOSPEL MYSTERY Direct, XI. 
+
+
+able to say from the bottom of your heart, “ Whom 
+have I in heaven but thee? and there is none upon 
+earth that J desire besides thee,””* 
+
+Lastly, You must endeavour to draw near with full 
+assurance of faith ;+ trusting on Christ confidently for 
+your own particular salvation, upon the account of 
+that general promise that whosoever believeth on Christ 
+shall not be ashamed.{ You must check yourself for 
+all doubtings, fears, staggerings, concerning your own 
+salvation by Christ, saying with the Psalmist, “Why 
+art thou cast down, O my soul,” &c.§ 
+
+The rurrp thing contained in this direction, is, the 
+avoiding all delay in the performance of this great 
+work of believing on Christ. Until we haye per- 
+formed it, we continue under the power of sin and 
+satan, and under the wrath of God; and there is no- 
+thing between hell and us, besides the breath of our 
+nostrils. It is dangerous for Lot to linger in Sodom, 
+lest fire and brimstone come down from heaven upon 
+him, The man-slayer must fly with all haste to the 
+city of refuge, lest the avenger of blood pursue him, 
+while the heart is hot, and slay him.|| We should 
+make haste, and not delay, to keep God’s command- 
+ments,{ and fly for refuge to the hope set before us.** 
+And God commandeth us to fly thus by faith, with- 
+out which it is impossible to please God in other du- 
+ties. The work is of such a nature, that it may be 
+performed as soon as you hear the gospel. “ As soon 
+as they hear of me they shall obey me.” t+ “Assoon 
+ag Zion travaileth, she brought forth her children.” ++ 
+We have many examples of those that received the 
+word by faith at the first hearing of it. Three thou- 
+sand were added to the church on the very same day 
+wherein Peter first published the gospelinJd erusalem.§§ 
+
+
+* Psal. Ixxili, 25. + Heb. x, 22. { Rom. ix, 33. 
+§ Psal. xliii, 11. }| Deut. xix, 5, 6. 4] Psal. cxix, 60. 
+** Heb. vi, 18. tt Psal. xviii, 44. tt Isa, xvi, 8. 
+
+
+§$ Acts ii, 41. 
+
+
+_. Direct. XT. “OF SANCTIFICATION. ‘ 268 
+
+
+So many Jews and Gentiles were converted at the 
+first hearing of the apostle Paul at Antioch.* The 
+jailor and all his house believed, and were baptized, 
+the same night wherein Paul first preached to them.+ 
+The tet came at first to the Thessalonians, not in 
+word only, but in power, and in the Holy Ghost.t If 
+God open the hearts of his people to attend diligently, 
+they may be instructed in the knowledge of the gos- 
+pel by one brief sermon, sufficiently to begin the prac- 
+tice of saving faith. And, when they know their 
+duty, God requireth immediate performance, without 
+allowing us the least respite in the state of unbelief. 
+When satan cannot prevail with people to reject 
+wholly the duty of believing, his next attempt for the 
+ruin of our souls is to prevail with them at least to 
+delay and shift off the performance of it from time to 
+time, by several false reasonings and imaginations 
+which he putteth into their minds. The most igno- 
+rant and sensual are easily prevailed with to defer this 
+duty, until they have taken their fill of the pleasures, 
+profits, and honours of this world, and are summoned 
+to prepare for another world by infirmities, age, sick- 
+ness; praying and hoping that a large time of repen- 
+tance will be granted unto them before they die. But 
+such delays shew that they are really unwilling to 
+repent and believe, until they are forced by necessity, 
+and that they prefer the pleasures, profits, and hon- 
+ours of the world, above God, and Christ, and their 
+own souls. Thus they unfit themselves more and 
+more for this great duty, by their customary walking 
+in sin, and by mis-spending the precious time of their 
+health and strength, which is most meet for the per- 
+_ formance of this great work. They highly provoke 
+_ God never to give them time or grace to repent here- 
+after. Others imagine that, after they have heard the 
+_ gospel of salvation by Christ, they may lawfully defer 
+_ the believing of it, until they have sufficiently exa- 
+
+
+eee 
+
+
+£1 Thess. {, 5, 
+
+
+ovata 
+
+
+204 THE GOSPEL MYSTERY Direct. XT. 
+
+
+mined the truth of some other different doctrine, or 
+until God be pleased to afford them some other means 
+to assure them fully of the truth of the gospel. ‘Thus 
+they are called seekers, mis-spend the day of grace, 
+ever learning, but never coming to the knowledge of 
+the truth.* But the truth of the gospel doth so 
+clearly evidence itself by its own light, that if people 
+do not wilfully shut their eyes, or blind themselves 
+by their own pride, and love of their lusts, they would 
+easily perceive that it is the truth of God, because the 
+image of his grace, merey, power, justice and holiness, 
+appears manifestly engraven upon it. It is a sign 
+people are proud when they consent not to the words 
+of our Lord Jesus Christ, and to the doctrine which is 
+according to godliness.t If they were humble, and 
+sincerely inclined to do the will of God, they would 
+know whether the doctrine be of God or no:} they 
+would quickly be persuaded of the truth by Moses 
+and the prophets, Christ and the apostles, spoken to 
+them in Scripture. And, if they will not hear them, 
+neither will they be persuaded though one rose from 
+the dead ; or whatever other miracle be wrought, to 
+confirm the divine authority of the gospel.§ Another 
+sort of people there are, that delay the great work of 
+believing, to the ruin of their souls, resting in an at~ 
+tendance upon the outward means of grace and salya- 
+tion, instead of any endeavours to receive Christ b 
+faith, though they be convinced of the truth of the 
+gospel. This they call waiting upon God at the doors 
+of his grace and salvation, in the use of means ap-_ 
+pointed by him, and sitting under the droppings of 
+the sanctuary. But let them know that this is not 
+the right waiting on God required in Scripture, It is 
+rather disobedience to God, and to the means of his 
+appointment, who requires that we should be doers of 
+the word, and not hearers only, deceiving ourselves, || 
+
+
+*2Tim.iii,7. $1 Tim.vi,3. John vii, 17. § Luke xvi, 31, 
+|| James i, 22. Poo ot! a ae 
+fi\+> ae Pas 
+
+
+a, 
+
+
+Direct. XI. OF SANCTIFICATION. 205 
+
+
+and that we should come in to the spiritual feast ;* 
+and not only stand at the door, or sit under the drop- 
+pings of the house of God, lest Christ repute us no 
+etter than eayesdroppers. That holy waiting on 
+the Lord commended to us in Scripture, is ever ac- 
+companied with believing and hoping in the Lord, and 
+dependeth thereon : “ I had fainted, unless I had be- 
+lieved to see the goodness of the Lord in the land of 
+the living. Wait on the Lord: be of good courage, 
+and he shall strengthen thine heart : wait, I say, on 
+the Lord.t It is good that a man should both hope 
+and quietly wait for the salvation of the Lord.”’+ 
+What is it that these deluded ones -wait for before 
+they perform the duty of believing? Is it for more 
+knowledge of the gospel. The way to increase thy 
+knowledge, as well as any other talent, is to make 
+use of what thou hast received already. Believe 
+heartily on Christ for all thy salvation, according 
+to that little knowledge of the gospel which thou 
+hast, and thou wilt have an interest in the promise of 
+knowledge contained in the new covenant: ‘They 
+shall all know me, from the least to the greatest of 
+them, saith the Lord.’’§ Is it for the appointed time 
+of thy conversion that thou waitest? Then thou 
+waitest, as those impotent folk that lay at the pool of 
+Bethesda waiting for the season when the angel would 
+come down and move the water. Know then, that if 
+thou enter into Christ now by faith, thou shalt find 
+in him waters of life, and the Spirit moving them for 
+the healing and quickening of ay soul. God hath 
+appointed by his word, that it shall be thy duty to 
+endeavour that the present time should be the time 
+of thy conversion: as the Holy Ghost saith, “To-day 
+if thou wilt hear his voice, harden not thy heart.”’|| 
+And thou shalt never know at what time God hat 
+proposed, in his secret counsel, to give faith to thee 
+until thou dost actually believe. Dost thou wait for 
+
+
+_ -® Luke xiy, 23. + Psal. xxvii, 13, 14. t Lam. iii, 26. 
+eth ~ § Jer. xxxi, 34. || Heb. iti, 7, 8. 
+
+
+s 
+
+
+Vy 
+
+
+206 THE GOSPEL MYSTERY Direct. XT, 
+
+
+any manifestations or flowings in of God’s saying love 
+to thy soul? Then the way to obtain it is, to believe 
+that the God of hope may fill thee with all joy and 
+peace in believing.* Thou hast sufficient manifesta- 
+tion of God’s love to thy soul, by the free promises of 
+life and salvation by Christ. Do but trust on the 
+name of the Lord, and stay upon thy God when thou 
+walkest in darkness, and seest no light of sensible 
+comforts any other way; otherwise thou waitest for 
+comfort in vain, and this shalt thou have at the Lord’s 
+hand, thou shalt lie down in sorrow.t Dost thou wait 
+for any qualifications to prepare thee for the worl: of 
+believing ; if they be good and holy qualifications, 
+thou canst not have them before faith ; but they are 
+either included in the nature of faith, or they are fruits 
+of it, as hath been largely proved. If they be bad 
+and sinful, it is strange that any should wait for them, 
+and yet no more strange than true. Some foolishly 
+wait to be terrified with a sense of God’s wrath, and 
+despairing thoughts, and these they call the pangs of 
+the new birth; though, in their own nature, they are 
+rather the pangs of the spiritual death, and bring forth 
+hatred to God rather than holiness ; and, therefore, 
+we should strive to prevent them, by believing God’s 
+love in Christ, rather than to wait for them. It is 
+true, God maketh these despairing thoughts, as well 
+as other sins, work for good to them that are delivered 
+from them by faith in Christ ; they are moved thereby 
+to hate sin, and to prize Christ the more, and the 
+comforts of his pope: and to loathe and abhor them- 
+selves ; yet many are brought to Christ without them 
+by God’s giving them the knowledge of their own 
+sins, and of Christ’s salvation together. Several ex- 
+amples of these were above mentioned, who received 
+the word with joy at the first hearing of it. And we 
+must not desire or wait for any evil of sin, such as 
+these despairing thoughts are, that good may come of 
+it ; neither should we expect to be worse before we 
+
+
+* Rom. xy, 13. + Isa. i, 10, 11. 
+
+
+Se on Pe 
+' i f 
+: , MT 7 ‘ 
+
+
+Direct. XI. OF SANCTIFICATION. 207 
+
+
+be better, when we may and ought to be better pre- 
+sently, by believing on Christ. 
+
+The rourru thing in the direction is, that we should 
+continue and increase in the most holy faith. And, 
+that we may, we must not think that, when we have 
+once attained the grace of saving faith, and thereby 
+are begotten anew in Christ, our names are up in 
+heaven, and therefore we may be careless: but as long 
+as we continue in this life, we must endeavour to con- 
+tinue in the faith, grounded” and settled, not moved 
+away from the hope of the gospel ;* and to hold the 
+beginning of our confidence, and the rejoicing of hope 
+stedfast to the end;+ and build up ourselves in our 
+most holy faith,} abounding therein with thanksgiv- 
+
+‘ing.§ ‘Though we receive Christ freely by faith, yet 
+we are but babes in Christ.|| And we must not ac- 
+count that we have already attained, or are already 
+erfect ;{[ but we must strive to be more rooted and 
+uilt ve in him, until we come unto a perfect man, 
+unto the measure of the stature of the fulness of \ ad 
+Christ.** If the new nature be really in us by regene- Ao 
+ration, it will have an appetite to its own continuance A 
+and increase, until it come to perfection, as the new- 
+born babe.tt And we are not only to receive Christ 
+and a new holy nature by faith, but also to live and 
+_ wall by it, and to resist the devil, and to quench all 
+his fiery darts by it, and also to grow in grace, and to 
+erfect holiness in the fear of God; for we are kept 
+y the mighty power of God through faith unto sal- 
+-vation.{{ As all our Christian warfare is the good 
+- fight of faith,§§ all spiritual life and holiness continue, 
+grow, or decay in us according as faith continueth, 
+_ groweth, or decayeth in vigour: but, when this faith 
+beginneth to sink by fears and doubting, the man him- 
+If beginneth to sink together with it.|||| Faith is like 
+
+
+Col. 1,23. } Heb. iii, 6, 14. t Jude verse 20, § Col. ii, 7. 
+|}. Cor. ifi, 1. q Phil. iii, 12, 13. ** Eph, iv, 13. 
+linge, fo fh Pet. SS.’ | S80 Dimsyi, 12, 
+
+rh ‘Matt. xiv, 29, 30,31, 0 
+
+
+208 THE GOSPEL MYSTERY Direct. XI. 
+
+
+the hand of Moses; while it is held up, Israel prevails 
+—while it is let down, Amalek prevails.* This con- 
+tinuance and growth in faith will require our labour 
+and industry, as well as the beginning ; though we 
+are to ascribe the glory of all to the grace of God in 
+Christ, who is the finisher as well as the author of it.t 
+The church meeteth with great difficulties in her 
+marching through the wilderness of this world to the 
+heavenly Canaan, as well as in her first deliverance 
+from Egyptian bondage ; yea, we often meet with 
+greater difficulties in going to perfection, than we did 
+in the beginning of the good work: the wisdom and 
+mercy of God so ordering it, that we shall be exercised 
+with the sharpest dispensations of providence, and the 
+fiercest assaults of our own corruptions, and satan’s 
+temptations, after we have grace given us to stand in the — 
+evil day. You must therefore endeavour to continue 
+and go on in the same right manner as I have taught 
+you to begin this great work of believing Christ, that 
+your faith may be of the same nature from the begin- 
+ning to the end, though it increase in degrees ; for our 
+faith is imperfect, and joined with much unbelief in 
+this world, and we had need to ae still, “Lord, I 
+believe : help thou mine unbelief; and, therefore, 
+we have need to strive for more faith, that we may 
+receive Christ in greater perfection. If you find your 
+faith hath produced good works, you should thereby 
+increase your confidence in Christ for salvation by his 
+mere grace. But take heed of changing the nature of 
+your faith, from trusting on the grace and merits of 
+Christ, to trusting on your own works, according to 
+the Popish doctrine, That our first justification is by 
+grace and faith only, but our second justification is 
+also by works. Beware also of trusting on faith itself 
+as a work of righteousness, instead of trusting on 
+Christ by faith. If you do not find that your beliey- 
+ing in such a right manner as I have described, doth 
+produce such fruits of holiness as you desire, you — 
+
+
+* Exod. xvii, 1. + Heb. xii,2, Mark ix, 24, 
+
+
+bk 
+
+
+Direct. XI. OF SANCTIFICATION. 209 
+
+
+ought not to diminish, but rather to increase your 
+confidence in Christ, knowing that the wealness of 
+your faith hindereth its fruitfulness ; and the greater 
+your confidence is concerning the love of God to you 
+in Christ, the greater will be your love to God and to 
+his service. If you fall into any gross sin after the 
+work is begun in you, as David and Peter did, think 
+not that you must cast away your confidence, and 
+expect nothing but wrath from God and Christ, and 
+that you must refuse to be.comforted by the grace of 
+Christ, at least for some time ; for thus you would be 
+the more weak and prone to fall into other sins ; but 
+rather strive more confidently, that you have an ad- 
+vocate with the Father, Jesus Christ the righteous ; 
+and that he is the propitiation for our sins.* And let 
+not the guilt of sin stay at all upon your conscience, 
+but esis it away with all speed, in the fountain of 
+Christ’s blood, which is opened for us, that it may be 
+ready for our use on all such incident occasions; that 
+so you may be humbled for your sins in a gospel-way, 
+and may hate your own sinfulness, and be vei for 
+it with godly sorrow, out of love to God. Peter 
+
+
+aa have been ruined forever, by denying Christ, 
+as Judas was by betraying him, if Peter’s faith had 
+not been upheld by the prayer of Christ.t Ifacloud 
+be cast over all your inward qualifications, so that you 
+can see no grace at all in yourselves, yet still trust on 
+him that justifieth the ungodly, and came to seek and 
+to save them that are lost. If God seem to deal with 
+
+
+210 THE GOSPEL MYSTERY Direct. XII. 
+
+
+DIRECTION XII. 
+
+
+Make diligent use of your most holy faith, for the immediate perfor- 
+mance of the duties of the law, by walking no longer according to your 
+old natural state, or any principles or means of practice that belong 
+unto it, but only according to that new state which you receive by 
+faith, and the principles and means of practice that properly belong 
+thereunto ; and strive to continue and increase in such manner of 
+practice. This is the only way to attain to an acceptable perfor- 
+mance of those holy and righteous duties, as far as it is possible in 
+this present life. 
+
+
+EXPLICATION. 
+
+
+Here I am guiding you to the manner of practice, 
+wherein you are to make use of faith, and of all other 
+effectual means of holiness before treated of, which 
+faith layeth hold on, for the immediate performance 
+of the law; which is the great end aimed at in this 
+whole treatise, And, therefore, this deserveth to be 
+diligently considered : the principal direction to which © 
+all the foregoing and following are subservient. As 
+for the meaning of it, I have already shewed that our 
+old natural state is that which we derive from the » 
+first Adam by natural generation: and it is called, in 
+the scripture, the old man; and, while we be in it, 
+we are said to be in the flesh. And our new state is 
+that which we receive from the second Adam, Jesus 
+Christ, by being new-born in union and fellowship 
+with him through faith ; and it is called, in scripture, 
+the new man; and, when we are in it, we are said to 
+be in the Spirit. The principles and means of prac- 
+tice belonging to a natural state, are such as persons 
+do or may attain, or make use of, before they are in 
+Christ by faith. Such as belong properly to the new 
+state, are the manifold holy endowments, privileges, 
+and enjoyments, which we partake of in Christ by 
+faith, such as have already appeared to be the only 
+effectual means of a holy life. We are said to walk 
+
+
+Direct. XII, OF SANCTIFICATION. 211 
+
+
+according to either of these states, or to the principles 
+or means that belong to either of them, when we are 
+moved and guided, by virtue of them, to such actings 
+as are agreeable to them. Thus kings act according 
+to their state, in commanding authoritatively, and in 
+magnificent bounty ; poor men, in the way of service 
+and obedience ; and children indiscreetly.* So the 
+manner of the practice here directed to, consists in 
+moving and guiding ourselves, in the performance of 
+the works of the law, by gospel principles and means. 
+This is the rare and excellent art of godliness, in 
+which every Christian should strive to be skilful and 
+expert. The reason why many come off with shame 
+and confusion, after they have a long time laboured 
+with much zeal and industry for the attainment of 
+true godliness, is, because they were never acquainted 
+with this holy art, and never endeavoured to practise it 
+in a right gospel-way. Some worldly arts are called 
+mysteries; but, above all, this spiritual art of godliness 
+is, without controversy, a great mystery ;f because 
+the means that are to be made use of in it, are deeply 
+mysterious, as hath been shewed ; and you are not a 
+skilful artist till you know them, and can reduce them 
+to practice. It is amanner of practice far above the 
+sphere of natural ability, such as would never have 
+entered into the hearts of the wisest in the world, if 
+it had not been revealed to us in the scriptures ; and, 
+when it is there most plainly revealed, continueth a 
+dark riddle to those that are not inwardly enlightened 
+and taught by the Holy Spirit ; such as many godly 
+_ persons, guided by the Spirit, do in some measure 
+walk in, yet do but obscurely discern; they can 
+hardly perceive their own knowledge of it, and can 
+hardly give any account to others of the way wherein 
+they walked ; as the disciples that walked in Christ, 
+the way to the Father, and yet: perceived not that 
+knowledge in themselves: Lord, we know not whi- 
+
+
+_* Esther i, 7, Prov. xviii, 23. 1 Cor, xiii, 11. - tl Tim. iif. 16. 
+
+
+a is Ah 45 
+
+
+ee oe ey ee et ee ey aS a 
+
+
+a 
+
+
+212 THE GOSPEL MYSTERY Direct. XII, 
+
+
+ther thou goest, and how can we know thy way ?* 
+This is the reason why many poor believers are so 
+weak in Christ, and attain so small a degree of holi- 
+ness and righteousness. Therefore, that you may the 
+better be acquainted with a mystery of so high con- 
+cernment, I shall shew, in the first place, that the 
+Holy Scriptures do direct you to this manner of prac- 
+tice, as only effectual for the performance of holy. 
+duties: and then I shall lay before you some neces- 
+sary instructions, that you may understand how to 
+walk aright in it, and continue and go forward therein 
+till you may be made perfect in Christ. 
+
+For the rirsr of these, the Holy Seriptures are 
+very large and clear, in directing us to this manner 
+of practice, and to continuance and growth therein. 
+And here it is useful for us to observe the great 
+variety of peculiar words and phrases whereby the 
+Holy Ghost teacheth this mystery, which many that 
+frequently read the Scriptures, yea, that pretend to 
+be preachers of the gospel, do little understand or 
+
+regard ; shewing thereby, that the things of the Spirit 
+of God are foolishness to them, and that they are not 
+yet acquainted with the form of sound words, and 
+are strangers to the very language of the gospel, 
+which they profess, and pretend to teach. I shall 
+therefore present to your view several of those pecu- 
+liar ae and phrases whereby this mysterious 
+manner of practice is expressed in the Holy Scrip- 
+tures, and commended to you as the only way for 
+the sure attainment of all holiness in heart and life, 
+I shall rank such of them together as agree in sense, 
+that the multitude of them may not breed confusion 
+in your thoughts. ‘ 
+
+Firstly, This is the manner of practice in Scripture, 
+which is expressed by living by faith;+ walking by 
+faith ;{ faith working by love;$ overcoming the 
+
+
+* John xiv, 5, + Hab. ii, 4, Gal. ii, 20. Heb. x, 38. 
+2 Cor. y, 7. § Gal. y, 6. ; 
+
+
+aw 
+
+
+Sh verse be” 
+
+
+Direct. XII. OF SANCTIFICATION. 213 
+
+
+world by faith ;* quenching all the fiery darts of the 
+wicked, by the shield of faith.t Some make no 
+more of living and walking by faith, than merely a 
+stirring up and encouraging ourselves to our duty by 
+such principles as we believe. Thus the Jews might 
+account that they lived by. faith, because they pro- 
+fessed and assented unto the doctrine of Moses and 
+the prophets, and were moyed thereby to a zeal of 
+God, though they sought righteousness not by faith, 
+but as it were by the works.of the law.}) Thus Paul 
+might think he lived by faith, while ke was a zealous 
+Pharisee; but afterwards he knew, that the life of 
+faith consisted in dying to the law, and living to God ; 
+and that not himself, but Christ lived in him.§ As it 
+is one and the same thing, to be justified by faith and 
+by Christ believed on;]|| so to live, walk, and work 
+
+* by faith, is all one with living, walking, working by 
+means of Christ, and his saving endowments; which 
+we receive and make use of by faith, to guide and 
+move ourselves to the practice of holiness. 
+
+Secondly, The same thing is commended to us by the 
+term of walling, rooted and built up in Christ ; living 
+to God, and not to ourselves, but to have Christ living 
+
+.in us ;¢ a good conversation in Christ ; ] pues on the 
+Lord Jesus Christ, that we may walk honestly as in 
+the day ;** being strong in the Lord, and in the 
+
+ower of his might ;ff doing all things in thename of 
+
+hrist ;{{ walking up and down in the name of the 
+Lord ;$§ going in the strength of the Lord; makin 
+mention of his righteousness, even of his only. 
+These phrases are frequent, and do sufficiently ex- 
+plain one another; and do shew, that we are to prac- 
+tise holiness, not only by virtue of Christ’s authority, 
+but also of his stengthening endowments moving us 
+and encouraging us thereunto, 
+
+
+- *] John v, 4. ¢ Eph. vi, 16. ft Rom. ix 32. § Gal. ii, 19, 20. 
+
+
+|| Rom. v, 1. {| Col. ii, 6, 7. ¢ Gal. ii, 19, 20. 
+(1 Pet. iii, 16. ** Rom. xiii, 13,14. ft Eph. vi, 10. {t Col. iii, 17. 
+
+
+§§ Zech. x, 12. ||| Psa. Ixxi, 16. 
+
+
+Be ge oe \\ 
+
+
+Bae aie r 
+COO a Ce Ae te ae eee 
+
+
+214 THE GOSPEL MYSTERY Direct, XII, 
+
+
+Thirdly, It is also signified by the phrases of being 
+strong in the grace that is in Christ Jesus ;* haying our 
+conversation in the world, not with fleshly wisdom, 
+but by the grace of God,t having or holding fast grace, 
+that we serve God acceptably, labouring abundantly, 
+in such a manner, as that the whole work is not per- 
+formed by us, but by the grace of God that is with 
+us.[ By grace therefore, we may well understand 
+the privileges of our new state given to us in Christ, 
+whereby we ought to be influenced and guided in the 
+performance of holy duties. 
+
+Fourthly, It also signified, when we are to put off the 
+old, and put on the new man; yea, to continue in so 
+doing, though we have done it in a measure already, 
+and that we avoid our former sinful conversation,§ and 
+to avoid sin, because we have put off the old, and put 
+onthe new man.|| Ihave already shewed, that by this 
+twofold man is not meant merely sin and holiness; 
+but by the former is meant our natural state, with all 
+its endowments, whereby we are furnished only to 
+the practice of sin; and by the latter, our new state 
+in Christ, that whereby we are furnished with all 
+means necessary for the practice of holiness, 
+
+Fifthly, We are to understand the same thing, when 
+we are taught not to walk after the flesh, but after the 
+Spirit, that we may be free from the law of sin, and 
+that the righteousness of the law may be fulfilled in 
+us;9 and through the Spirit, to mortify the deeds of 
+the body; and to be led. by the Spirit, because we 
+live by the Spirit, and have crucified the flesh, with 
+the affections and lusts.¢ The apostle doth shew by 
+these expressions, not only that we are to practise 
+holiness, but also by what means we may do it effec- 
+tually. By the flesh is meant our old nature derived 
+from the first Adam: and by the Spirit is meant the 
+Spirit of Christ, and that new nature which we haye 
+
+
+*2 Tim. ii, 1.~{2 Cor.i,12, $1 Cor. xv, 10. § Eph. iy, 21, 22, 24. - 
+{| Col. iti, 9, 14, { Rom. vii, 1, 3. @Gal. v, 24, — 
+
+
+ear Dl 
+
+
+Direct. XII. OF SANCTIFICATION. 215 
+
+
+by him dwelling in us. We are said to walk after 
+either of these natures, when we make the properties 
+or qualifications of either of them to be the princi- 
+ples of our practice. So when we are taught to serve 
+in newness of Spirit, and not in the oldness of the 
+letter, that so we may bring forth fruit unto God, 
+the meaning is, that we must endeavour to bring 
+forth the fruits of holiness, not by virtue of the law, 
+that killing letter, to which the flesh is married, and 
+by which the motions of sin are in us; but by virtue 
+of the Spirit, and his manifold riches, which we par- 
+take of in our new state, by a mystical marriage with 
+Christ ;* and by virtue of such principles as belong 
+to the new state declared in the gospel, whereby the 
+Holy Spirit is ministered to us, 
+
+Siathly, This is the manner of walking which the 
+apostle Paul directeth us unto, when he teacheth us by 
+his own example, that the continual work of our lives 
+should be, “‘ to know Christ, and the power of his re- 
+surrection, and the fellowship of his sufferings, being 
+made conformable to his death; if by any means we 
+may attain unto the resurrection of the dead, and to 
+inerease and press forward in this kind of know- 
+ledge.”’*+ Certainly, he meaneth such an experi- 
+mental knowledge of Christ, and his death and resur- 
+rection, as effectually makes us conformable thereunto, 
+in dying unto sin, and living unto God. And he 
+would hereby guide us, to make use of Christ, and 
+his death and resurrection, by faith, as the powerful 
+means of all holiness in heart and life; and to increase 
+in this manner of walking, until we attain unto per- 
+fection in Christ. 
+
+The szconp thing proposed was, to lay before you 
+some necessary instructions, that your steps may be 
+guided aright, to continue and go forward in this way 
+of holiness, until you be made perfect in Christ. 
+
+
+_ And, seeing we are naturally prone to mistake this 
+
+
+* Rom. vii, 4, 6. p + Phil. iii, 10, 12, 14. 
+
+
+216 THE GOSPEL MYSTERY Direct. XII. 
+
+
+way, and are utterly unable to find it out, or discern 
+it, by our own reason and understanding, we should 
+the more diligently attend to these instructions taken 
+out of the Holy Scriptures. And we should pray 
+earnestly, that God would give unto us the Spirit of 
+wisdom and revelation, that we may discern the way 
+of holiness thereby, and walk aright in it: according 
+to that gracious promise, ‘The wayfaring men, though 
+fools, shall not err therein.”* 
+
+Firstly, Let us observe and consider diligently in 
+our whole conversation, that though we are partakers 
+of anew holy state by faith in Christ, yet our na- 
+tural state doth remain, in a measure, with all its 
+corrupt principles and properties. As long as we live 
+in this present world, our apprehension of Christ, 
+and his perfection in this life, is only by faith ; whereas 
+by sense and reason, we may apprehend much in 
+ourselves contrary to Christ: and this faith is imper- 
+fect ; so that true believers have cause to pray to God 
+to help their unbelief.t Therefore, though we re- 
+ceive perfeet Christ by faith, yet the measure and 
+degree of enjoying him is imperfect, and we hope 
+still, so long as we are in this world, to enjoy him in 
+a highér degree of perfection, than we have done. 
+Weare yet but weak in Christ ;{ children in compa- 
+rison to the perfection we expect in another world ;§ 
+and we must grow still, until we come to the perfect 
+man ;|| and some are weaker babes than others, and 
+have received Christ in so small a measure, that the 
+may be accounted carnal rather than spiritual. And 
+because all the blessings and perfections of our new 
+state, as justification, the gift of the Spirit, and of the 
+holy nature, and the adoption of children, are seated 
+and treasured up in Christ, and joined with him in- 
+separably, we can receive them no further, than we 
+receive Christ himself by faith; which we do in an 
+
+
+* Isa. xxxv, 8. + Mark ix, 24. } 2 Cor. xiii, 4. 
+§ 1 Cor, xiii, 10, 11. | Eph. iy, 13. 4] 1 Cor. iii, 1. 
+
+
+oo 
+
+
+Direct. XT. OF SANCTIFICATION, 217 
+
+
+imperfect measure and degree in this life. The apostle 
+Paul proposeth himself as a pattern for all those that 
+are perfect in the truth of grace to imitate: and yet 
+he professeth, that he was not yet made so perfect in 
+the degree or measure of saving endowments, but that 
+he did still press forward towards the mark for the 
+Se of the high calling of God in Christ Jesus, la- 
+ouring still to apprehend and win Christ more per- 
+fectly, and to be found in him not having his own 
+righteousness, but that which is of God by faith ; and 
+to gain more experimental knowledge of Christ, and 
+of the fellowship of his sufferings, and the power of 
+his resurrection, being made conformable thereunto.* 
+Believers are justified already ; yet wait for the hope 
+of righteousness by faith, i.e. for the full enjoyment 
+_ of the righteousness of Christ.t They have received 
+but the first fruits of the Spirit, and must wait for a 
+more full enjoyment of it. The Spirit witnesseth 
+now to them, that they are the children of God ; and 
+-yet they groan within themselves, waiting for more 
+full enjoyment of adoption.}{ -Now, seeing the de- 
+gree and measure of our reception and enjoyment of 
+Christ, with all the blessings of our new state in him, 
+in this life, is imperfect, it followeth clearly, that our 
+contrary natural state, with its properties, remaineth 
+still in usin some degree, and is not perfectly abo- 
+lished ; so that all believers in this world do, in some 
+degree, partake of these two contrary states. Be- 
+lievers have indeed put off the old man, and put on 
+the new man, where Christ is all and in all;§ yet 
+_ they are to put the old man off and the new man on 
+more and more, because the old man remaineth still 
+inameasure. ‘They are said to be, not in the flesh, 
+but in the Spirit, because their being in the Spirit is 
+their best and lasting state; as denominations are 
+usually taken from the better part: but yet the flesh 
+
+
+* Phil, iii, 8, 10, 14. Gal, ¥, 5. { Rom, viii, 23. 
+, § Col. iii, 10, 11 
+} 7 7 ‘ 
+
+
+218 THE GOSPEL MYSTERY Direct. XII. 
+
+
+is in them, and they find work enough to mortify the 
+deeds of it.* Therefore several things which are con- 
+trary to cach other, are frequently attributed to be- 
+lievers in the Scripture, with respect to these two con- 
+trary states, wherein one place seems to contradict 
+another; and yet both are true in divers respects. 
+Thus holy Paul saith truly of himself, I live, yet not 
+I;+ because he did live to God by Christ living in 
+him: and yet, in another respect, according to his 
+natural state, he did not live to God. Again he pro- 
+fesseth, that he was carnal, sold under sin; and yet 
+on the contrary, that he allowed not sin, but hated 
+it. He sheweth how both these were true concern- 
+ing himself in divers Tie tas He saith, in me (that 
+is, in my flesh) dwelleth no good thing; and, I de- 
+light to do the will of God according to the inward 
+man. With the mind I myself serve the law of God ; 
+but, with the flesh, the law of sin.t John saith, He 
+that saith he hath no sin, deceiveth himself, and is a 
+liar ;§ and also that it is true, that whosoever is born 
+of God, doth not commit sin, for his seed, i. e. Christ’s, 
+the new spiritual nature, remaineth in him: and he 
+cannot sin, because he is born of God.|| It is true, 
+that we are weak and nothing, and yet strong and 
+able to do all things.{] It is true, that believers are 
+dead, because of sin ; but alive, because of righteous- 
+ness ;** and that when they die, by a natural death, 
+they shall never die.t+ They are sons that have the 
+inheritance by their birthright, and yet, in some re- 
+spects, may differ nothing from servants ; and so they 
+may be under the law, in a sense, and yet under 
+grace, and heirs, according to the free promise, at the 
+same time.{} They are redeemed from the curse of 
+the law, and have forgiveness of sins, and a promise, 
+that God will never be wroth with them, nor rebuke 
+
+
+* Rom. viii, 9, 13. + Gal. ii, 20. t Rom. vii, 14, 15, 18, 22, 25. 
+§1 John i, 8. || 1 John iii, 9. 4] 2 Cor. xii, 10, 11. Phil. iv, 13. 
+** Rom. viii, 10. tt John xi, 25, 26. tf Gal. iv, 1, 2. 
+
+
+1k la 4 Aine al alll a 
+
+
+Direct. XIT. OF SANCTIFICATION. 219 
+
+
+them any more;* and yet, on the contrary, the curse 
+written in the law is sometimes poured out upon 
+them ;+ and they have need still to pray, that God 
+would deliver them from their guiltiness, and forgive 
+their debts;{ and they may expect, that God will 
+punish them for all their iniquities.§ Those contrary 
+things asserted concerning believers in Scripture, do 
+sufficiently manifest, that they partake of two con- 
+trary states in this life. And this is a plain, easy, 
+and ready way to reconcile these seeming contradic- 
+tions, whatever other ways be used to reconcile some 
+of them, And what reason is there to question, that 
+the whole state that remaineth in believers in some 
+degrees, seeing all sound Protestants acknowledge, 
+that the sinful depravation and pollution of our na- 
+tures, commonly called original sin, which is one 
+
+rincipal part of the old state, doth remain in all as 
+ong as they live in this world? Now, though some 
+penal evils may be said to remain in us, yet we can- 
+not suppose that this original pollution is continued 
+in us as considered in‘Christ; but as considered in 
+our old state derived from the first Adam, There- 
+fore the first sin of Adam is imputed, in some respect, 
+even to those that are justified by faith ; and they re- 
+main, in a measure, as aforesaid, under the punish- 
+ment and curse denounced.|| “In the day thou eat- 
+est thereof, thou shalt surely die.” And, on this ac- 
+count, the same original guilt and pollution is propa- 
+gated to the children of believing parents, as well as 
+others, by natural generation. And, if such a great 
+and fundamental part of the natural state continue in 
+believers, as subjection to the guilt of the first sin and 
+original corruption, which is one great part of the 
+punishment and death threatened, and by which we 
+are prone and inclined to all actual sins ; why should 
+we not judge, that other parts of the same state do like- 
+
+
+i * Gal. ifi, 13. Eph. 1,7. Isa.liv,9. + Dan. ix, 11. 
+t Psu. li, 14, Matt. vi, 12. § Amos iii, 2. || Gen. if, 17. 
+
+
+220 ; THE GOSPEL MYSTERY. Direet. XII. 
+
+
+wise continue in them, as the guilt of their own actual 
+sins, and subjection to the wrath of God, and the 
+curses and punishments denounced against them in 
+the law? And why should we not judge, that all 
+the miseries of this life, and death itself, are inflicted 
+upon believers, at least in some respect, as punish- 
+ments of sin? It may be objected, hat a doctrine 
+of a twofold state of believers in this life, doth much 
+derogate from the perfection of our justification by 
+Christ, and from the fulness of all the grace and 
+spiritual blessings of Christ, and from the merits of 
+his death, and the power of his Spirit; and that it 
+greatly diminisheth the consolation of believers in 
+Christ. But it may be easily vindicated from this 
+objection, if we understand it rightly; for, notwith- 
+standing this twofold state, it still holdeth true, that 
+believers, while they are on earth, have all perfection 
+of spiritual blessings, justification, adoption, the gift 
+of the Spirit; holiness, eternal life and glory in and 
+with Christ.* In the person of Christ, who is now 
+in heaven, the old man is perfectly crucified: they 
+are dead to sin, and to the law and its curse, and the 
+
+are quickened together with him, and raised u with 
+him, and made to sit in heavenly places, in Christ.+ 
+And believers do, in their own persons receive and 
+enjoy by faith all these perfect spiritual blessings of 
+Christ, as far as they reccive and enjoy Christ himself 
+dwelling in them, and no further, Thus far they are 
+in a new state, free from the guilt, pollution and pun- 
+ishment of sin, and so from the wrath of God and all 
+miseries, and death itself, while they are in this 
+world; yea, all the guilt, pollution, and punishment 
+of sin, and all evils whatever, which they are subject 
+to according to their natural state, do them no harm 
+according to this new state, but work for their 
+good; and are no evils, but rather advantages to 
+them, tending to the destruction only of the flesh, 
+and to the perfection of the new man in Christ, Yet 
+
+
+* Eph, i, 3. + Eph. ii, 6. 
+
+
+Direct. XII. OF SANCYIFICATION, 221 
+
+
+it holdeth true also, that our reception and enjoyment 
+of Christ himself and all his perfections, is but in an 
+imperfect measure and degree; until faith be turned 
+into heavenly vision and fruition of Christ; and 
+therefore our old sinful state, with the evils thereof, 
+is not perfectly abolished during thislife. ‘The king- 
+dom of heayen, or the grace of Christ within us, is 
+like leaven in meal, which doth not unite itself per- 
+fectly to the meal in an instant, but _by degrees, until 
+the whole be leavened ;* or like the morning light, 
+that expelleth darkness by degrees; shining more and 
+more unto the perfect day.t This cannot be justly 
+accounted any derogation from the merit of Christ’s 
+death, or from the power of his Spirit, seeing Christ 
+never intended to bring to pass by his death, or by 
+the power of his Spirit, that we should enjoy his 
+spiritual blessings any further than we are in him, 
+and enjoy him by faith; or that we should be made 
+holy or happy according to the flesh, by a reforma- 
+tion of our natural state; as hath been shewed, 
+Neither doth this diminish the consolation of believers 
+in Christ: for thereby they may know, that they 
+_ have the perfection of grace and happiness in Christ, 
+and that they enjoy it in this world, as far as the 
+enjoy Christ himself by faith; and that they shall 
+enjoy it in a perfect measure, and be fully freed from 
+their sinful and miserable state, when that frame of 
+nature which they received from the first Adam is 
+dissolved by death. 
+
+This instruction is very useful to frame our souls 
+aright for the practising holiness only by those gos- 
+pel principles and means that belong to our new state, 
+which we are partakers of by faith in Christ. And 
+thus it is easily vindicated from another great objec- 
+tion, wherein the Papists and Quakers do much tri- 
+umph. They appeal to men’s consciences to answer 
+this question, Which doctrine is most likely to bring 
+
+
+* Matt. xiii, 33. + Prov. iv, 18, 
+
+
+eit’ F uy 
+an Bie > Pe 8 a 
+
+
+i aie 
+
+
+222 THE GOSPEL MYSTERY Direct. XE, 
+people to the practice of true godliness ; theirs, which 
+teacheth, That perfect holiness may be attained in 
+this life ; or ours, which teacheth, That it is impossi- 
+ble for us to keep the law perfectly, and to purge our- 
+selves from all sin, as long as we live in this world, 
+though we use our best endeavours? They think that 
+common reason will make the verdict pass for them 
+against our doctrine, as that which discourageth all 
+endeavours for perfection, and hardeneth the hearts 
+of people, to allow themselves in sin, because they 
+cannot avoid it. But, on the contrary, the doctrine 
+of Perfectionists hardens people, to allow themselves 
+in sin, and to call evil good; as the Papists account, 
+that the concupiscence of the flesh against the Spirit, 
+is no sin, but rather good matter for the exercise of 
+their virtues, because the most perfect in this life ave 
+not without it. It also discourageth those that labour 
+to get holiness in the right way, by faith in Christ, 
+and maketh them to think that they labour in vain, 
+because they find themselves still sinful, and far from 
+perfection, when they have done their best to attain 
+it. It hindercth our diligence in seeking holiness by 
+those principles and means whereby only it can be 
+found : for who will be diligent and watchful to avoid 
+walking according to his own carnal principles, if he 
+think, that his own carnal state, with its principles, 
+is quite abolished, and is out of him, so that at present 
+he is in no danger of walking according to them? 
+Whatsoever good works the doctrine of the Perfec- 
+tionist may serve to promote, I am sure it hindereth 
+a great part of that work which Christ would have us 
+to be employed in as long as we live in this world. 
+We must know, that our old state, with its evil prin- 
+ciples, continueth still in a measure, or else we shall 
+not be fit. for the great duties of confessing of sins, 
+loathing ourselves for them, praying ay for the 
+pardon of them, a just sorrowing for them with a 
+godly sorrow, accepting the punishment of our sins, 
+and giving God the glory of his justice, and offering 
+
+t Z | ; 
+
+
+je 
+
+
+5 
+
+
+Direct. XTI, OF SANCTIFICATION. 223 
+
+
+to him the sacrifice of a broken and contrite spirit, 
+being poor in spirit, working out our salvation with 
+fear and trembling. Some have doubted, how it can 
+consist with our justification by Christ, that we should 
+be still liable to be punished for our sins, and obliged 
+to pray for the pardon of them; because they. have 
+not well considered the twofold state of believers in 
+this life. And, except we know this, and keep it in 
+mind, we shall never be fit to practise continually the 
+great duties that tend to the putting off the old man, 
+and putting on the new man, and mortifying the deeds 
+of the body by the Spirit, praying continually, that 
+God would renew a right spirit in us, and sanctify us 
+throughout: pressing forward to perfection, desiring 
+the sincere mills of the word, and the enjoyment of 
+other ordinances, Christ hath appointed that his 
+church on earth should be employed in such works : 
+and Perfectionists either do, or fain would account them 
+needless for them, and that they have no longer need 
+of Christ himself, to be their spiritual physician and 
+advocate with the Father, and propitiation for their 
+sins; therefore they are not fit to be members of the 
+chureh on earth, and are never likely to be members 
+of the church in heaven, except they can make a lad- 
+der, and climb up thither before their time. 
+
+Secondly, Despair of purging the flesh or natural 
+
+
+‘man of its sinful lusts and inclinations, and of practis- 
+
+
+ing holiness, by your willing and resolving to do the 
+best that lieth in your own power, and trusting on 
+the grace of God and Christ, to help you in such re- 
+solutions and endeavours: rather resolve to trust on 
+Christ, to work in you to will and to do by his own 
+power, according to his own good pleasure. They 
+that are convineed of theit own sin and misery, do 
+
+
+commonly first think to tame the flesh, and to sub- 
+
+
+due and root out its lusts, and to make their corrupt 
+nature to be better natured, and inclined to holiness, 
+by their struggling and wrestling with it: and, if they 
+can but bring their hearts to a*full purpose and reso- 
+
+
+224 THE GOSPEL MYSTERY Direct. XII, 
+
+
+lution to do the best that lieth in them, they hope, 
+that, by sucha resolution, they shall be able to achieve 
+great enterprises in the conquest of their lusts, and 
+performance of the most difficult duties. It is the 
+great work of some zealous divines, in their preach- 
+ing and writings, to stir up people to this resolution, 
+~ wherein they place the chiefest turning point from 
+sin to godliness. And they think, that this is not 
+contrary to the life of faith, because they trust on the 
+grace of God through Christ, to help them in all such 
+resolutions and endeavours. Thus they endeavour to 
+reform their old state, and to be made perfect in the 
+flesh, instead of putting it off, and walking according 
+to the new state in Christ. They trust on low carnal 
+things for holiness, and upon the acts of their own 
+will, their purposes, resolutions, and endeayours, in- 
+stead of Christ; and they trust to Christ, to help 
+them in this carnal way: whereas true faith would 
+teach them, that they are nothing, and that they do 
+but labour in vain. ‘They may as well wash a black- 
+amoor white, as purge the flesh or natural man from 
+its evil lusts, and make it pure and holy. It is des- 
+ey wicked, past all cure. It will unavoidably 
+ust against the Spirit of God, even’ in the best saints 
+on earth.* Its mind is enmity to the law of God: 
+and neither is, nor can be subject to it.t They that 
+would cure it, and make it holy, by their own reso- 
+_lutions and endeavours, do act quite contrary to the 
+design of Christ’s death; for he died, not that the flesh, 
+or old natural man, might be made holy, but that 
+it might be crucified, and destroyed out of us ;{ and 
+that we might live to God, not to ourselves, or by any 
+natural power of our own resolutions or endeavours, 
+but by Eisrist living in us, and by his Spirit bringing 
+forth the fruits of righteousness in us.§ Therefore 
+we must be content to leave the natural man vile and 
+
+
+* Gal. v.17. + Rom. viii, 7. £ Rom, vi, 6. 
+§ Gal. ii, 20, and chap. Vv, 24, 25. 
+
+
+be P 
+’ Direct. XII, OF SANCTIFICATION, 225 
+
+
+wicked, as we found it, until it be utterly abolished 
+by death ; though we must not allow its wickedness, 
+but rather groan to be delivered from the body of 
+this death, thanking God that there is a deliverance 
+through Jesus Christ our Lord. Our way to mortify 
+sinful affections and lusts, must be, not by purging 
+them out of the flesh, but by putting off the flesh, 
+itself, and getting above into Christ by faith, and 
+walking in that new nature that_is by him. ‘Thus 
+“the way of life is above to the wise, that he may 
+depart from hell beneath.’’* Our willing, resolving, 
+and endeavouring, must be, to do the best, not that 
+lieth -in ourselves, or in our own power, but that 
+Christ and the power of his Spirit shall be pleased to 
+work in us: for in us, i. e. in our flesh, there dwell- 
+eth no good thing.t We have great ground to trust 
+in God and Christ for help in such resolutions and 
+endeayours after holiness, as in things that are agree- 
+able to the design of Christ in our redemption, and to 
+the way of acting and living by faith. It is likely, 
+that Peter sincerely resolved to die with Christ, ra- 
+ther than to deny him, and to do all that he could by 
+his own power for that end; but Christ. made him 
+quickly to see the weakness and vanity of such reso- 
+lutions, And we see by experience, what many re- 
+solutions, made in sickness and other dangers, mostly 
+come to. It is not enough for us to trust on Christ, 
+to help us to act and endeavour so far only as crea- 
+tures; for so the worst of men are helped: he is the 
+Jenovan, in whom they live, move, and have their 
+being.{ And it is likely the Pharisce would trust on 
+God, to help him in duty, as he would thank God, 
+for the performance of duty.§ And this is all the 
+faith that many make use of, in order to a holy prac- 
+tice. But we must trust on Christ, to enable us above 
+the strength of our own natural power, by virtue 
+of the new nature which we have in Christ, and by his 
+
+
+Prov. xv, 24. f Rom. vii, 18. { Acts xvii, 28, § Luke xviii, 11. 
+“7 : \) 
+
+
+_ 
+
+
+226 THE GOSPEL MYSTERY Direct, XII. 
+
+
+Spirit dwelling and working in us; or else our best 
+endeavours will be altogether sinful, and mere hypo- 
+crisy, notwithstanding all the help for which we trust 
+upon him. We must also take heed of depending for 
+holiness upon any resolution to walk in Christ, or an 
+written covenants, or any holiness that we have al- 
+ready received ; for we must know, that the virtue of 
+these things continues no longer than we continue 
+walking in Christ, and Christ in us. They must be 
+kept up by the continual presence of Christ in us; as 
+light is maintained by the presence of the sun, and 
+cannot subsist without it. 
+
+Thirdly, You must not seek to procure forgiveness 
+of sins, the favour of God, a new holy nature, life and 
+happiness, by any works of the moral law, or by any 
+rites and ceremonies whatever ; but rather you must. 
+work as those that have all these things already, ac- 
+cording to your new state in Christ, as such who are 
+only to receive them more and more by faith, as they 
+are ready prepared and treasured up for you, and 
+freely given to you, in your spiritual head, the Lord 
+Jesus Christ. If we walk as those that are yet wholly 
+to seek for the procurement of such enjoyments as 
+these, it is a manifest sign, that at present, we judge 
+ourselves to be without them, and without Christ 
+himself: in whose fulness they are all contained ; and 
+therefore we walk according to our old natural state, 
+as those that are yet in the flesh, and that would get 
+salvation in it, and py our carnal works and obser- 
+vances, instead of living altogether on Christ by faith. 
+
+_ This practice is according to the tenor of the covenant 
+of works; as I have before shewed. And we have no 
+ground to trust on Christ and his Spirit, to work holi- 
+ness in us this way ; for we are dead to the legal cove- 
+nant by the body of Christ ;* and, if we be led by the 
+Spirit, we are not under the law.t When the Gala- 
+tians were seduced, by false teachers, to seelx the pro- 
+
+
+* Rom. vii, 4. + Gal. v, 18. 
+
+
+eo ee Ate Dee aati Do 
+
+
+Direct. XII. OF SANCTIFICATION, 227 
+
+
+curement of justification and life by circumcision, and 
+other works of the Mosaical law, the apostle Paul re- 
+buketh them for seeking to be made perfect in the 
+flesh, directly contrary to their good beginning in the 
+
+
+_ Spirit, for rendering Christ of none effect to them, 
+
+
+i 
+
+
+and for falling from grace.* And when some of the 
+Colossians sought perfection in the like manner, by 
+observation of circumcision, holy means, holy times, 
+and other rudiments of the world, the same apostle 
+blameth them for not holding the head Jesus Christ, 
+and as such as were not dead and risen with Christ, 
+but living merely in the world.f He clearly sheweth, 
+that those who seek any saving enjoyments in such a 
+way, do walk according to their old natural state ; 
+and that the true manner of living by faith in Christ, 
+is, to wallc as those that have all fulness and perfee- 
+tion of spiritual blessings in Christ by faith, and need 
+not seek for them any other way to procure them for 
+themselves. In this sense, it is a true saying, That 
+believers should not act for life, but from life. They 
+must act as those that are not procuring life by their 
+works, but as such as have already received and de- 
+rived life from Christ, and act from the power and 
+virtue received from him. And hereby it appears, 
+that the Papists, and all others that think to justify, 
+purify, sanctify, and save themselves by any of their 
+own works, rites or ceremonies whatever, do wallc in - 
+
+
+_ acarnal way, as those that are without any present 
+
+
+interest in Christ, and shall never attain unto holiness 
+
+or happiness, until they learn a better way of reli- 
+ion, 
+
+_ Fourthly, Think not that you can effectually incline 
+
+your heart to the immediate practice of holiness, by 
+
+any such practical principles as do only serve to bind, 
+ress, and urge you to the performance of holy duties, 
+mut ‘rather let such principles stir you up to go to 
+
+
+Christ first by faith, that you may be effectually in- 
+
+
+% Gal. iii, 3, and v, 4. + Col. i, 19, 20, and ili, 1. 
+we 
+ra <4 \\ 
+
+
+Ve Wa ia 
+928 THE GOSPEL MYSTERY Direct. XTI. 
+' 
+
+
+clined to the immediate practice of holiness in him by 
+gospel principles that strengthen and enable you, as 
+well as oblige you thereunto. There are some prac- 
+tical principles that do only bind, press, and urge us 
+to ely duties, by shewing the reasonableness, equity, 
+and necessity of our obedience, without shewing at 
+all how we, that are by nature dead in sin, under the 
+wrath of God, may have any strength and ability for 
+the performance of them ; as for instance, the autho- 
+rity of God the law-giver, our absolute dependence 
+on him as our Creator, Preserver, Governor, in’ whose 
+hand is our life, breath, and all our happiness here 
+and for ever; his all-seeing eye, that searcheth our 
+heart, discerneth our very thoughts and secret pur- 
+poses ; his exact justice, in rendering to all according 
+to their works; his almighty and eternal power, to re- 
+ward those that ohey him, and to punish transgressors 
+for ever ; the unspeakable joy of heaven, and terrible — 
+damnation of hell. Such principles as these do bind 
+our consciences very strictly, and do work- very 
+strongly upon the prevalent affections of hope and 
+fear, to press and urge our hearts to the performance 
+of holy duties, if we believe them assuredly, and work 
+them earnestly upon our hearts, by frequent, serious, 
+lively meditations And therefore some account them 
+the most forcible and effectual means to form any vir- 
+tue in the soul, and to bring it to immediate perfor- 
+mance of any duty, though never so difficult ; and 
+that the life of faith consisteth principally in our liv- 
+ing to God in holiness, by a constant belief and medi- 
+tation on them, And they account those things that 
+serve to mind them of such principles, very effectual 
+for holiness ; as, looking on the picture of death, or 
+on a death’s head, keeping a coffin by them ready- 
+made, walking about among the graves, &c. But this 
+is not that manner of living to God whereof the apos- 
+tle speaketh, when he saith, “I live, yet not I, but ” 
+Christ liveth in me; and the life which I live in the — 
+flesh, I live hy the faith of the Son of God, who loved — 
+
+
+. me, and gave himself for me.* If a man make use of 
+
+
+these obliging principles, to stir him to go to Christ 
+
+
+for strength to act holily, he walketh like one that 
+
+
+hath received Christ as his only life by faith : other- 
+wise, he walketh like other natural men. For the 
+natural man may be brought to act by these prin- 
+ciples, partly by natural light, and more fully by 
+Scripture light, without any true knowledge of the 
+way of salvation by, Christ, and as if Christ had never 
+come into the world. And he may be strictly bound 
+by them, and vehemently urged and pressed to holy 
+duties ; and yet, all this while, is left to his own na- 
+tural strength, or rather weakness, being not assured 
+by any of these principles, that God will give him 
+strength to help him in the performance of these du- 
+ties; and can do nothing aright, until he get new life 
+
+
+and strength in Christ, if these principles were sufli- 
+
+
+cient to bring us-to a holy conversation. Therefore, 
+this manner of oat is no better than walking after 
+
+
+the flesh, according to our corrupt state, and a seel- 
+
+
+ing to be made perfect in the flesh. No question but 
+
+
+Paul was very diligent in it, while he was a blind 
+
+
+- Pharisee. Yea, the heathen philosophers might at- 
+
+
+tain to it, in some measure, by the light of common 
+reason. The devils have such principles, as they do 
+believe assuredly, yet they are never the better for 
+
+
+them. It is a part of that natural wisdom whereby 
+
+
+the world knew not God, not that wisdom of God 
+in a mystery, discovered in the gospel, which is the 
+only satisfying wisdom and power of God unto salva- 
+tion. What can you produce but corruption, by 
+pressing with motives to holiness, one that hath no 
+soundness in him, from the sole of the foot even to 
+the head, only wounds, and bruises, and putrifying 
+
+
+‘ sores. He that is made truly sensible of his own vile- 
+- ness and deadness, by nature, will despair of ever 
+
+
+bringing himself to holiness by principles that afford 
+‘no life and strength, but only lay an obligation 
+I 
+
+
+Ne * Gal. ii. 20. Wii, 
+
+
+280 THE GosPEL Mystury Direct, XII. 
+
+
+upon him, and urge and press him to duty. What 
+are mere obligations to one that is dead in sin? while 
+the soul is without spiritual life, sin is the more moved 
+and enraged, by pressing and urging upon the soul 
+the obligations of the law and its commands, The 
+motions of sin are by the law; and sin taking occasion . 
+by the commandment, worketh in us all manner of 
+concupiscence.* And yet these obliging principles 
+are very good and excellent in this right gospel use of 
+them : as the apostle saith of the law, that it is good, 
+ifit be used lawfully.t The humbled sinner knoweth 
+well his obligations ; but it is life and strength that 
+he wanteth, and despaireth of walling according to 
+such obligations, until he get this life and strength by 
+faith in Christ. Therefore, these obliging principles 
+do move him to go, in the first place, to Christ, that 
+so he may be enabled to answer their end, by the 
+strengthening and enlivening principles of God’s grace 
+in Christ. Some there are that make use of gospel- 
+principles, only to oblige and urge to duty, without 
+affording any life and strength for the performance ; 
+as they think that Christ died and rose ‘again to es- 
+tablish a new covenant of works for our salvation, 
+and to give usa pattern of good works by his own 
+obedience, rather than to purchase life, obedience, 
+and good works for us. Such as these do not under- 
+
+
+Direct. XIT, OF SANCTIFICATION. 231 
+
+
+him ; under the curse of the law, the power of sin 
+and satan; having no better portion than this present 
+world ; no better strength than that which is in the 
+purposes and resolutions of your own free will, While 
+such thoughts as these prevail, and influence your 
+actings, it is evident that you walk according to the 
+principles and practices of your old natural state; and 
+you will be moved thereby to yield to the dominion 
+of sin and satan, to withdraw yourselves from God and 
+godliness, as Adam was moved, from the sight of his 
+own nakedness, to hide himself from God.* There- 
+fore, your way to a holy practice is first to conquer 
+and expel such unbelieving thoughts, by trusting 
+confidently on Christ, and Peponding yourselves by 
+faith, that his righteousness, Spirit, glory, and all his 
+spiritual benefits are yours ; and that he dwelleth in 
+you and you in him, In the might of this confi- 
+dence, you shall go forth to the performance of the 
+law ; and you will be strong against sin and satan, 
+
+
+and able to dojall things through Christ . that 
+
+
+strengthens you. {This confident persuasion is of 
+
+
+great necessity to the right framing and disposing 
+
+
+LS». 
+aa 
+
+
+our hearts to walk according to our new state in 
+Christ. The life of faith principally consisteth in 
+it. And herein it eminently appeareth, that faith is 
+a hand, not only to receive Christ, but also to work 
+by him ; and that it cannot be effectual for our sanc- 
+tification, except it contain in it some assurance of our 
+interest in Christ, as hath been shewed. Thus we 
+act as those that are above the sphere of nature, ad- 
+vanced to union and fellowship with Christ. The 
+apostle maintained in his heart a persuasion that Christ 
+had loved him, and given himself for him, and thereby 
+he was enabled to live to God in holiness, through 
+Christ living in him by pet He teacheth us also 
+
+
+~ that: we must maintain the like persuasion, if we 
+
+
+would walk holily in Christ. We must know, that 
+our old man is crucified with him; and we must 
+
+
+aces * Gen. ili, 10. 
+
+
+232 THE GOSPEL MYSTERY Direct. XII, 
+
+
+reckon ourselves dead indeed unto sin, and alive unto 
+God through Jesus Christ our Lord.* This is the 
+means whereby we may be filled with the Spirit, 
+strong in the Lord, and in the power of his might ; 
+which God would not require of us, if he had not ap- 
+pointed the means.t Christ himself walked in a con- 
+stant persuasion of his excellent state ; he set the 
+Lord always before him, and was persuaded that, be- 
+cause God was at his right hand, he should not be 
+moved.{ How should it be rationally expected, that 
+a man should act according to this new state, without 
+assurance that he isin it? It is a rule of common 
+prudence in all worldly callings and conditions, that 
+every one must know and well consider his own state 
+lest he should act proudly above it, or sordidly below 
+it. And it isa hard thing to bring some to a right 
+estimate of their own worldly condition. If the same 
+rule were observed in spiritual things, doubtless the 
+knowledge and persuasion of the glory and excellency 
+of our new state in Christ, would more elevate the 
+hearts of believers above all sordid slavery to their 
+lusts, and enlarge them to run cheerfully the ways of 
+God’s commandments. If Christians knew their own 
+strength better, they would enterprise greater things 
+for the glory of God. But this knowledge is diffi- 
+cultly attained: it is only by faith and spiritual illu- 
+minations. The best know but in part; and hence 1% 
+is, that the conversation of believers falleth so much 
+below their holy and heavenly calling. 
+
+Siaxthly, Consider what endowments, privileges, or 
+properties of your new state, are most meet and 
+_ forcible to incline and strengthen your heart to love 
+
+
+God above all, and to renounce all sin, and to give up ~ 
+
+
+yourself to universal obedience to his commands; and 
+strive to walk in the persuasion of them, that you 
+may attain to the practice of these great duties. I 
+may well join these together, because, to love the 
+
+
+* Rom. vi, 6,11, Eph, vi,20. + Peal. xvi, 8. 
+
+
+; bk as 
+* ‘ ’ 
+Direct. XIT. —_ oF Sancrrricatton. - 938 
+
+
+Lord with all our hearts, might, and soul, is the first 
+and great commandment, which influenceth us to all 
+obedience, with a hatred and detestation of all sin, as 
+it is contrary and hateful to God. The same effec- 
+tual means that produceth the one, will also produce 
+the other; and holiness chiefly consisteth in these. 
+So the chief blessings of our holy state are most meet 
+and forcible to enable us for the immediate perform- 
+ance of them, and are to be made use of to this end \ 
+by faith. Particularly, you must believe steadfastly, 
+that all your sins are blotted out, and that you are 
+- reconciled to God, and have access into his favour by 
+the blood of Christ, and that he is your God and 
+_ Father, and altogether love to you, and your all- 
+sufficient everlasting portion and happiness through 
+-Christ. Such apprehensions as these, do present 
+God as a very lovely object to our hearts, and do 
+thereby allure and win our affections, that cannot be 
+forced by commands or threatenings, but must be 
+sweetly won and drawn by allurements. We must 
+_ not harbour any suspicions, that God will prove a 
+terrible, everlasting enemy to us, if we would love 
+him; for there is no fear in love; but perfect love 
+casteth out fear, because fear hath torment ; he that ‘ 
+feareth is not made perfect in love. We love him, 
+because he first loved us.* David loved the Lord, 
+because he was persuaded, that he was his strength, 
+rock, fortress, his God, and the horn of his salvation. 
+Love that causeth obedience unto the law, must pro- 
+ceed from a good conscience purged’ from sin; and 
+_ this good conscience must proceed from faith un- 
+feigned, whereby we apprehend the remission of our 
+sins, our reconciliation with God by the merits of the 
+_ blood of Christ. For the same end, that your hearts 
+may be rightly fitted and framed for the performance 
+of these principal duties, the Holy Scripture directeth : 
+you to walk in the persuasion of other principal en- 
+
+
+> 4 . 
+piv, 18,19. + Psal. xviii,J,2. $1 Tim.i, 5. Heb. ix, 14, 
+LATS SSR oY -AESCE atOeP ee  e 
+
+
+284 THE GOSPEL MYSTERY Direct. X11, 
+
+
+dowments of your new state: as that you have fel- 
+lowship with the Father, and with his Son Jesus 
+Christ ;* that you are the temple of the living God ;t 
+that you live by the Spirit ;+ that you are called to 
+holiness, and created in Christ Jesus unto good 
+works; that God will sanctify you wholly, and make 
+you perfect in holiness at the last;§ that your old 
+man is crucified with Christ; and through him you 
+are dead unto sin, and alive unto God: and being 
+made free from sin, you are become the servants of 
+righteousness, and have your fruit unto holiness, and 
+the end everlasting life ;{] ye are dead, and your life 
+is hid with Christ in God. When Christ who is your 
+life shall appear, then shall ye also appear with him 
+in glory.4 Such persuasions as these, when they are 
+deeply rooted and constantly maintained in our 
+hearts, do strongly arm and encourage us to practise 
+universal obedience,, in opposition to every sinful 
+lust ; because we look upon it, not only as our duty, 
+but our great privilege, to do all things through 
+Christ strengthening us: and God doth certainly 
+work in us both to will and to do by these prinei- 
+wee because they properly belong to the gospel, or 
+ew ‘T'estament, which is the ministration of the 
+Spirit, and the power of God unto ype 
+Seventhly, Wor the performance of other duties of 
+the law, you are to consider, not only these endow- 
+ments, privileges, and properties of your new state, 
+which are meet and foreible to enable you to the love 
+of God, and universal obedience, but also those that 
+have a peculiar force and aptitude suitable to the 
+special nature of such duties: and you must endea- 
+vour to assure yourselves of them by faith, that you 
+may be encouraged and strengthened to perform the 
+duties. I shall give you some instances of this man- 
+
+
+*)Johni,3. +2Cor.vi,16. tGal.y,25. §1 Thess, y, 23.” 
+Eph, ji, 10. || Rom. vi, 22, f Col. iii, 3,4, [2 Cor. iii, 6,8. 
+Rom. i, 16. ¢ pl a 
+
+
+ie oe 
+
+
+es 
+Direct. ATI, OF SANCTIFICATION, 235 
+
+
+ner of practice in several duties, whereby you may 
+the better understand how to guide yourselves in the 
+rest. And, as to the duties of the first table, if you 
+would draw near to God in a duty of his worship 
+with a true heart, you must do it in full assurance of 
+faith concerning your enjoyment of Christ, and his 
+salvation. And would you perform the great duty 
+of trusting on the Lord with all your heart, casting 
+your care upon him, and committing the disposal of 
+yourself to him in all you~ concerns, persuade your- 
+self, through Christ, that God, according to his pro- 
+mise, will never fail you, nor forsake you; that he 
+taketh a fatherly care of you, that he will withhold 
+
+
+no good thing from you; and will make all things to — 
+
+
+work for your good. And thus you will be strong 
+
+
+and courageous in the practice of this duty : whereas, . 
+
+
+‘if you live in a mere suspense concerning your inte- 
+rest in the privileges, you will be subject to carnal 
+fears, and carking cares, in despite of your heart ; and 
+you will be prone to trust on the arm of flesh, though 
+your conscience tell you plainly, that, in so doing, 
+rh incur the heinous guilt of idolatry. Would you 
+
+e strengthened to submit to the hand of God with a 
+cheerful patience, in bearing any affliction, and death 
+itself; the way to fortify yourselves, is, to believe 
+assuredly, that your afflictions, which are but for a 
+moment, do work for you a far more exceeding and 
+eternal weight of glory ; that Christ is your gain in 
+death and ‘life: that his grace is stifficient for you, 
+and his strength made perfect in your weakness; and 
+that he will not suffer you to be tempted above that 
+you are able; and will at last make you more than 
+
+conquerors over all evil. Until you attain to such 
+persuasions as these, you\will be prone to fret and 
+murmur under the burden of affliction, and to use 
+indirect means to deliver yourselves, notwithstanding 
+
+e clearest convictions to the contrary. Would you 
+
+it yourselves to the observations of God’s own in- 
+
+8 in, 
+
+
+ee 
+
+
+\} 
+
+
+his worship, believe that you are com- 
+
+
+5 eb AP 5 
+bg “das ; - 
+s « aed 
+
+
+236 THE GOSPEL Mystery Direct. XII. 
+
+
+plete in Christ, and have all perfection of spiritual 
+blessings in him; and that God will build you up in 
+Christ by the ordinances of his own appointment, 
+This will make you account his ordinances sufficient, 
+and mens traditions and inventions needless in the 
+worship of God: whereas, if you do not ens 
+all fulness in Christ, you will be like the Papists, 
+prone to catch at every straw, and to multiply super- 
+stitious observations without end, for the supply of 
+your spiritual wants. Would you confess your sins 
+to God? pray to him, and praise him heartily for his 
+benefits; would you praise him for affliction, as well 
+as prosperity? believe assuredly that God is faithful 
+and just to forgive your sin through Christ; that you 
+are made a holy priesthood, to offer spiritual sacri- 
+fices of prayer and praises, that are acceptable to God 
+through Christ: and that God heareth your prayers, 
+and will fulfil them, so far as they are good for you; 
+and that all God’s ways are mercy and truth toward 
+you, whether he prosper or afflict you in this life. 
+If you be altogether in doubt, or otherwise persuaded, 
+concerning these privileges, all your confessions, 
+prayers, and praises, will be but heartless lip-labours, 
+slavish or pharisaical works, In.like manner, you 
+will be enabled to hear and receive the word as the 
+word of God, and to meditate on it with delight ; and 
+you will be willing to know the strictness and spiri- 
+twality of the commands of God, and to try and ex- 
+amine your ways impartially by them, if you believe 
+assuredly, that the word is the power of God unto 
+salvation; and that Christ is your great physician, 
+willing and able to heal you, be the case never so bad ; 
+and, where your sin abounds, his grace towards you 
+doth so much the more abound: whereas, without 
+these comfortable apprehensions, all the works of 
+hearing, meditation, self-examination, will be but un- 
+couth heartless works, and they will be performed 
+negligently, and by halves, or hypocritically, and out 
+- of slavish fear, with much reluctancy, without any — 
+
+
+ere air Le 
+
+
+a , 
+
+
+Direct, XIT. OF SANCTIFICATION. 237 
+
+
+good will, or readiness of mind. So also, for the right 
+receiving the sacraments, you will find yourselves 
+much strengthened by believing, that you may have 
+communion with God and Christ in them, and that 
+you have a great High Priest, to bear the iniquity of 
+your holy things, and to make you for ever accepted 
+hefore the Lord. 
+In the same way, you are to apply yourselves to 
+all duties towards your neighbour, required in the 
+second table of the ie by. acting in a persuasion of 
+such privileges of your new estate as have a peculiar 
+force to encourage and strengthen you for the per- 
+formance of them. That you may tek your neigh- 
+bour as yourself, and do to him in all things as you 
+would he should do to you, without partiality and 
+self-seeking ; that you may give him his due honour, 
+and abstain from injuring him in his life, chastity, 
+worldly estate, good name, or from coveting anything 
+that is his, according to several commands in the se- 
+cond table of the decalogue; you must walk ina 
+persuasion, not only that these things are just and 
+equitable toward your fellow-creatures, and that you 
+are strictly bound to the performance of them; but 
+that they are the will of your heavenly Father, who 
+hath begotten you according to his own image in 
+righteousness and true holiness, and hath given you 
+his Spirit, that you may be like-minded to him in all 
+things; and that they are the mind of Christ, who 
+dwelleth in you, and you in him ; that God and Christ 
+are kind, tender hearted, long-suffering, full of good- 
+ness to men, whether good or bad, friends or enemies, 
+poor or rich; and that Christ came into the world, 
+not to destroy, but to save, and that you are of the 
+
+same Spirit; that the injuries done to you by your 
+- neighbours, can do you no harm; and you need not 
+_ seek any good for yourselves by injuring them, be- 
+_ cause you have all desirable happiness in Christ ; and 
+all things, though intended by your enemies for hurt, 
+rtain rk for your good through Christ. Such 
+
+
+‘ 
+
+
+x 
+
+
+28 THE GOSPEL Mystery - Direct. XII. 
+
+
+apprehensions as these, wrought in us by the spirit 
+of faith, do certainly beget in us a right frame of spirit, 
+thoroughly furnished for every good work towards 
+our neighbour. Likewise your hearts will be puri- 
+fied to unfeigned love of the brethren in Christ, and 
+you will walk toward them with all lowliness, meek- 
+ness, long-suffering, forbearing one another in love, 
+if you maintain a stedfast belief and persuasion of 
+those manifold bonds of love, whereby you are inse- 
+parably joined with them through Christ ; as particu- 
+larly, that there is one body, and one Spirit, one hope 
+of your calling, one Lord, one faith, one baptism, one 
+God and Father of all, who is above all, and through 
+all, and in you all. Finally,, you will be able to ab- 
+stainfrom all fleshly and worldly lusts, that war against 
+the soul, and hinder all godliness, by an assured persua- 
+sion, not merely, that gluttony, drunkenness, lechery, 
+are filthy swinish abominations; and that the -plea- 
+sures, profits, and honours of the world, are vain 
+empty things; but that you are crucified to the flesh 
+and the world, and quickened, raised, and sit in heay- 
+enly places together with Christ ; and that you have 
+pleasures, profits, and honours in Christ, to whicn the 
+best things in the world are not worthy to be com- 
+pared ; and that you are members of Christ, the temple 
+of his Spirit, citizens of heaven, children of the day, 
+not of the night, nor of darkness, so that it is below 
+your state and dignity to practise deeds of darkness, 
+and mind fleshly worldly things. Thus I have given 
+instances enough, to stir you up to acquaint your- 
+selves with the manifold endowments, privileges, pro- 
+perties of your new state in Christ, as they are disco- 
+vered in the gospel of your salvation, whereby the 
+new nature is fitted for holy operations; as the com- 
+mon nature of man is furnished with the endow- 
+ments necessary for those functions and operations to 
+which it is designed; and also to stir you up, to make 
+
+
+use of them by faith, as they serve to strengthen you ~ 
+
+
+j 
+
+
+either for universal obedience, or for particular duties 
+
+
+eT. OF SANCTIFICATION. 239 
+
+
+And, by this manner of walking, your hearts will be 
+comforted, and established in every good word and 
+work ; and you will grow in holiness, until you attain 
+to perfection in Jesus Christ. 
+
+Highthly, If you endeavour to grow in grace and 
+in all holiness, trust assuredly, that God will enable 
+you, by this manner of walking, to do everything 
+that is necessary for his glory, and your own ever- 
+lasting salyation; and that he will graciously accept 
+of that. obedience through.Christ which you are 
+enabled to perform according to the measure of your 
+faith, and pardon your failings, though you offend in 
+many things, and fall short of many others, as to de- 
+
+es Of holiness, and high acts of obedience. And 
+
+_ therefore attempt not the performance of duty in any 
+other way, though you cannot yet attain to do so 
+much as you would in this way, ‘This is a necessary 
+instruction to establish us in the life of faith, that the 
+sense of our manifold failings and defects may not 
+moye us either to despair, or to return to the use of 
+carnal principles and means, for help against our cor- 
+ruptions, as accounting this way of living and act- 
+ing by faith, to be insufficient for our sanctification 
+_ and salvation. The apostle Paul exhorts the Gala- 
+tians to wall in the Spirit, though the flesh lust 
+against the Spirit, so that they cannot do the things 
+that they would.* Weare to know, that though the 
+law requireth of us the utmost perfection of holiness, 
+yet the Cee te maketh an allowance for our weak- 
+- ness, and Christ is so meek and lowly in heart, that 
+he aecepteth of that which our weak faith can attain 
+_ to by his grace, and doth not exact or expect any 
+more of us for his glory and our salvation, until we 
+
+
+. 
+
+
+ence to his people under the Old Testament, that 
+
+Ricceiste law-giver suffered them, because of the hard- 
+
+085 0 their hearts, to put away their wives, though 
+tn 
+
+
+as 
+
+
+=x 
+
+
+row stronger in grace. God shewed his great indul-— 
+
+
+240 THE GOSPEL MystERY = Direct. XII, 
+from the beginning it was not so ;* and also in tolerating 
+the customary practice of polygamy. Though Christ 
+will not tolerate the continuance of such practices in 
+his church, since his Spirit is more plentifully poured 
+forth under the gospel; yet he is as forward as ever, 
+to bear with the failings of his weak saints, that de- 
+sire to obey him sincerely. We have another in- 
+stance of God’s indulgence, more full to our present 
+purpose, in his commanding, that the fearful and 
+‘aint-hearted should not be forced to enter into battle 
+against their enemies, but suffered to return home to 
+their houses; though fighting in battle against their 
+enemies, without fear and faint-heartedness, was a 
+duty that God did much exercise his people in at that 
+time.t So, under the gospel, though it be an emi- 
+nent part of Christ’s service, to endure the greatest 
+fight of afflictions, and death itself courageously, for 
+his name’s sake; yet if any be so weak in faith, that 
+they have not sufficient courage to venture into the 
+battle, no doubt but Christ alloweth them to make 
+use of any honest means, whereby they may escape 
+the hands of persecutors, with safety to their holy 
+profession. He will accept them in this weaker kind 
+of service, and will approve of them better, than if 
+they should hazard a denial of his name, by venturing 
+themselves upon the trial of martyrdom, when they 
+might have escaped it. Peter came off with sin and 
+shame, by venturing, beyond the measure of his faith, — 
+into the hands of his persecutors, when he went after 
+
+Christ to the High Priest’s hall; whereas he should 
+
+rather have made use of that indulgent dismission 
+
+that Christ gave to him and the rest of his disciples ; 
+
+Let these go their way.{ Christ dealeth with his 
+
+people as a good careful shepherd, that will not over- 
+
+drive his sheep: “ He will gather the lambs with his 
+
+arm, and carry them in his bosom, and shall gently — 
+lead those that are with young.”’§ He would not — 
+
+
+* Matt. xix, 3. + Deut, xx, 3, 8, ¢ John xvii 
+
+
+have his disciples urged rigorously upon the duty of 
+
+fasting when their spirits were unfit for it; because 
+he knew, that imposing duties above their strength, 
+is like putting a piece of new cloth into an old gar- 
+ment, and new wine into old bottles; which spoileth 
+all at last.* That prevept of Solomon, Be not 
+righteous overmuch,t is very useful and necessary, if 
+rightly understood. We are to beware of being too 
+rigorous in exacting righteousness of ourselves and 
+others, beyond the measure of faith and grace, Over- 
+
+
+~ doing commonly proveth undoing. Children that 
+
+
+7 
+
+
+venture on their feet beyond their strength, have 
+many a fall; and so have babes in Christ, when they 
+venture unnecessarily upon such duties as are beyond 
+the strength of their faith. We should be content, 
+at present, to do the best that we can, according to 
+the measure of the gift of Christ, though we know, 
+that others are enabled to do much better; and we 
+are not to despise the day of small things, but to 
+praise God, that he worketh in us anything that is 
+well pleasing in his sight, hoping that he will sanctify 
+us throughout, and bring us at last to perfection of 
+holiness through Jesus Christ our Lord. And we 
+
+
+should carefully observe, in all things, that good les- 
+
+
+son of the apostle, “not to think of ourselves more 
+highly than we ought to think; but to think soberly, 
+according as God hath dealt to every man the mea- 
+sure of faith.” + , 
+
+
+i _DIRECTION XIII. 
+
+Endeavour diligently to make the right use of all means appointed in 
+the word of God, for the obtaining and practising holiness, only in 
+
+_ this way of believing in Christ, and walking in him according to 
+
+your new state by faith. 
+
+
+_EXPLICATION.. 
+t have been added to the instructions in 
+
+
+242 THE GOSPEL MYSTERY Direct. XIII. 
+
+
+use is the same, to guide us in the mysterious manner 
+of practising holiness in Christ, by the life of faith; © 
+but the weight and comprehensiveness of it, maketh 
+it worthy to be treated of by itself, as a distinct 
+direction. Two things are observable in it. 
+
+Firsr, That though all holiness be effectually at- 
+tained by the life of faith in Christ, yet the use of 
+any means appointed in the word for attaining and 
+promoting holiness is not hereby made void, but 
+rather established. This is needful to be observed 
+against the pride and ignorance of some carnal gospel- 
+lers, who, being puffed up with a conceit of their 
+feigned faith, imagine themselves to be in such a state 
+of perfection, that they are above all ordinances ex- 
+cept singing hallelujahs ; and also against the Papists, 
+that run into the contrary extreme, by heaping to- 
+gether a multitude of means of holiness which God 
+never commanded, neither ever came they into his 
+heart, and that slander the Protestant doctrine of 
+faith, and free grace, as if it tended to destroy all dili- 
+gent use of the means of holiness and salvation, and 
+to breed up a company of ‘laxy Solifidians. We do 
+indeed assert and profess, that a true and lively faith 
+in Christ is alone sufficient and effectual, through the 
+
+race of God, to receive Christ and all his fullness, so 
+far as is necessary in this life, for our justification, 
+sanctification, and eternal salvation; but yet we also 
+assert, and profess, that several means are appointed 
+of God for the begetting, maintaining, and increasing 
+this faith, and the acting and exercising it, in order 
+to the attainment of its end; and that these means 
+~ are to be used dilligently, which are mentioned in the 
+sequel. True believers find by experience, that their 
+faith needeth such helps: and they that think them- 
+selves above any need of them, do reject the counsel 
+of God against themselves, like to those proud Phari-_ 
+sees and lawyers, that thought it a thing beneath — 
+them, and refused to be baptized of John.* Yet we — 
+
+
+f 
+
+
+Luke vii, 30. vin 
+
+
+a 
+jae: 
+= 
+
+
+Direct, XIII. OF SANCTIFICATION. 243 
+
+
+account no means necessary or lawful to be used for 
+the attainment of holiness, besides those that are ap- 
+pointed by God in his word. We know, that holi- 
+ness is a part of our salvation; and therefore they 
+that think men may or can invent any means effec- 
+tually for the attainment of it, do ascribe their salva- 
+tion partly to men, and rob God of his glory in being 
+our only Saviour; and they do thereby plainly shew, 
+that though they draw nigh unto God with their 
+mouth, and honour him with their lips; yet their 
+hearts are far from him. And in vain do they wor- 
+ship him, teaching for doctrines the commandments 
+of men.* 
+
+The seconp thing observable, and principally de- 
+signed, in this direction, is, the right manner of using 
+all the means of holiness, for the obtaining and practi- 
+sing it in no other way besides that of believing in 
+Christ, and walking in him according to our new state 
+by faith ; which hath been already demonstrated to be 
+the only way whereby we m2 effectually attain to 
+this great end. We must use them as helps to the life 
+of faith, in its beginning, continuance, and growth; 
+and as instruments subservient to faith, the principal 
+instrument in all it acts and exercises, whereby the 
+soul receiveth Christ, and walketh in all holiness by 
+him. We must beware, lest we use them rather in 
+nL esa than in subordination to the way of sanc- 
+tification and salvation by free grace in Christ through 
+
+faith; and lest, by our abuse of them, they be made 
+_ rather hinderances than helps to our faith. We must 
+_ not idolize any of the means, and put them into the 
+
+place of Christ, as the Papists do, by trusting in 
+them ; as if they were effectual to confer grace to the 
+soul, by the work that is done in the use of them. 
+
+Neither may we use them as works of righteousness, 
+_ to be performed as conditions for the procuring the 
+favour of God, and the salvation of Christ. Neither 
+
+
+i | * Matt. xv, 7, 9. 
+
+
+- 
+
+
+sy 
+
+
+Ly : * , . 
+244 THE GOSPEL MYSTERY Direct. XITI, 
+
+
+must they be accounted so absolutely necessary to 
+salvation, as if a true faith were void, and of none 
+effect, when we are debarred from the enjoyment of. 
+several of them. The Holy Scriptures, 4vith all the 
+means of grace appointed therein, are able to make 
+us wise unto salvation, no other way than by faith in 
+~ Jesus Christ.* And therefore our wise endeavour 
+must be, not to use them in any opposition to the 
+grace of God in Christ. For God’s ordinances are — 
+like the cherubims of glory, made with their faces 
+looking towards the mercy seat. They are made 
+to guide us to Christ for salvation by faith alone. 
+If any turn them to another use, it is a great viola- 
+tion of divine institutions; as if any sacrilegious 
+ee had presumed to turn the faces of the cheru- 
+ims from the mercy-seat some other way. This 
+right use of the means of grace, is a point wherein 
+many are ignorant, that use them with great zeal and 
+diligence; and thereby they do not only lose their 
+labour and the benefit of the means, but also they 
+wrest and pervert them to their own destruction, 
+The Jews, under the law of Moses, enjoyed many 
+more ordinances of divine worship than we do under 
+the gospel; but their table became their snare, and 
+they fell miserable from God and Christ because the 
+vail of ignorance was upon their hearts, that they 
+could not look to the nd of those ordinances, even to 
+the Lord Jesus Christ; and they sought not salvation 
+by faith, but by the ordinances, as works of righte- 
+ousness, and by other works of the law; for they stum- 
+bled at the stumbling stone.t That you may not stum- 
+ble and fall by the same pernicious error, I shall shew 
+eel how several of the principal means of — 
+oliness appointed in the word of God, are to be made . 
+use of in that right manner expressed in the direction, 
+Firstly, We must endeavour diligently toknow the ~ 
+word of God contained in the Holy Seripture, and to - 
+
+
+* 2 Tim. iii, 15. t Rom. ix, 31, 32, and x, 4, 5. 2 Cor. fii, 13, 14. 
+‘ aa 
+
+
+| tO peleNe | he re 
+
+
+Direct. XIII, OF SANCTIFICATION. 245 
+
+
+improve it to this end, that we may be made wise 
+unto salvation, throngh faith which is in Christ 
+Jesus.* Other means of salvation are necessary to 
+the more abundant well-being of our faith, and that 
+of our new state in Christ; but this is absolutely 
+necessary to the being thereof: because faith 
+cometh by hearing the word of God, and receiveth 
+Christ as manifested by the word; as I haye before 
+seeing Rahab the Canaanite was justified by faith, 
+
+efore she had any visible communioa with the 
+church, in any of God’s ordinances; yet not without 
+the word of God, even the same word, for substance, 
+which was written in the Scriptures, and was then 
+extant in the books of Moses; though that word was 
+not brought to her by any book of Holy Scripture, 
+nor by tie preaching of any holy minister, but by 
+the report of the Heathens.t But here our great 
+work must be, to get such a knowledge of the Word 
+as is necessary and sufficient to guide us in receiving 
+Christ, and walking in him by faith. You must not 
+
+
+be of their minds that think the knowledge of the 
+
+
+Ten Commandments to be sufficient to salvation, or 
+that would have mysteries to remain hid from the 
+understanding of the vulgar, and nothing to be 
+preached to them, but what they can readily assent 
+to, and receive by the light that is in all men; of which 
+mind, it may be, some ministers are, who unwittingly 
+agree with the Quakers in a fundamental of their 
+heresy. But you must endeavour chiefly to know 
+the mystery off the Father and the Son, as it is dis- 
+covered in the gospel, wherein are hid all the treasures 
+of wisdom and knowledge;{ which to know, is life 
+eternal; and the ignorance of it, is death eternal. 
+
+You must know, that Christ is the end of the law;| 
+
+
+and therefore you must endeavour to know the com- 
+‘mands of the law; not that you may be enabled, by 
+
+
+” 2 Tim, iii, 15. t Josh. ii, 9, 11. t Col. fi, 2, 3, 
+§ John xvii, 3. 2 Cor.iv,3. © || Rom x, 4, 
+x 2 
+
+
+\ 
+
+
+ta a s 
+
+
+Sa en oe 
+Che Sey 
+fee 
+
+
+" S eS ; 3 
+246 THE GOSPEL MYSTERY Direct. XIII, 
+
+
+that knowledge, to practise them immediately and so 
+to procure salvation by your works; but rather, by 
+your knowledge of them, you may be made sensible 
+of your inability to perform them, and of the enmity 
+that is in your heart against them, and the wrath 
+“that you are under for breaking them, and the 
+impossibility of being saved by your own works; 
+that so you may fly to Christ for refuge, and trust 
+only to the free grace of God for justification, and 
+strength to fulfil the law acceptably through Christ 
+in your conversation, And, for this end, you must 
+endeavour to learn the utmost strictness of the com- 
+mands, the exact perfection and_ spiritual purity 
+which they require, that you may be the more con- 
+vinced of sin, and stirred up to seek unto Christ for 
+remission of sin, for purity of heart, and spiritual 
+obedience, and be brought nearer to the enjoyment of 
+him; as Christ testified, that the Scribe, who under- 
+stood the greatness of that command of loving the 
+Lord with all the heart and soul, was not far from 
+the kingdom of God.* ‘The most effectual knowledge 
+for your salvation, is, to understand these two points; 
+the desperate sinfulness and misery of your own natu- 
+ral condition, and the alone sufficiency of the grace of 
+God in Christ for your salvation; that you may be 
+abased as to the fresh, and exalted in Christ alone. 
+And, for the better understanding these two main 
+points, you should learn how the first Adam was the 
+figure of the second ;+ how sin and death came upon 
+all the natural seed of the first Adam, by his disobe- 
+dience in eating the forbidden fruit, and how righ- 
+teousness and everlasting hfe come upon all the 
+spiritual seed of the second Adam, Jesus Christ, by 
+his obedience unto death, even the death of the cross. 
+You also should learn the true difference between 
+the two covenants, the old and the new, or the law 
+and the gospel: that the former shutteth us up under 
+
+
+* Matt. xii, 34. } Romy, 14, 
+
+
+~ 
+
+
+ww 
+
+
+Direct. XII. OF SANCTIFICATLON. 247 
+
+
+the guilt and power of sin, and the wrath of God and 
+his curse, by its rigorous terms, “Do all the com- 
+
+
+“mandments, and live ;” and, ‘ Cursed are you, if you 
+
+
+do them not, and fail in the least point;” the latter 
+openeth the gates of righteousness and life to all he- 
+believers sae is, the new covenant) by its gracious 
+terms, “ Believe in the Lord Jesus Christ, und live; 
+that is, All your sins shall be forgiven, and holiness 
+and glory shall be given to you freely by his merit 
+and Spirit.” Furthermore, you should learn the 
+gospel principles that you are to walk by, for the 
+attainment of holiness in Christ. And here I shall 
+mind you particularly, that you would be a good 
+proficient in Christain learning, if you get a good 
+understanding of the sixth and seventh chapters of 
+the apostle Paul to the Romans; where the powerful 
+principles of sanctification are purposely treated of, 
+and differenced from those weak and ineffectual prin- 
+ciples which we are most naturally prone to walk by. 
+I need not particularly commend any other points of 
+religion to your learning; for, if you get the know- 
+ledge of these principal points which I have men- 
+tioned, and improve it to a right end, which is, to live 
+and walk by faith in Christ, your-own renewed mind 
+will covet the knowledge of all other things that 
+appertain to life and godliness; and, if in anything 
+
+ou be otherwise minded than is according to saving 
+truth, God shall reveal even this unto you.* Yet let 
+me caution you, instead of gaining Christ by your 
+knowledge, you rather lose ‘him, By putting your 
+knowledge in the place of Christ and trusting to it 
+for your salvation. One cause of the Jews perishing 
+
+
+- was, that they rested in a form of knowledge, and of 
+
+
+the truth in the law.t And, doubtless, all that 
+
+
+_ many Christians will gain by their knowledge in the 
+
+
+aM 
+i 
+
+
+. 
+
+rit 
+
+ai? 
+, 
+
+
+end, will only be, to be beaten with more stripes; 
+because they place their religion and salvation chiefly 
+ee 
+
+
+* Phil, iii, 15, + Rom. ii, 20 
+
+
+sO See 
+
+
+248 THE GOSPEL MysTERY Direct. NUIT. 
+
+
+in the knowledge of their Lord’s will, and in their 
+ability to talk and dispute of it, without preparing 
+themselves to do according thereunto.* Much less 
+are you to place your religion, and hope of salvation, 
+in a daily task of reading chapters, or repeating ser- 
+mons, without understanding more than the Papists 
+do their lessons in the Latin Mass, and canonical 
+hours: as sad experience sheweth, that many seem- 
+ingly devout and frequent hearers of the word, do not- 
+withstanding, remain in lamentable and wonderful 
+ignorance of the saving truth. And in them is fulfill- 
+ed the prophecy of Esaias, “that, in hearing, they 
+shall hear and not understand: and, in seeing, they 
+shall see, &e.”+ 
+
+Secondly, Another means to be used diligently for 
+the promoting the life of faith, is examination of our 
+state and ways according to the word; whether we 
+be, at present, in a state of sin and wrath, or of grace 
+and salvation; that, if we be in a state of sin, we may 
+know our sickness, and come to the great. Physician, 
+while it is called to-day ; and, if we be ina state of 
+grace, we may know that we are of the truth, and 
+assure our hearts before God with the greater confi- 
+dence, by the testimony of a good conscience ;{ that 
+so our hearts may be more strongly comforted b 
+faith, and established in every good work, and that, 
+if our ways be evil, we may turn from them to the_ 
+Lord our God through Christ; without whom none 
+cometh to the Father.§ But your great care, in this 
+work of self-examination, must be, to perform it in 
+such a manner, that it may not hinder and destroy 
+that life of faith, as it doth in many, instead of pro- 
+moting it. Therefore beware, lest you trust upon 
+your self-examination, rather than upon Christ; as — 
+some do, that think they have made their peace with 
+God, merely because they have examined themselves 
+
+
+* Luke xii, 47. + Matt. xiii, 14, 15, $1 John iii, 19,2). | 
+§ Lam. ili, 40, John xiy, 6, a 
+
+
+7. F~ 3% . ai a hs rm — 
+
+
+f a id 
+
+
+Direct. XII. OF SANCTIFICATION. 249 
+
+
+upon their sick-bed, or before the receiving of the 
+Lord’s supper, though they haye themselves stark 
+naught, and do not depend on Christ, to make them 
+better, but their own deceitful purposes and resolu- 
+tions. Think not, that you must begin this work 
+with doubting whether God will extend merey to 
+you, and save you; and that you must leave this a 
+question wholly under debate, until you have found 
+out how to resolve it by self-examination. This isa 
+common and very pernicious error in the yery founda- 
+tion of this work, which is hereby Jaidin the great 
+sin of unbelief; which, as soon as it prevaileth, doth, . 
+by its great influence, dash and obscure all inward 
+gracious qualifications of peace, hope, joy, love to 
+God and his ‘people, before they be at ath tried, whe- 
+ther they can give any good evidence for their sal- 
+vation. And it makes people willing to think their 
+own qualifications better than they are, lest they 
+should fall into an utter despair of their salvation: 
+and thus it wholly marreth the good work of self- 
+examination, and maketh it destructive to our souls ; 
+for to them that are defiled and unbelieving, there is 
+nothing pure.* You should rather begin the work 
+with much assurance of faith, that though you may 
+at present find your heart never so wicked and repro- 
+bate, (as many of God’s choicest servants have found, ) 
+yet the door of mercy is open for you, and that God 
+will certainly save you for ever, if you put your trust 
+in his grace through Christ. I have formerly shewed, 
+that this confident persuasion is of the nature of say- 
+ing faith (and that we have sufficient ground for it in 
+the free promises of the porpel) when we walk in 
+darkness, and can see no light shining forth in our 
+gracious qualifications. If we begin the work with 
+this confidence, it will make us impartial and not 
+afraid to find out the worst of ourselves, and willing 
+to judge, that our hearts are deceitful above all things, 
+
+
+—* Tite i, 15, 
+
+
+« shone 5. 
+R } heer 
+
+
+ee | 
+eke 
+
+
+. 
+
+
+te 
+bh vena 4 ees 
+Ob ete Py eS ey ee ee ee 
+
+
+250 THE GOSPEL MystpRY Direct. XIII. 
+
+
+and desperately wicked, beyond what we can find 
+out.* And, if we have any holy qualifications, this 
+confidence will preserve them in their vigour and 
+brightness, that they may be able to give clear evi- 
+dence, that we are at present in a state of grace. 
+Mark well the difference between these two questions ; 
+Whether God will graciously accept and save me, 
+though a vile sinner, through Christ ; as before was 
+said? and, Whether I am already brought into a state 
+of salvation? The former of these, I say, is to be re- 
+solved affirmatively by a confident faith in Christ ; the 
+latter only is to be inquired into by self-examination. 
+Mis-spend not your time, as many do, in poring upon 
+your hearts to find whether you be good enough to 
+trust on Christ for your salvation, or to find whether 
+you have any faith, before you dare be so bold as to 
+act faith in Christ. But know, that though you can- 
+not find that you have any faith or holiness, yet, if 
+you will now believe on him that justifieth the un- 
+godly, it shall be accounted to you for righteousness.- 
+And, if you love Christ and your own soul, mis-spend 
+not your time in examining whether you have com- 
+mitted the unpardonable sin against the Holy Ghost, 
+except it be with a full purpose to assure yourself 
+more and more, that you are not guilty thereof ; for 
+any doubtfulness in this point, will but harden you 
+in unbelief. Remember well, that the question to be 
+resolved, is, whether you be at present in a state of 
+grace ? and, to resolve it, you must be willing to know 
+the best of yourself as well as the worst: and you 
+must not think, that humility bindeth you to over- 
+look your good qualifications, and to take notice only 
+of your corruptions. But your great work must be, 
+to find whether there be not some drop of saving grace 
+in the ocean of your corruption. And it will consist 
+well with humility, to take notice of, and own any 
+spark of true holiness that is in you; because the — 
+
+
+* Jer. xvii, 9. + Rom. iv, 5, 
+
+
+ee eye eo ay, “toy, bbe ae \ 7 
+
+
+Direct, XII. OF SANCTIFICATION, 351 
+
+
+praise and glory of it belongeth not to you, but to 
+God.* And you must try inherent grace by the 
+touchstone, not by the measure ; by its nature, not 
+its degree; not denying any lustings of the Spirit in 
+you, because of the strong lustings of the flesh against 
+the Spirit ; nor denying that you are spiritual in some 
+degree, and babes in Christ, because you find your- 
+selyes carnal in a more prevailing degree, and the old 
+man bigger than the new.t Especially, you are to 
+examine and prove, whether you be in the faith. 
+For, if you make sure of this, you make sure of all 
+the things that pertain to life and godliness; and, if 
+you joan of this, you will certainly doubt of the 
+truth of any other qualifications, and will suspect 
+them to be merely carnal and counterfeit ; because it 
+is a known truth, that to the unbelieving there is no- 
+thing pure, and that all that have not truly received 
+Christ by faith, are at present in an unregenerate 
+state, though they seem never so pure and godly.+ 
+And let not the issue of this trial depend at all upon 
+your knowledge of the time when, or of the sermon, 
+conference, or place of scripture, by which you were 
+first converted to the faith: though that is good to 
+know too, if it may be. And some who have former- 
+ly lived in gross ignorance, or in a manifest opposition 
+to true faith and holiness, may know such cireum- 
+stances of their conversion, and may reflect upon them 
+comfortably, as the apostle Paul did, who was turned 
+of a sudden, from his persecuting rage, to be a disciple 
+and an apostle of Christ ; yet others, sincere believers, 
+may be wholly nen of them, as John the Bap- 
+tist, who was filled with the Holy Ghost from his 
+mother’s womb ;§ and they that have been trained u 
+religiously, and know the Holy Scripture from their 
+childhood, as Timothy ;|| yea, and many that are first 
+turned from gross ignorancé and profaneness, to some ; 
+
+
+: “*® Phil, i, 1. + Gal. v, 17. 1 Cor. ii, 1. 
+«$2 Cor. xiii, 5. Titi,15. §Lukei,15, | 2 Tim. ili, 15. 
+
+
+~ 
+p 
+
+
+: ae 
+Mee lea 
+CE gO 
+
+
+5 ye, ac wks < 
+
+
+252 THE GOSPEL Mystery Direct. XIII. 
+
+
+external reformation, and then, in process of time, 
+brought nearer to the kingdom of heaven, by insensi- 
+ble degrees, before they be really new-begotten by 
+the spirit of faith. There are also some that deceive 
+their souls, by imagining they know at what time, 
+and by what text of Scripture, they were converted, 
+and can make large discourses of the workings of God 
+upon their hearts, and are prone to talk unséasonably, 
+with vain-glorying of their own experiences; when, 
+at last, all their experiences are not sufficient to evi- 
+dence, that they ever attained to the least measure of 
+true saving faith. 
+
+» Therefore, that we may not unjustly condemn or 
+justify our faith, by proceeding on insufficient eviden- 
+ces in its trial, our best way is, to examine itself by 
+the inseparable properties of a true saving faith, by. 
+putting to ourselves such questions as these: Are we 
+made thoroughly sensible of our sinfulness, and of the 
+deadness and misery of our natural state, so as to des- 
+aye! absolutely of ever attaining to any righteousness, 
+1oliness, or true happiness, while we continue in it? 
+Are the eyes of our understanding enlightened, to see 
+the excellency of Christ, and the alone sufficiency and 
+all-sufficiency of his grace for our salvation? Do we 
+prefer the enjoyment of him above all things, and de- 
+sire it with our whole heart, as our only happiness, 
+whatsoever we may suffer for his sake? Do we de- 
+sire with our whole heart, to be delivered from the 
+power and practice of sin, as well as from the wrath 
+of God, and the pains of hell? Do our hearts come 
+to Christ, and lay hold on him for salvation, by trust- 
+ing him only, and seer to trust on him con- 
+fidently, notwithstanding all fears and doubts that 
+assault us? If you find in yourself a faith that hath 
+these properties, though as small asa grain of mustard 
+seed, and opposed with much unbelief and manifold — 
+corruptionsin your soul, you may conclude, that you - 
+are ina state of salvation at present, and that your 
+remaining work is, to continue and grow in it more 
+
+
+Direct. XTIL, OF SANCTIFICATION, 258 
+
+
+and more, and to walk worthy of it. You should also 
+examine the fruits of your faith, and try whether 
+you can shew your faith by your works, as you are 
+taught ;* that you may be sure not to be deceived in 
+your judgment concerning it. And though it be 
+true, as I have noted, that doubts concerning your 
+faith will breed doubting concerning the sincerity of 
+other qualifications that are fruits thereof; yet pos- 
+sibly you may get such clear evidences of your sin- 
+cerity, as may overcome and. expel all your doubts. 
+And here you are not only to inquire, whether your 
+inclinations, purposes, affections, and actions, be ma- 
+terially good and holy; but also, by what principles 
+they are bred and influenced; whether it be by sla- 
+vish fears of hell, and mercenary hopes of getting 
+heaven by your works, which are legal and carnal 
+principles that can never breed true holiness; or by 
+gospel-principles, as by love to God, because God hath 
+loved you first, and to Christ, because he hath died ; 
+and by the hope of eternal life, as the free gift of God 
+through Christ, and dependence on God, to sanctify 
+you by his Spirit according to his promises. Remem- 
+ber, that the New Testament is the ministration of 
+the Spirit ;f and the Spirit will sanctify us, not by 
+legal, but by gospel principles. Take notice farther, 
+that you need not trouble yourself to find out a mul- 
+titude of marks and 2 of true grace, if you can 
+find a few good ones. Particularly, you may know, 
+that you are passed from death to life, if you love the 
+brethren.{ That is, if you love all whom you can 
+in charity judge to be true believers, and that because 
+they are true Believers, and for the truth’s sake that 
+dwelleth in them. As Solomon discerned the true 
+mother of the child, by her affection towards her child, 
+so the mother-grace of faith may be discerned by the 
+love that it breeds in us towards all true believers. 
+‘To conclude this point, happy are you if yon can find 
+
+
+* Jam. ii, 18. 2 Cor. iff, 6. £1 Jobn iii, 14, 
+
+
+~ 
+
+
+i ii TET iS Gitte Sal 
+
+
+‘ 
+
+
+254 THE GOSPEL MysteRY Direct, XIII. 
+
+
+so much evidence of the fruits of your faith as may 
+enable you to express your sincerity in these mode- 
+rate terms, “ Pray for us: for we trust we have a good 
+conscience, in all things willing to live honestly.”* 
+Thirdly, Meditation on the word of God is of very 
+great use and advantage for the attainment and prac- 
+tice of holiness through faith in Christ. It is a duty - 
+whereby the soul doth feed and ruminate upon the 
+word as its spiritual food, and digesteth it, and turneth 
+it into nourishment, whereby we are strengthened for 
+every good work. Our souls are satisfied therewith, 
+as with marrow and fatness, when we remember God 
+upon our beds, and meditate on him in the night- 
+watches.t The new nature may well be called the 
+mind,{ because it liveth and acteth by minding and 
+meditating on spiritual things. Therefore it isa duty 
+to be practised, not only at-some limited times, but 
+all the day ;§ yea, day and night;|| even in our ordi- 
+nary employments at home and abroad. An habitual 
+knowledge of the world will not profit us, without an 
+active minding it by frequent meditation. Some 
+think that much preaching of the word is not needful, 
+where a people are already brought to the knowledge — 
+of those things that are necessary to salvation. But — 
+they that are regenerated by the word, find by expe- — 
+rience, that their spiritual life is maintained and in- — 
+creased by often minding the same word: and therefore — 
+as new-born babes, they desire the sincere milk of the — 
+word that they may grow thereby,4 and would by ~ 
+the preachers be put often inremembrance of the same — 
+things, that they may feed upon them by meditation, — 
+though they know them already, and are established ’ 
+in the present truth.[| But here our greatest skill i 
+and chiefest concernment lies, in practising this duty — 
+in such a manner, as that it may be subservient, and — 
+not at all opposite to the life of faith. We must not 
+rely upon the performance of a daily task of meditatior 
+
+
+* Heb. xiii, 18, t Psal. Ixiii, 5, 6. } Rom. vii, 25. 
+$ Psal. cxix, 97. | Psat. i,-2.  APetniya ] 2 Pet. i, 125 
+
+
+bo 
+
+
+Direct. XIII, —_ oF SANCTIFICATION. 255 
+as a work of righteousness for the procurement of the 
+favour of God, instead of relying on the righteousness 
+of Christ ; as indeed we are prone to do, to catch at any 
+straw rather than to trust only to the free grace of 
+God in Christ for our salvation, And the end of our 
+meditation must not be mere speculation and know- 
+ledge of the truth, but rather the vigorous pressing it 
+upon our consciences, and the stirring up our hearts 
+and affections to the practice of it, And in stirring 
+up ourselyes to holy practice, we must warily observe 
+how far the several parts of the truth of God are 
+powerful and effectual for the attainment of this end, 
+that we may make use of them accordingly. We must 
+not imagine, as too many do, yea and some great mas- 
+ters in the art of meditation, that we can bring our 
+hearts effectually to the love of God and holiness, and 
+can work strange alterations, and frame in our hearts 
+any holy qualifications or virtue, merely by working 
+in ourselves strong apprehensions of God’s eterna 
+power and Godhead, his sovereign authority, omni- 
+science, perfect holiness, exact justice, the equity of 
+his law, and reasonableness of our obedience to it; the 
+unspeakable happiness prepared for the godly, and 
+misery for the wicked, to all eternity. Meditation on 
+such things as these, is indeed very useful to press 
+upon our consciences the strictness of our obligation 
+to holy duties, and to move us to go by faith to Christ 
+for life and strength to perform them, But, that we 
+may receive this life and strength,-whereby we are 
+enabled for immediate performance, we must meditate 
+isin d on Christ’s saving benefits, as they are 
+discovered in the gospel; which is the only doctrine 
+which is the power of God to our salvation, and 
+whereby the quickening spirit is ministered to us, and 
+‘that is able to build us up, and give us an inheritance 
+_ among all them which are sanctified.* You must 
+take special care to act faith in your meditation ; mix 
+
+
+* “8 i, 16. 2 Cor. iii, 6, Acts xx, 82. 
+
+
+Lian} 
+ee 
+
+
+. y? » ae 
+
+
+~ . Fad 
+
+
+256 THE GospEL MystERY Direct. XIII. 
+
+
+the word of God’s grace with it, or else it will not 
+profit you.* And, if you set the loving kindness of 
+God frequently before your eyes, by meditating on it 
+believingly, you will be strengthened to walk in the 
+truth ;f and by beholding, as in a glass, the glory of 
+the Lord, you will be changed into the same image, 
+from glory to glory, even as by the Spirit of the 
+Lord.{ This kind of meditation is sweet and delight- 
+ful to those that are guided to.it by the nie of faith, 
+and it needs not the help of stich artificial methods as 
+the vulgar cannot easily learn, You may let your 
+thoughts run in at liberty, without confining them to 
+any rules of method. You will find your souls much 
+enlivened by it, and enriched with the grace of God ; 
+which cannot be effected by any other kind of medi- 
+tation, though it be never so methodical and curiously 
+framed according to the rules of art. 
+Fourthly, The sacrament of Baptism must needs he 
+of great use to promote the life of faith, if it be made 
+use of according to its nature and institution, because 
+it is aseal of the righteousness of faith, as circumcision 
+was formerly.§ But then we must take heed of mak- 
+ing it a seal of the contrary righteousness of works, 
+as the carnal Jews did, that sought to be justified by 
+the law of Moses; and as many Christians do, that 
+transform the new covenant into a new covenant of 
+works, requiring sincere obedience to all the laws of 
+Christ, as the condition of our justification ; into 
+which new devised covenant they,think themselves to 
+be entered by their baptism. I may say of baptism, 
+thus perverted and abused, as the apostle saith of cir- 
+cumeision, baptism verily profiteth if thon keep the 
+law ; but if thou be a breaker of the law, thy baptism 
+is made no eeiiael If thou be baptised, so long as 
+thou continuest in the abuse of that holy ordinance, 
+Christ shall profit you nothing; Christ has become of 
+
+
+* Heb. iv, 2. ¢ Psal. xxvi, 3. } 2 Cor. iii, 18, § Rom. iv, 11 
+|| Rom. ii, 25. 
+
+
+Direct. XTI1. -OF SANCTIFICATION. 257 
+
+
+none effect to you ; ye are fallen from grace.* Be- 
+ware also of making an idol of baptism, and putting 
+it in the place of Christ; as the Papists do, who hold 
+~ that it conferreth grace by the very work that is per- 
+formed in the administration of it ; and as many igno- 
+rant people do that trust rather on their baptism than 
+on Christ, like the Pharisees, who placed their confi- 
+dence on circumcision and other external privileges. 
+We are to know that God is not well pleased with 
+many that are baptised;} and the time will come 
+when he will punish the baptized with the unbaptized, 
+as well as the circumcised with the uncircumcised.§ 
+Beware also of advancing baptism to an equal part- 
+nership with faith in your salvation; as some do who 
+account all baptism null and void, besides that what 
+is administered to persons grown up to years of dis- 
+cretion ; and they that refuse to be rebaptized at those 
+years, are to be accounted aliens from the true church, 
+from Christ and his salvation, notwithstanding all 
+their faith in Christ. If the baptism of infants were 
+null and void, yet the want of true baptism would he 
+no damning matter to those that are otherwise per- 
+suaded, Circumcision was as necessary as baptism in 
+its time, and yet the Israelites omitted it for the space 
+of forty years in the wilderness, without fearing that 
+any would fall short of salvation for want of it.|| 
+Many precious saints in the primitive times of perse- 
+cution, have gone to heaven through a baptism of 
+suffering for the name of Christ, before they had an 
+opportunity to be baptized with water. And in those 
+ancient times, when the custom of deferring baptism 
+too much prevailed, we are not to think that none are 
+ina state of salvation by faith in Christ, that deferred 
+that ordinance or neglected it. Take notice farther, 
+that it is not sufficient to avoid the pernicious errors 
+_ of those that pervert baptism contrary to its institu- 
+
+
+* Gal, y, 2,4. + Phil. iii, 4, 5. $1 Cor. x, 2, 5. § Jer. ix, 28. 
+| || Josh. v, 6,7. 
+x 2 
+
+
+p Riis yok 2) mae 
+
+
+. vv 
+
+
+258 THE GOSPEL MYSTERY Direct. XIII, 
+
+
+tion ; but you must be also diligent in improving it 
+to_the ends for which it was instituted. And here let 
+me desire you to put the question seriously to your 
+souls, What good use do you make of your baptism’ 
+How often, or seldom do you think upon it? ‘The 
+vulgar sort of Christians, yea, it may be feared, many 
+sincere converts, do so little think upon their own 
+baptism, and study to make a due improvement of 
+it, that it is of no more profit to their souls than if 
+they never had been baptized; yea, their sin is the 
+more aggravated by rendering such an ordinance of 
+none effect to their souls, through their own gross ne- 
+glect. Though baptism be administered to us but 
+once in our lives, yet we ought frequently to reflect 
+upon it, and upon all occasions to put the question to 
+ourselves, Unto what were we baptized?* Whatdoes — 
+this ordinance seal? What did it engage us to? And 
+accordingly we must stir up and strengthen ourselves 
+by our baptism, to lay hold on the grace which it seals 
+to us, and to fulfil its engagements. Weshould often 
+remember that we are made Christ’s disciples by bap- 
+tism, and engaged to hear him rather than Moses, and 
+to believe on him for our salvation; as John baptized 
+with the baptism of repentance, saying tothe people, — 
+that they should believe on him that elie come — 
+after him, that is on Christ Jesus. We should re- 
+member that our baptism sealed our putting on of 
+Christ, and our being the children of God by faith in 
+Christ, and our being no longer under the former — 
+schoolmaster, the law ;f and that it sealed to us the 
+putting off the body of sin, and our burial and resur- __ 
+rection with Christ by faith, and the forgiving of our 
+trespasses ;{ our being made members of one body, ~ 
+Christ, and to drink into one Spirit. We may find 
+by such things as these, which are more fully disco- 
+vered in the gospel, that it is the proper nature and 
+
+
+* Acts xix, 3, t Gal. iii, 25, 26, 27. t Col. ii, 12, 13. 
+$1 Cor. xii. 12, 13. ‘ 
+
+
+Direct, XII, OF SANCTIFICATION. 259 
+
+
+tendency of baptism, to guide us to faith in Christ 
+alone for remission of sins, holiness, and all salvation, 
+by union and fellowship with him; and thata diligent 
+improvement of this ordinance, must needs be of great 
+advantage to the life of faith. 
+
+Fifthly, The sacrament of the Lord’s Supper is as a 
+spiritual feast to nourish our faith, and to strengthen 
+us to live in all holiness, by Christ living and work- 
+ing in us, if it be used according to the pattern which 
+Christ we us in its first institution, recorded by three 
+Evangelists ;* and was extraordinarily revealed from 
+heayen by Christ himself to the apostle Paul;t that 
+we might be the more obliged and stirred up to the 
+exact observation of it. Its end is, nof*only that we 
+may remember Christ’s death in the history, but in 
+the mystery of it: as, that his body was broken for 
+us, that his blood is the blood of the New Testament 
+or covenant shed for us, and for many, for the remis- 
+sion of sins; that so we may receive and enjoy all the 
+penne of the new covenant which are recorded. 
+
+ts end is, to mind us that Christ’s body and bloo 
+are bread and drink, even all-sufficient food to nou- 
+rish our souls to everlasting life; and that we ought 
+to take, and eat and drink him by faith: and to as- 
+sure us that, when we truly believe on him, he is 
+as really and closely united to us by his spirit, as the 
+food which we eat and drink is united to our bodies. 
+Christ himself§ doth more fully explain this mystery 
+Furthermore, this sacrament doth not only put us in 
+mind of the spiritual blessings wherewith we are 
+blessed in Christ, and our enjoyments of them_by 
+faith, but also isa mean and instrument whereby God 
+doth really exhibit and give forth Christ and his sal- 
+vation to true believers, and whereby he doth stir up 
+and strengthen believers to receive and feed upon 
+Christ, by present actings of faith, while they par- 
+
+
+* Matt. xxvi, 26—28. Mark xiv, 22—24, Luke xxii, 19, 20. 
+f 1 Cor. xi, 23, if 25. t Heb. viii, 10, 11, 12. § John vi. 
+
+
+260 THE GOSPEL MystERY Direct, XIII. 
+
+
+take of the outward elements. When Christ saith, 
+“Kat, drink ; this ismy body, this is my blood,” no 
+less can be meant than that Christ doth as truly give 
+his body and blood to true believers in that ordinance, 
+as the bread and cup ; and they do as truly receive it 
+by faith. As if a prince invest a subject in some hon- 
+ourable office, by delivering to him a staff, sword, or 
+signet, and say to him, Take this staff, sword, or sig- 
+net; this is such an office or preferment; or, if a father 
+should deliver a deed for conveyance of land to his 
+son and say, Take it as thy own, this is such a farm 
+or manor; how can such expressions import any thing 
+less, in common sense and reason, than a present, gift, 
+and conveyance of the offices, preferments, and lands, 
+by and with those outward signs? Therefore the 
+= alge Paul asserteth, that the bread in the Lord’s 
+stpper, is the communion of the body of Christ, and 
+the cup is the communion of his blood ;* which shew- 
+eth that Christ’s body and blood are really communi- 
+cated to us, and we do really partake of them as well 
+as of the bread and cup. The chief excellency and 
+advantage of this ordinance is, that it is not only a 
+figure and resemblance of our living upon a crucified 
+Saviour, but also a precious instrument whereby 
+Christ, the bread and drink of life, is really conveyed 
+to us, and received by us, through faith. This makes 
+it to be a love-token, worthy of that ardent affection 
+towards us, which filled Christ’s heart at the time 
+when he instituted it, when he was on the point of 
+finishing his greatest work of love, by laying down 
+his life for us.f And this is diligently to be observed 
+that we may make a right improvement of this ordi- 
+nance, and receive the saving benefits of it. One rea- 
+son why many do little esteem, and seldom or never 
+partake of this ordinance, and do find little benefit by 
+it, is because they falsely imagine that God in it only 
+holds forth naked signs and resemblances of Christ 
+
+
+* Cor, x, 6, +1 Cor. xi, 23, 
+
+
+Direct. XIII. OF SANCTIFICATION, 261 
+
+
+and his salvation, which they account to be held forth 
+so plainly in Scripture, that they need not the hel 
+
+of such a sign: whereas, if they understood that Go 
+
+doth really give Christ himself to their faith, by and 
+with those signs and resemblances, they would prize 
+it as the most delicious feast, and be desirous to par- 
+take of it on all  eeceomall Another reason why 
+many daa seldom or never of this ordinance, and 
+know little of the benefit of it, is because they think 
+themselves brought by it into great danger of eating 
+and drinking their own damnation, according to those 
+oe words of the apostle, “ For he that eateth 
+and drinketh unworthily, eateth and drinketh dam- 
+nation to himself, not discerning the Lord’s body.” + 
+Therefore, they account it the safest way wholly to 
+abstain from such a dangerous ordinance, or at least, 
+that once a-year is enough to run so great a hazard. 
+And if they be brought to it sometimes by constraint 
+of conscience, their slavish fears bereave them of all 
+comfortable fruit of it. So that, instead of striving to 
+receive Christ and his salvation therein, they account 
+themselves to have succeeded well, if they come off 
+without the sentence of damnation; as the Jewish 
+Rabbies write, that the High Priest’s life was so emi- 
+nently hazarded by his entering once a year into the 
+holy of holies, that he staid there as little time as he 
+ed lest the people should think him to be struck dead 
+by the hand of God; and when he came forth alive, 
+he usually made a feast of thanksgiving for joy of so 
+great a deliverance. But there is no reason why we 
+should he so terrified by these words of the apostle ; 
+for they were darted against such a gross profanation 
+of the Lord’s supper among the Corinthians, as we 
+may easily avoid, by observing the institution of it, 
+which the apostle proposeth to them as a sufficient 
+remedy against the gross abuse, in not discerning or 
+
+
+differencing the Lord’s body from other bodily food, 
+
+
+* Acts ji, (i and xx, 7. +1 Cor. xi, 29. 
+
+
+en 
+
+
+262 THE GOSPEL MysreRY Direct. XIII. 
+
+
+and partaking of it as their own supper, with such 
+disorder, that one was hungry, and another drunken. 
+Besides, that terrifying word damnation, may be ren- 
+dered more mildly judgment, as it isin the margin; 
+yea the apostle himself doth interpret it of a merciful 
+temporal judgment, whereby we are chastened of the 
+Lord, that we should not be condemned with the world. 
+We are indeed prone to sin in receiving this ordinance 
+unworthily ; and so we are also to pollute, more or 
+less, all other holy things that we meddle with. So 
+that the consideration of our danger might fill us with 
+slavish fear in the use of all other means of grace, as 
+well as of this, were it not that we have a great High 
+Priest, to bear this iniquity of our holy things;* un- 
+der the cover of whose righteousness we are to draw 
+near unto God, without slavish fear, in the full assu- 
+rance of faith, in this as well as in other holy ordi- 
+nances ; and we are to rejoice in the Lord in this 
+spiritual feast, as the Jews were bound to do in their 
+holy feast.t ‘There are other abuses of this ordinance 
+like to those of baptism forementioned, whereby it is 
+rendered opposite, rather than subservient to the life 
+of faith. Sime put it in the place of Christ, by trust- 
+ing on it as a work of righteousness for the procuring | 
+of God’s favour, or an ordinance sufficient to confer 
+grace to the soul by the very work wrought. Others 
+make it so necessary, that they account faith is not - 
+sufficient without it, and therefore they will partake 
+of it, if they can possibly, though it be in a disorderly 
+manner, upon their sick beds, when they are in fear — 
+of death as their viaticum. The Papists do horridly ~ 
+idolize it by their figment of transubstantiation, and — 
+their adoration of their breaden God, and their sacrifice 
+of the mass for the sins of the quick and the dead. — 
+We ought warily to conceive that the true body and — 
+blood of Christ are given tous with the bread and — 
+wine, in a spiritual mysterious manner, by the un-~ 
+
+
+* Exod, xxvili, 38. + Deut, xvi, 14, 15, 
+
+
+Direct, XIII. OF SANCTIFICATION. 263 
+
+
+searchable operation of the Holy Spivit, uniting Christ 
+and us Soocthes by faith, without any transubstanti- 
+ation in the outward elements. 
+
+Siwthly, Prayer is to be made use of as a means of 
+living by faith in Christ, according to the new man. 
+And it is the making our requests with supplication 
+and thanksgiving. ‘That it is to be used so, as an em- 
+inent means, appears because God requireth it; it is. 
+our priestly work, and the property of saints ; and 
+God is a God of hearing prayer.* God will be prayed 
+to by his people, for the benefits that he is minded 
+to bestow upon them, when once he had enabled them 
+to pray ; though at first he is found of them that seek 
+him not ; that he may prepare them for thanksgiving, 
+and make benefits double benefits to them. Though 
+his will be not changed by this means, yet it is accom- 
+plished ordinarily, and his purpose is to accomplish it 
+this way. And therefore, trusting assuredly should 
+not make us neglect, but rather perform this duty.t 
+Christ the mediator of the new covenant, by which 
+justification and sanctification are promised, ‘is also 
+the mediator for acceptance of our prayers.{ The 
+Spirit that sanctifieth us, begetteth us in Christ, and 
+sheweth the things of Christ to usin a Spirit of prayer.§ 
+He is a fire inflaming the soul and making it to mount 
+- upward in prayer to God. Prayerless people are 
+
+dead to God. If they are children of Zion, yet they 
+are but still-born, dead children that cry not; not 
+written among the living in Jerusalem; heathens in 
+nature, though Christians in name.|} It is a duty so 
+great, that it is put for all the service of God, as a 
+fundamental duty, which if it be done, the rest will 
+be done well, and not without it ; and other ordinances 
+of worship -are helps to it. It is the great means 
+_ whereby faith doth exert itself to perform its whole 
+
+work, and poureth itself forth in all holy desires and 
+
+
+* Psal. Ix, 2. ¢ 2 Sam. vii, 27. t Heb. iv, 15, 16, 
+$ Zech, xii, 10. Gal. iv, 6. || Jer. x, 25. 
+
+
+x 
+
+
+264 THE GOSPEL ysrery Direct. XIII. 
+
+
+affections, and so yields a sweet savour, as Mary’s box 
+of precious spikenard ; and so the same promises are 
+made to faith and prayer.* It is our continual incense 
+and sacrifice whereby we offer ourselves, our hearts, 
+affections, andslives to God.f We act all grace in it, 
+and must act in this way, or else we are not likely to 
+act in any other way. And as we act grace, so we 
+obtain grace by it, and all holiness. Our riches come 
+in by it; Israel prevails while Moses holds up his 
+hands. By prayer Hannah is strengthened against 
+her sorrows—peace is continued—the disordered soul 
+is set in order by it, as Hannah.{ Incense was still 
+burnt while the lamps were dressed. It is added to 
+the spiritual armour, not as a particular piece of it, 
+but as a means of putting on all, and making use of 
+all aright, that we may stand in the evilday. Itisa 
+means of- transfiguring us into the likeness of Christ 
+in holiness, and making our spiritual faces to shine, as 
+Christ was transfigured bodily, whilst he prayed; and 
+Moses’s face shone whilst he talked with God.§ Hence 
+the frequent use of this duty is commended to us.|| 
+Praying always, zavri x«ipa on all seasons and oppor- 
+tunities; and, by the example of the saints, in public 
+with the congregation. Solemn acts of prayer should 
+be continued daily; yea, several times in a day, as 
+morning and evening sacrifice ; or thrice, besides spe- 
+cial occasions, and brief ejaculations, that hinder not 
+other business. Prayers should be solemn in our 
+closets, in families. And as sacrifices were multiplied 
+on the sabbath-days, and days of atonement, and at 
+other appointed seasons, besides the continual burnt- 
+offering : so ought prayer also. In a word, a Chris- 
+tian ought to give up himself eminently to this duty, 
+without limits. But the great work is to practise this 
+duty rightly for holiness, only by faith in Christ. 
+Here we had need to say, Lord teach us to pray ;[ and 
+
+
+* Rom. x, 11, 12,13. + Psal. cxli, 2. $1Sam.i,18. Psal. xxxii, 1, 5. 
+§ Exod. xxxiv, 29. || Eph. vi, 18. 4] Psal. cxxix,8. J Luke xi, 1. 
+
+
+Direct. XTII, OF SANCTIFICATION, 265 
+
+
+that not only as to the matter, but as to the manner; 
+both which are taught by Christ, in some measure, in 
+that brief pattern of prayer which he taught his dis- 
+ciples. But for the understanding of it we must con- 
+sult the whole word.* And we have need of the 
+Spirit of Christ, to guide us in the duty ; and there- 
+fore we are taught to pray by the Spirit, that is, the 
+Holy Ghost.t The Spirit of God only guideth and 
+directeth our souls to pray aright. And that you 
+may do so, take these rules.— 
+
+Ist, You must pray with your hearts and spirit, 
+where the Spirit of Christ, and of prayer principally 
+resides ; with understanding; for we are renewed in 
+knowledge; so that praying in ignorance cannot 
+sanctify. And it must be with sincere hearty desire 
+of the good things we ask in prayer; for God seeth 
+the heart.{ Prayer is chiefly a heart-work. God 
+heareth the heart without the mouth, but never 
+heareth the mouth acceptably without the heart.§ 
+Your prayer is odious hypocrisy, mocking of God, 
+and taking his name in vain, when you utter peti- 
+tions for the coming of his kingdom, and doing of his 
+will, and yet hate godliness in your heart. This is 
+lying to doa, and flattering with your lips, but no 
+true prayer: and so God takes it.|| And you must 
+have a sense of your wants and necessities, and that 
+God only can supply them. And fervency in those 
+desires is required. And you must pray with atten- 
+tion, minding yourselves what you pray, or else you 
+cannot expect that God should mind it. Watch 
+unto it. Set yourselves to this duty intently. God 
+seeth where your heart is wandering, when you pray 
+without attention.[ When you say never so many 
+prayers without understanding, attention, affection, 
+it is not praying at all, but sinning and playing the 
+
+
+* 92 Tim. iii, 16, 17. + Jude ver. 20. Eph, ii, 18. t Psa. Ixii, 8. 
+
+
+$1 Sam. i, 13. || Psa. Ixxviii, 36. ‘J James v, 16. 
+] Ezek. xxxiii, 3). 
+} Z 
+
+
+on} # 
+
+
+Ce oe aah Ae ee 
+
+
+266 THE GOSPEL MYSTERY Direct, XITT. 
+
+
+hypocrite ; as Papists mumble over their Latin 
+ptayers upon the beads by tale, prating like parrots 
+what they cannot understand. And thus ignorant 
+people say over their forms of English prayers, and 
+account they have well discharged their duty, though 
+their heart pray not at.all, and they were mindin 
+other things. This is a mere lip labour, and bodily 
+exercise; offering a dead carcase to God; plain de- 
+ceit ;* a form of godliness, with denying the power; 
+whereby Popery hath cheated the world of the power 
+of this, and all other holy ordinances. They say, 
+God minds and knows what they speak, and approves 
+it. I answer, he sees them so as to judge. them for 
+hypocrites, and profane persons, for not knowing, 
+minding, and approving what they utter themselves : 
+he hath no pleasure in fools. They would not deal 
+so with an earthly prince. 
+
+2ndly, You must pray in the name of Christ: for the 
+Spirit glorifies Christ ; and leadeth us to God through 
+Christ.t As I have shewed, that walking in the 
+Spirit, and wallcing in Christ, is all one; so is praying 
+in the Spirit, and by and through Christ. And as we 
+are to walk in the name of the Lord, and to do all 
+things in his name, so to pray in his name as is com- 
+manded.{ It is not enough to conclude our prayers, 
+through Jesus Christ our Lord; but we must come 
+for blessings in the garments of our elder brother, 
+and must depend upon his worthiness and strength 
+for all. So also we must praise God for all things in 
+his name, as things received for his sake, and by him.§ 
+We must lay hold on his strength only, and plead 
+nothing, and own nothing, for our acceptance, but 
+him. We must not plead our own works arrogantly, 
+
+
+like the proud Pharisee, except only as fruits of — 
+
+
+grace, and rewards of grace. Praying in the Spirit is 
+upon gospel, not legal principles; with great humili- 
+ation, and sense of unworthiness; with a broken 
+
+
+* Mal. i, 13,14. Eph. ii, 18. + John iy, 13, 14, § Eph. v, 20. 
+
+
+ay 
+
+
+ee 
+a 
+: 
+
+
+ft 
+
+
+S 
+
+
+Les 
+“ helt 2 ae Ms “ i 
+RS OT Ge a ae, on a 
+
+
+Direct, XI, OF SANCTIFICATION. 267 
+
+
+spirit; with despair of acceptance, otherwise than 
+upon Christ’s account.* if your enlargements, 
+strugglings, meltings, have been never so great, yet 
+without this all is abominable. 
+
+8dly, Hence you must not think to be accepted for 
+the goodness of your prayers, and trust on them as 
+works of righteousness; which is making idols of 
+your prayers, and putting them in the place of 
+Christ; quite contrary to praying in the name of 
+Christ. Thus Papists hope to be saved by saying 
+their tale of prayers upon their bead-rows ; and they 
+haye indulgences granted upon their saying so many 
+Shales and of such a sort. Yea, some ignorant 
+
+rotestants trust on their prayers as duties of right- 
+eousness; and they think one prayer to be more ac- 
+ceptable than another, by reason of the holiness of the 
+form, if it were made by holy men; especially the 
+Lord’s prayer, which they use to help them in any 
+exigence or danger; how little soever they can apply 
+it to their own case, they make an idol of it. And 
+some use it, and other places of scripture, as a spell 
+or charm, to drive away the devil. And others think 
+their prayers more acceptable in one place than in 
+another, by reason of the holiness of the place.t 
+Others trust on their much speaking ;} whieh they 
+call the enlargement of their hearts. ‘They think to 
+put off God, and stop the mouth of conscience, with 
+a few prayers, and so to live as they list. 
+
+4thly, Pray to,God as your Father, through Christ as 
+your Saviour, in faith of remission of sins, and your 
+acceptance with God, and the obtaining all other 
+things which you desire of him, as far as is necessary 
+for your salvation.§ This is praying in Christ; and 
+
+
+Nea Holy Ghost, the Spirit of adoption; Without 
+“thi 
+
+
+, prayer is lifeless and \heartless, and but a dead 
+carcase. By this you may judge whether you have 
+
+
+* Dan. ix, 18. + John iv, 21, 24. 1 Tim. ii, 8. $ Matt. vi, 7. 
+ § James i, 5, 6,7. andy. 15, 1 Johny, 14,15, Mark, xi, 24, 
+
+
+‘ 
+
+
+268 THE GOSPEL MYSTERY Direct. XIII. 
+
+
+prayed rightly, more than by your melting affection, 
+or largeness in expression. ‘Though you be not as- 
+sured that you shall have every thing that you ask, 
+yet every thing that is good. This faith you must 
+endeavour to act; and therefore, if any sin lie on 
+your conscience, you must strive first to get the par- 
+don of it;* and purification of it by faith, that you 
+may lift up holy hands, without wrath and doubt- 
+ing.t The sin of wrath there is especially mentioned, 
+because that is contrary to love, and forgiving others. 
+Here lies the strength, life, and powerfulness of 
+prayer. Set faith on work, and you will, be power- 
+ful, and prevail. 
+
+5thly, You must strive, in prayer, to stir up and act 
+every other sanctifying grace, through faith movin 
+you thereto. Thus your spikenards will yield their 
+smell; as, godly sorrow; peace; joy; hope; desire 
+and love to God; and love to all his commands; and 
+to his people out of love to him.{t You must seek 
+the Spirit himself in the first place; and all spiritual 
+things, Praying only for carnal things, shews a car- 
+nal heart, and leaves it carnal. Pray for faith; and 
+for such things as may serve most for the glorifying 
+God.§ And for outward things, you must act faith 
+in submission to his will. And this prayer sets you 
+in a holy frame. Hallowing God’s name must he 
+‘your aim; not your lusts. 
+
+Gthly, Strive to bring your soul into order by this 
+duty, however disordered by guilt, anguish, inordinate 
+cares, or fears. A watch must be often wound up. 
+You must wrestle in prayer against your unbelief, 
+doubtings, fears, cares, reluctancy of the flesh to that 
+which is good; against all evil lusts and desires, cold- 
+ness of affection, impatience, trouble of spirit; every 
+thing that is contrary to a holy life, and the graces 
+and holy desires to be acted for yourselves or others, 
+
+
+* Psa. xxxii, 5, and li, 14, 15. +1 Tim. ii, 8. $ Psa. exxii, 8. 
+§ 2 Chron. i, 11, 12. 
+
+
+Direct. XIU. OF SANCTIFICATION. 269 
+
+
+Stir up yourselves to the duty. Though the flesh 
+be cross and reluctant, we must not yield, but resist 
+by the Spirit. And thus we shall find the Spirit 
+helping our infirmities.* Though God seem to defer 
+long, we must not faint or be discouraged. The 
+greater our agonies be, the more earnestly we are to 
+pray.t This is xpocxapre civ ri wporevxy, to continue 
+Instant in prayer.{ ‘Thus you will find prayer a 
+great heart-work, and not such a thing as may be 
+done while he think on other things; and that it 
+requireth all the strength of faith and affection that 
+you can possibly stir up. Thus you may get a holy 
+frame. 
+
+Tthly, You may make a good use of the whole matter, 
+and all the manner of prayer, as ordinary and extra- 
+ordinary exigencies may require, to stir up grace in 
+‘you, by wrestling, and to bring your heart into a holy 
+frame. As, in confession, you must condemn your- 
+self according to the ks but not as you are in 
+Christ. You must not deny that grace that you 
+have, as if you were only wicked hitherto, and now 
+to begin again; which hinders praise for grace re- 
+ceived in those that are already converted. In sup- 
+
+lication, you must endeavour to work up your 
+neart to a godly sorrow; and a holy sense of your 
+own sin and misery; and lay before you the aggrava- 
+tions thereof. Complaint and lamentation are one 
+great part of prayer, as the Lamentations of Jeremiah. 
+And you must add pleadings to your petitions, with 
+such arguments as may serve to strengthen faith, and 
+to stir up and kindle affection. Which pleadings are 
+taken from attributes; promises; the equity of our 
+cause; the advantage and benefit of the thing, to the 
+glory of God, and our comfort. Naked petitions are 
+not sufficient, when the soul findeth special cause of 
+struggling and wrestling against corruptions and dan- 
+
+
+* Rom. viii, 26, 27. ¥ Psa. xxii, 1,2. Wuke xxii, 42. 
+ft Rom. xii, 12, - Eph. vi, 18, 
+Z2 
+
+
+270 THE GosPEL MystERY Direct. XJIJ. 
+
+
+gers, and for mercies. Christ’s large prayer* is made 
+up of pleading, and very few petitions, And we must 
+make use also of praise and thanksgiving, to stir up 
+peace, joy, love, &c.t Especially be much in prais- 
+ing God for mercies of the new state in Christ ; and 
+then you will the better give thanks for all benefits 
+on his account ;{ and plead those benefits, to stir u 
+to faith and duty. That brief ejaculation, Lord, 
+have mercy on me, is very good to be used, but it will 
+not answer the end and use of the whole duty of 
+prayer, as some lazy carnal ea: would have it, and 
+so harden themselves in the neglect of the duty: 
+though the large improvement and use of all the 
+matter of prayer at all times is not required, but only 
+as ordinary and extraordinary occasions may require. 
+8thly, You must not confine and limit your prayers 
+by any prescribed form ; seeing it isimpossible that any 
+such forms should be contrived, as should answer 
+and fit all the various conditions and necessites of the 
+soul at all times. I do not condemn all forms, as 
+that made by Christ, the Lord’s prayer; though it 
+were easy to shew, that Christ never intended it for 
+a form of prayer, so as to bind any to the precise 
+form of words; and it is plain the Spirit of God hath 
+expressed it in different words.§ But better to pray 
+by that form, or other forms, than not at all. It is 
+uncharitable to take away crutches, or wooden legs, 
+from lame people ; yet none will look upon them but 
+as dead ne ie I say, it is utterly unlawful to bind 
+ourselves to any form, because none can answer the 
+duty fitly, and suitably to particular occasions.|| 
+You must make the whole Scripture your Common 
+Prayer book, as the primitive church did; being the 
+language of the Spirit, reaching all occasions and con- 
+ditions, and fittest to speak to Godin. And if you 
+
+
+* John xvii. f Gen. xxxiii, 10. Psa. xviii, 1, 2, 3. and xxxiii, 1, 
+t Eph. v, 20. 1 Thess. v, 18, § Matt. vi. Luke xi. 
+|| Eph. vi, 18. Phil. iv, 6. 
+
+
+Direct. XITL, OV SANCTIFICATION. 271 
+
+
+use a form, you must follow it by the Spirit, farther 
+than the form goes, according as he shall guide you 
+by the word; or else you quench the Spirit.* If you 
+know the principles of prayer, and have a lively sense 
+of your necessities, and hearty desires of God’s grace 
+and mercies, you will be able to pray without forms, 
+and your affections will bring forth words out of the 
+fulness of your heart. And you need not be over 
+solicitous and timorous about words; for, doubtless, 
+
+
+— the Spirit, who is the help. to us in speaking to men, 
+
+
+will also much more help us to speak to God, if we 
+desire it.f And God regards not eloquent words, nor 
+artificial composure; neither need we regard it in 
+private prayer.{ If you limit yourselves to forms, 
+you will thereby grow formal, and limit the Spirit. 
+Seventhly, Another means appointed of God, is 
+singing of psalms, i. e. songs of any sacred subject 
+composed to a tune, hymns or songs of praise, and 
+spiritual songs of any sublime spiritual matter, as 
+sal. xv, and the Song of Solomon. God hath com- 
+manded it in the New Testament; though now in 
+these days many question whether it be an ordinance 
+orno. And there were many commands for it under 
+the Old Testament. Moses and the children of Israel 
+sang before David’s time. David composed psalms 
+by the Spirit to be sung publicly ; yea, privately too. 
+Other songs also were made upon several occasions, 
+and used, whether they were parts of the Scripture 
+or no; as Solomon made a thousand and five.§ And 
+they made songs upon occasion. Which teacheth, 
+that it is lawful for us to do so, if they be according 
+to the word. The matter of Scripture may be sung. 
+Christ and his disciples sang a hymn,|| supposed to 
+be one of Dayid’s psalms; and they were written for 
+our instruction, as well as) other parts of Scripture ; 
+and so to be used now in singing. They speak of the 
+
+
+“#1 Thess, v, 19. t.1 Cor, 1,5, f Isa. xxxvili, M4. 
+§ 1 Kings iv, 32. || Matt. xxvi, 30. 
+
+
+. 
+
+
+272 THE GOSPEL MYSTERY Direct. XIII. 
+
+
+things of the New ‘Testament, either figuratively or 
+clearly ; and we may understand them better now, 
+than the Jews could under the Old Testament.* 
+Christians heretofore practised this duty as well as 
+Jews. Hence their atelucani hymni (the hymns they 
+sung before daylight) were noted by Pliny, a heathen. 
+These songs or hymns may be used at all times, 
+especially for holy mirth or rejoicing.f But this 
+text is not to be taken exclusively in singing, any 
+more than in prayer. 
+
+But the right manner of this duty is chiefly to be 
+noted. And here, (1.) Trust not upon the melody 
+of the voice, as if that pleased God, who delighteth 
+only in the melody of the heart.§ Neither let the 
+recreating your senses be your end, which is but a 
+carnal work; Non musica chordula, sed cor; non 
+clamans, sed amans psallit in aure Dei: Not a musical 
+string, but the heart; not crying but loving sounds in 
+the ear of the Lord. This spiritual music was typi- 
+fied by musical instruments of old. (2.) You must 
+use it for the same end as meditation and prayer, 
+according to the nature of what is sung: that is to 
+quicken faith; and joy and delight in the Lord, glo- 
+rying in him.|| You are never right until you can 
+be heartily merry in the Lord, to act joy and mirth 
+holily; and also to get more knowledge and instruc- 
+tion in heavenly mysteries, and in your duty teaching 
+and admonishing.q| Many psalms are maschils, (as 
+their title is,) that is psalms of instruction. Thus we 
+are to sing such psalms as speak in the first person, 
+though we cannot apply them to ourselves concerning 
+ourselves; and in this we no not lie. David speaks of 
+Christ as himself, as a pattern of affliction and virtue, 
+to instruct others; and we sing such psalms, not as 
+our words, but words for our instruction. And therein 
+we do not lie, any more than the Levites, the sons of 
+
+
+* 2 Cor. iii, 16. + James v, 13. t Psa. xxxviii, 18,2. - 
+§ Col. iii, 16. || Psa, civ, 33, 34, J Col, iii, 16, 
+
+
+Direct. XIII. OF SANCTIFICATION. 273 
+
+
+Korah, or Jeduthun, or other musicians bound to 
+sing them. Though it be good to personate all the 
+good that we can; yet we have so much liberty in 
+the use of psalms, that though we cannot apply all to 
+ourselves, as speaking and thinking the same, yet we 
+shall answer the end, if we sing for our instruction.* 
+And psalms have a peculiar fitness for teaching and 
+instruction ; because the pleasantness of metre said or 
+sung, is very helpful to the memory. And there isa 
+variety of curious artifice in the placing of words in 
+the psalms upon this account; and there are some 
+alphabetical psalms.t And by the nielody of the 
+sound, the instructions come in with delight, as a 
+physical dose sugared ; and sorrow is naturally allayed, 
+to fit the mind for spiritual joy; and distempered 
+passions appeased. So Orpheus, Amphion, and others 
+were famous for civilizing rude and barbarous people 
+by music. 
+| Highthly, Fasting is also an ordinance of God, to be 
+used for the same purpose and end, and is commended 
+to us under the New Testament.{ And we have 
+examples of it.6 Under the Old Testament, there 
+were frequent commands for it, and examples, chiefly 
+upon oceasion of extraordinary afflictions: besides the 
+anniversary great day of atonement, when every one 
+was to fast on pain of cutting off. There is a prophecy 
+of the same for the times of the New Testament.|| 
+It was used most on extraordinary occasions; and it 
+is a help to holiness by faith, because it is a meet help 
+for extraordinary prayer and humiliation. But the 
+great matter is to use it rightly, as followeth. 
+1s¢t, Trust not on it as meriting or satisfying, as 
+Papists and Pharisees do,[ putting it in the place of 
+Christ; or as a means of itself conferring grace, and 
+mortifying lusts, as many do, who may sooner kill 
+
+
+\ 
+
+
+; 
+* Psa. vi, Xxvi, xlvi. + Psa, XV; XXxXiV, Xxxvii. t+ Matt. ix, 15. 
+
+
+§ Acts xiii, 2, 3. || Zech. xii 11, 4 Joeli, 14, and ii, 12. 
+{ Luke xviii, 11. 
+
+
+TNA) le 2S, a - Le, j 
+
+
+——— 
+
+
+‘ 
+
+
+274 THE GOSPEL MYSTERY Direct. XII. 
+
+
+their bodies than their lusts; or as any purifying rite ; 
+yea, or in or for itself acceptable to God. Imagine 
+not, that prayer is not acceptable without it; for this 
+is against faith. TF asts as well as feasts, are not sub- 
+stantial parts of worship, because not spiritual, but 
+bodily; though under the Old Testament, they were 
+parts as instituted rights, figurative and teaching. 
+But that use is now ceased: as that on the day of atone- 
+ment, and so many figurative rites adjoined to fasting, 
+as sack-cloth, ashes, ending garments, pouring out 
+water, lying on the earth. The kingdom of God 
+consists not in these things. The soul is hardened 
+by trusting in them. 
+
+2ndly, Use it as a help to extraordinary prayer and 
+humiliation; that the mind may not be unsuited for 
+it, by eating, drinking, or bodily pleasures.* It is 
+good only as a help to the soul, removing impedi- 
+ments. The best fast is, when the mind is taken off 
+from delights, as in John the Baptist’s case, when 
+heaven and godly sorrow take off the soul.f 
+
+3dly, Use it in such a measure as may be proper for 
+its end; without which it is worth nothing. If ab- 
+stinence divert your mind, by reason of a gnawin 
+appetite, then you had better eat sparingly, as Daniel, 
+in his great fast. Some have not enough of spiritual 
+mindedness, to give up themselves to fasting and prayer 
+without great distraction; and such had better eat, 
+than go beyond their strength in a thing not abso- 
+lutely necessary, which produceth only a slavish act, 
+asin the case of virginity.§ Christ would not have 
+his weak disciples necessitated to the duty: In the 
+mean time, such should strive to be sensible of the 
+weakness and carnality that hinders their use of this 
+excellent help. 
+
+Ninthly, pat may expect here something to be 
+spoken of vows. But I shall only say this of them. ~ 
+
+* Joel ii, 13. + Zech. xii, 10,14. | $Chap.x,23, 
+
+§1 Cor, vii, 7, 8, 9, 34, 35, 36. || Matt. ix, 14; 15. 4 
+
+
+1 ae ie 
+
+
+Direct. XIIT, OF SANCTIFICATION. 275 
+
+
+Think not to bring yourselves to good by vows and 
+romises, as if the strengtli of your own law could do 
+it, when the strength of God’s law doth not. We 
+bring children to make promises of amendment, but 
+we know how well they keep them. The devil will 
+urge you to vow, and then to break, that he may 
+perplex your conscience the more. 
+enthly, Another great mean is, fellowship and 
+communion with the saints.* 
+
+First, this mean must be used diligently. Whoso- 
+ever God sayeth, should be added to some visible 
+church, and come into communion of other saints; 
+and if they have not an opportunity for it, their 
+heart should be bent towards it. Sometimes the 
+church is in the wilderness, and hindered from visible 
+communion and ordinances; but they that believe in 
+Christ, are always willing and desirous so to add and 
+join themselves.t And they continued stedfastly in 
+fellowship.{ And God binds his people to leave the 
+fellowship and society of the wicked as much as may 
+be. vd so far as we are necessitated to accompany 
+with them, we ought to shew charity to their souls 
+and bodies. This communion with saints is to be 
+exercised in private converse, and in public assem- 
+blies.§ And doubtless it ought to be used for the 
+attainment of holiness: as may be proved. 
+
+lstly, In general, hecause God communicates all 
+salvation to people ordinarily by, or in a church; 
+either by taking them into fellowship, or holding 
+forth the light of truth by his churches to the world. 
+A church is the temple of God, where God dwells. || 
+He hath placed his name and salvation there, as in 
+Jerusalem of old. He hath given to his churches 
+those officers and ordinances whereby he converts 
+others. His springs are there. He makes the several 
+members of a church instruments for the conveyance 
+
+
+* Acts ji, 42. + Acts ji, 4), 44, 47. t1 John ii, 19. 
+§ Heb. x, 25. J] 1 ‘Lim. iii, 15. 
+
+
+) 
+
+
+276 THE GOSPEL MysTERY. Direct. XII, 
+
+
+of his grace and fulness from one to another, as the 
+members of the natural body convey to each other the 
+fulness of the head.* All the new-born are brought 
+forth and nourished by the church, and therefore all 
+that would be saved, should join to a church: they 
+shall prosper that love the chuxgh, so as to stand in 
+its gates, and unite as members, brethren and com- 
+panions.t And wrath is denounced against those 
+that are not members of it, at least, of the mystical 
+body: they cannot have God for their Father, that 
+have not that for their mother. This maketh those 
+that desire fellowship with God, to take hold of the 
+skirts of his people.{ 
+
+2ndly, In particular, fellowship with the saints 
+conduceth to holiness, many ways. 
+
+First, By manifold helps to holiness, which are 
+received thereby : as, 
+
+1. Thé word and sacraments; and all the minis- 
+terial office and labour in watching over souls. None 
+of these helps can be enjoyed without fellowship of 
+saints, each with other. And if believers had been to 
+have stood single by themselves, and not maintained 
+fellowship with each other, for mutual assistance 
+and common good, none of these things could have 
+continued ; neither could any believer have been ex- 
+tant at this day, in-an ordinary way, but even the 
+very name of believers had been abolished. 
+
+2. Mutual prayer, which is the more forcible when 
+all pray together.$ 
+
+8. Mutual admonition, instruction, consolation, to 
+help each other when they are ready to fall, and to 
+promote the good work in each other.|| ‘“ He that 
+walketh with wise men shall be wise.4{ Woe to 
+him that is alone when he falleth.”’** In chureh 
+fellowship there are many helpers, many to watch. 
+
+
+* Eph, iv, 16. fh Panlen exis ne4nee t Zech, viii, 23. 
+§ Matt. xviii, 19, 20, || 1 Thess. v, 14. {| Prov. xiii, 20. 
+** See Eccl. iv, 9—12. 
+
+
+Direct. XT. OF SANCTIFICATION. 277 
+
+
+Soldiers have their security in company; and the 
+church is compared to an army with banners.* So, 
+for quickening affections, iron sharpeneth iron. Like- 
+wise the council of a friend, like ointment and _per- 
+fume, rejoiceth the heart. Yea the wounds and re- 
+proofs of the righteous are as precious balm.t 
+
+4, External supports, which mitigate afflictions, 
+and are to be communicated mutually.{ The afflic- 
+tion is increased, when none careth for our souls.§ 
+
+5. Excommuunication, when offences are exceed- 
+ing heinous, or men obstinate insin. This ordinance 
+
+is appointed for the destruction of the flesh, that 
+the spirit may be saved.|| Better and more hopeful 
+it is, to be cast out by the church for a person’s 
+amendment, than to be wholly without the church 
+at all times ; and better to be a lost sheep, than a goat 
+or swine. For excommunication cuts off actual com- 
+munion only, until repentance be evident; and not 
+absolutely abolisheth the title and relation of a bro- 
+ther and church-member, though it judgeth one to be 
+an unnatural brother, anda pernicious rotten mem- 
+ber at present, not fit for acts of communion. Be- 
+sides, admonition is still to be afforded; and any 
+means are to be used, that may serve to cure and re- 
+store him, The church reacheth forth a hand to help 
+such a person, though it do not join hands in fellow- 
+ship with him ; or it communicateth to him, not with 
+him, Yet, if he have not so much grace as to repent, 
+it were better he had never known the way of right- 
+eousness. 4 
+
+6. The lively examples of saints are before our eyes. 
+
+in church-fellowship, to teach and encourage. 
+
+7. By those holy duties that are required and do 
+appertain to this fellowship and communion, All 
+acts that belong to this fellowship are holy ; as, hear- 
+ing, receiving the sacraments, prayer, mutual admo- 
+
+
+* Song vi, 4, 10. t Psalm exii, 5. t Eph. iv, 28. 
+§ Psalm cxlii, 4 (| 1 Cor. v, 5. qf 2 Pet. ii, 21. 
+
+
+2A 
+
+
+/ } 
+
+
+\ 
+
+
+ta 
+
+
+a ee (a 
+
+
+278 THE GOSPEL MYSTERY Direct. XTIT. 
+
+
+nitions, &c. I shall consider some such holy acts, 
+whereby we are rather doers than receivers, and which 
+we perform towards others: as, a 
+
+1. Godly Discourse, teaching, admonishing, com- 
+forting others in Christ; which we cannot so perform 
+towards others, as towards those we have strict fel- 
+lowship with in Christ. Others, like swine, trample 
+these jewels under foot; and saints therefore are for- 
+ced to refrain from godly discourse in their company. 
+But holy discourse is most acceptable to the saints, 
+and to be practised with them ; and is greatly to the 
+advantage of holiness. 
+
+2. In helping, succouring, and conversing with 
+Christ in his members. We do good to Christ in his 
+members in church-fellowship ; and we ourselves, as 
+members of Christ, act as well from Christ as towards 
+Christ; whereas, if we do good to others without, we 
+do good only for Christ’s sake, but not to Christ. We 
+lave advantage in general, to do all the duties that 
+belong to us as members of Christ to fellow-mem- 
+bers; which we cannot do, if separate from them; as 
+a natural member cannot perform its office to other 
+members, if separate from them. 
+
+Seconpiy, The means must be used rightly for the 
+attaining of holiness only in Christ. 
+
+1st, One rule is, Do not trust in church-membership, 
+or on churches, as if this or that relation in fellowship 
+commended you to God of itself; whereas, a church- 
+way is buta help to fellowship with Christ, and wallk- 
+ing in the duties of that fellowship. The Israelites 
+stumbled at Christ, by trusting on their carnal privi- 
+
+
+leges, and set them in opposition to Christ ; whereas, — 
+
+
+they should only have made them subservient to 
+Christ. Confidence in them should have been aban- 
+doned, as Paul’s example teacheth.* We must not 
+glory in Paul, Apollos, Cephas, but in Christ; else 
+
+
+we glory in the fiesh, and in men.t Trusting on- 
+
+
+* Phil. ili, 3, 4,5. ft 1 Cor, i, 12, 13, & iti, 21, 
+
+
+Direct, XIII. OF SANCTIFICATION, 279 
+
+
+church-privileges is an inlet to formality and licen- 
+tiousness ;* and thence the corruption of the churches. 
+
+2ndly, Follow no church any further than you 
+may follow it in the way of Christ ; and keep fellow- 
+ship with it only upon the account of Christ, because 
+it follows Christ, and hath fellowship with Christ.t 
+if a church revolt from Christ, we must not follow it, 
+how ancient soever it may be; as, the Israclitish 
+church was not to be followed, when it persecuted 
+Christ and his Apostles; and many, by adhering to 
+that church, fell from Christ. We are indeed to 
+hear the church, but not every one that calls itself so, 
+and none any farther than it speaketh as a true church, 
+according to the voice of the shepherd. We must 
+subject ourselves to ministers of Christ, and stewards 
+of his mysteries; but must give up ourselves first to 
+Christ absolutely, and to the church according to the 
+will of Christ. Our fear must not be taught by the 
+precepts of men, The doctrines of any men are to be 
+tried by Seripture, whatever authority they pretend 
+to. An unlimited following church-guides brought 
+the church into Babylon, and into all manner of 
+spiritual whoredoms and abominations. You are not 
+baptized into the name of the church, but into the 
+name of Christ.§ 
+
+3dly, Do not think that you must not attain this 
+or that degree of grace, before you join yourself in 
+full communion with a church of Christ in all ordin- 
+ances. But when you have given up yourself to Christ, 
+and learned the duty of communion ; give up your- 
+self unto a church of Christ, though you find much 
+weakness and inability. For church ordinances of 
+special communion serve to strengthen you ; and how 
+can you get heat being alone? ‘The disciples, as soon 
+as converted, embraced all fellowship.|| And churches, 
+that they may forward holiness in themselves and 
+
+
+* Jer. vii, 4, 8, 9, 10. ¢ Isaiah i, 10. $1 John i, 3. 
+$1 Cor, i, 13. || Acts ii, 42, 
+
+
+280 THE GOSPEL MYSTERY Direet. XIII. 
+
+
+others, must be willing to receive Christ’s weak ones, 
+and to feed his lambs, as well as better grown sheep, 
+and bear them on their sides,* How else shall Christ’s 
+weak ones grow strong by that nourishment that 
+other parts supply? ‘They are very unreasonable, 
+that expect Christians should grow out of church- 
+fellowship, to as high a degree of grace as those that 
+are in those pastures of tender grass ; and are unwill- 
+ing to receive any that they are like to have occasion 
+to bear with; whereas, bearing and long-suffering are 
+great duties of church-fellowship.t The weakest have 
+most need to be strengthened by church communion ; 
+and we are bound to receive them, as Christ hath re- 
+ceived us.{ We do not reject or separate the weaker 
+parts of the body, but put more honour and comeli- 
+ness on them, Admission into the churches in the 
+apostolic times was gained upon profession, with a 
+show of seriousness ; though tares got in among: the 
+wheat, and many scandals arose to the reproach of the 
+ways of Christ; and the greatest strictness will not 
+keep out all hypocrites; yet the best care must be 
+taken, so far as not to hinder any that have the least 
+truth of grace. 
+
+Athly, Keep communion with a church, for the sake 
+of communion with Christ.§ Therefore you must 
+keep communion in Christ’s pure ways only, and, 
+in them, seek Christ by faith; that, in the enjoy- 
+ment of those advantages, you may receive and act 
+the godliness and holiness forementioned, and aim at 
+spiritual flourishing and growth in grace. Choose 
+therefore fellowship with the most spiritual churches. 
+Judge of churches and men, according to the rule 
+of the new creature;|| and try them; otherwise 
+a church may corrupt you. See that thy com- 
+munion answers its end, to tend to thy edification, 
+
+
+not to destruction; which you ought to take all the 
+
+
+* Isaiah Ixvi, 12. t Eph. iv, 2, 3. _ = Rom. xv, 7. 
+§ 1 John i, 3. || 2 Cor, v, 16, 17. q Rev. ii, 2, & ili, 9. 
+
+
+Direct. XTIT. OF SANCTIFICATION. 281 
+
+
+advantages of, not only in the church where you are 
+a member, but by communion with other churches, 
+as occasionally providence casts you among them ; for 
+your communion with a particular church obligeth 
+to communion with all churches of Christ in his 
+ways, as you are called thereto.* And it is an abuse 
+to say, we are members of a church in London, and 
+therefore refuse fellowship with a church in the 
+country ; seeing, if we are members of Christ, we are 
+members of one another, whether single persons or 
+churches. And endeayour to join in fellowship with 
+the godly of the place where you live, that you may 
+have the more frequent and constant communion. 
+Onesimus, though converted at Rome, must be one of 
+the church of the Colossians, because he lived there. 
+The union of the saints together in distinct societies, 
+according to the places where they lived, was the 
+apostolic practice, and cannot be violated without 
+sin. Such can best watch over one another, admonish, 
+comfort, and edify each other, which is the benefit of 
+communion, And they indeed destroy communion, 
+that seek a communion where they cannot have this 
+benefit. I only add to this head, that church-fellow- 
+ship, without practising the ways of Christ, is but a 
+conspiracy to take his name in vain, and to counterfeit 
+church-fellowship of hypocrites. It is impudence for 
+such to invite others to their communion ; tyranny 
+to compel them. Every Christian is bound to seck a 
+better church-fellowship by reformation; and those 
+that do so are the best sons of Christ’s church, who 
+inquire, Is this the way to enjoy Christ? a church- 
+way being appointed to enjoy Christ. 
+
+5thly, Especially leave not the church in perse- 
+cution, when you need its help most, and are then 
+most tried whether you wil! cleave to it. This is a 
+sign of apostacy.}; We should cleave to one another 
+
+
+® 1 Cor: x07. + Col. iv, 9, compared with Philemon, ver, 10: 
+t Heb. x, 25, 26, 
+
+
+YN: 
+
+
+282 THE GOSPEL MYSTERY Direct, XIV. 
+
+
+as one flesh, even to prisons and death; or else we 
+deny Christ in his members. 
+
+
+DIRECTION XIV. 
+
+
+That you may seek holiness and righteousness only by believing in 
+Christ, and walking in him by faith, according to the former direc- 
+tions: take encouragement from the great advantages of this way, 
+and the excellent properties of it. 
+
+
+EXPLICATION. 
+
+
+Tus direction may serve as an epilogue, or conclu- 
+sion, by stirring us up unto a lively and cheerful em- 
+bracing those gospel rules forementioned, by several 
+weighty motives. Many are kept from seeking god- 
+liness, because they know not the way to it; or the 
+way that they think of seems uncouth, unpleasant, 
+disadvantageous, and full of discouragement ; like the 
+way through the wilderness to Canaan, which wearied 
+the Israelites, and occasioned their many murmur- 
+ings.* 
+
+‘Bat this is a way so good and excellent, that those 
+that have the true knowledge of it, and desire heartily 
+to be godly, cannot dislike it. I shall shew the ex- 
+cellency of it in several particulars, But you should 
+first call to mind what is the way I have taught, viz. 
+union and fellowship with Christ, and by faith in 
+Christ, as discovered in the gospel; not by the law, 
+or in a natural condition, or by thinking to get it be- 
+fore we come to Christ, to procure Christ by it, which 
+is striving against the stream: but that we must first 
+apply Christ and his salvation to ourselves, for our 
+comfort, and that by confident faith; and then wall 
+by that faith, according to the new man, in Christ, 
+and not as in a natural condition ; and use all means ; 
+
+
+* Numb, xxi, 4. 
+
+
+\ 
+
+
+Direct, XIV. OF SANCTIFICATION, 283 
+
+
+of holiness rightly for this end. Now, that this is an 
+excellent, advantageous way, appears by the follow- 
+ing desirable properties of it : 
+
+Firstly, Tt hath this property, that it tends to the 
+abasement of all flesh, and exaltation of God only in 
+his grace and power through Christ. And so it is 
+agreeable to God’s design in all his works, and the end 
+that he aimeth at: anda fit means for the attaining 
+the end that we ought to aim at in the first place, 
+which is the hallowing, sanctifying, and glorifying 
+God’s name in all things; and is the first and chief 
+petition; and is the end of all our actings; was the 
+end of giving the law. God made all things for Christ, 
+and would have him have the pre-eminence in all; 
+that the Father may be glorified in the Son.* And 
+this property of it is a great argument to prove that 
+it isthe way of God, and hath the character of his 
+image stamped upon it. We may say that it is like 
+him, and a way according to his heart, as Christ 
+proveth his doctrine to be of God, by this argument.t 
+And Paul proveth the doctrine of justification, and of 
+sanctification, and salvation by grace through faith, to 
+be of God; because it excludes all boastings of the 
+creature.{ This property appears evidently in the 
+mystery of sanctification by Christ in us through 
+faith. For, 
+
+Ist, It sheweth that we can do nothing by our 
+natural will, or any power of the flesh; and that God 
+will not enable us to do any thing that way, however 
+nature be stirred up by the law or natural helps. 
+And so it serveth to work self-loathing and abasement, 
+and to make us look upon nature as desperately wick- 
+ed, and past cure, and not to be reformed, but put off, 
+by putting on Christ. It remains wicked, and only 
+Hickees: after we have put on Christ. _ 
+
+2ndly, 1t sheweth that all our good works, and liy- 
+‘ing to God, are not by our own power and strength at 
+
+
+\ # John xiv, a { Jobn vii, 18, ¢ Rom. iii, 27, 28. 
+
+
+' 
+
+
+234 TUE GOSPEL MYSTERY Direct. XIV. 
+
+
+all, but by the power of Christ, living in us by faith ; 
+and that God enableth us to act, not merely according 
+to our natural power, as he enableth carnal men, and 
+all other creatures, but above our own power, YY 
+Christ united to us and in us through the Spirit. All 
+men live, move, and have their being in him ; and, by 
+his universal support and maintenance of nature, in 
+its being and activity, they act* so that the glory of 
+their acting as creatures belongs to God. But God 
+acts more immediately in his people, who are one flesh 
+and one spirit. with Christ; and act not by their own 
+power, but by the power of the Spirit of Christ in 
+them, as closely united to him, and being the living 
+temples of his Spirit; so that Christ is the immediate 
+principal agent of all their good works, and they are 
+Christ’s works properly, who works all our works in 
+us and for us: and yet they are the saint’s works by 
+fellowship with Christ, by whose light and power the 
+faculties of the saints do act and are acted,t so that 
+we are to ascribe all our works to God in Christ, and 
+thank him for them as free gifts.{ God enableth us to 
+act, not by ourselves, as he doth others, but by him- 
+self. The wicked are supported in acting only, ac- 
+
+
+cording to their own nature; so they act wickedly. — 
+
+
+Thus all are said to live, move, and have their being 
+in God. But God enableth us to conquer sin, 
+not by ourselves, but by himself; and the glory of 
+enabling us doth not esl belong to him, which the 
+
+
+Pharisee could not but ascribe to him, but also the - 
+
+
+glory of doing allin us, And yet we work as one 
+with Christ, even as he works as one with the Father, 
+by the Father working in him. We live as branches 
+by the juice of the vine, act as members by the animal 
+spirits of the head, and bring forth fruit by marriage 
+
+
+to him as our husband, and work in the strength of — 
+
+
+him as the living bread that we feed on. He is all in 
+
+
+the new man; and all the promises are made good in 
+him.§ 
+
+
+* Heb. i, 3. + Gal, ii, 20. $1 Cor. xv, 10,-, “4 2)Corhiy 20, 
+
+
+. 
+
+
+ae OR 
+
+
+Direct. XIV. OF SANCTIFICATION, 285 
+
+
+Secondly, It hath this property, that it consisteth 
+well with other doctrines of the gospel ; which con- 
+trary errors do not. And hence this is the way to 
+confirm us in many other points of the gospel: and 
+therefore appears to be true, by its harmony with 
+other truths, and fit linking with them in the same 
+golden chain of the mystery of godliness; and evi- 
+dence them to be true, by their harmony with it, I 
+have shewed, that men’s mistaking the true way of 
+sanctification, is the cause of perverting the scriptures 
+in other points of faith, and of declining from the 
+truth, to Popish, Socinian, and Arminian tenets ; be- 
+cause men cannot seriously take that for truth, which 
+they judge not to be according to godliness, But this 
+way of holiness will evidence, that these gospel doc- 
+trines which they refuse, are according to godliness; 
+and those tenets which a blind zeal for holiness moveth 
+them to embrace, are indeed contrary to holiness; 
+however satan appeareth to their natural understand- 
+ings as an angel of light in such tenets. Whatever 
+men say, it is certain, that Legalists are indeed the 
+Antinomians, I shall instance in some truths confirm- 
+ed by it. 
+
+1st, The doctrine of original sin, viz. not only the 
+guilt of Adam’s sin, and a corrupt nature, but utter 
+impotency to do spiritual good, and proneness to sin, 
+which is death to God, in all people according to na- 
+ture.* There is an utter inability to keep the law 
+truly in any point. Many deny this doctrine, because 
+they think, that, if people believe this, they will ex- 
+euse their sins by it, and be apt to despair of all striv- 
+ing to do good works, and leave off all endeavours, 
+and grow licentious; and they think it will be more 
+conducing to godliness to hold and teach, either that 
+there is no original sin o1 corruption derived from 
+Adam, or at least it is done away, either in the world, 
+by universal redemption, or in the church, by bap- 
+
+
+* Psalm li, 5. Rom. vy, 12. 
+
+
+286 THE GOSPEL MYSTERY Direct. XIV. 
+
+
+tism; and that there is free-will restored, whereby 
+people are able to incline themselves to do good, that 
+men may be more encouraged to set upon good works, 
+and their neglect made inexcusable, All this is in- 
+deed forcible against seeking and endeavouring for 
+holiness by the free-will and power of nature ; which 
+is the way of endeavouring which I directed you to 
+avoid: and if there were no new way to holinesssince 
+the fall, original sin might make us despair; but there 
+is a new birth, a new heart, a new creature; and 
+therefore we haye directed you to the seeking of holi- 
+ness by the Spirit of Christ, and willing good freely 
+by a spiritual power, as new creatures, partakers of a 
+divine nature in Christ. Yea it is necessary to know 
+the first Adam, that we may know the second,* to 
+believe the fall, and original sin, that we may be stir- 
+red up to fly to Christ by faith for holiness by free 
+gift, knowing that we cannot attain it by our own 
+power and free-will, There were no need of a new — 
+man or a new creation, if the old were not without 
+strength and life.t But original deadness cannot 
+hinder God’s working faith, and hungerings and thirst- 
+ings after Christ, by the Spirit, through the gospel, 
+in those that God chooseth to walk holily and blame- 
+lessly before him in love.{ And so we are made alive 
+in a new head, and become branches of another vine, 
+living to God by the Spirit, not by nature. 
+
+2ndly, It confirms us in the doctrine of predestination ; 
+which many deny, because they say, it takes men off 
+from endeayours, as fruitless, by telling them, that all 
+events are predetermined. This argument would be 
+more forcible against endeavours by the power of our 
+own free-will, but not at all against endeavours for 
+holiness by the operation of God, giving us faith and 
+all holiness by his own Spirit working in us through 
+Christ. We are to trust on Christ for the grace of 
+the elect, and God’s good-will toward men. Hleetion 
+
+
+* Rom. v, 12. f John iii, 5, 6. £1 Thess. i, 4,8. 
+
+
+Direct. XIV. OF SANCTIFICATION, 
+
+
+by grace destroys seeking by works, but not hy 
+grace. And we are here taught, to seek for salvation 
+only in the way of the elect: and we may conclude 
+that holiness is to be had by God’s will, and not by 
+our own; and it may move us to desire holiness by 
+the will of God. And, seeing it appears by this 
+doctrine of sanctification through Christ, that we are 
+God’s workmanship as to all the good wrought in us, 
+we may well admit, that he hath appointed his plea- 
+sure from eternity, without en the natural 
+liberty of our corrupt wills, which reacheth not unto 
+good works, Man’s natural free-will may well con- 
+sist with God’s decree; as in paradise. Decretum 
+radix contingentia. 
+8dly, It confirms us in the true doctrine of justifica- 
+tion and reconciliation with God by faith, relying on 
+the merits of Christ’s blood, without any works of 
+our own, and without considering faith as a work to 
+procure favour by the righteousness of the act, but 
+only as a hand to receive the gift, or as the very cat- 
+ing and drinking of Christ actually, rather than any 
+kind of condition entitling us to him as our food. 
+This great doctrine of the gospel many hate, as break- 
+ing the strongest bonds of holiness, and opening a 
+way to all licentiousness; for they reckon that the 
+conditionality of works to attain God’s favour, and 
+avoid his wrath, and the necessity of them to salva- 
+tion, are the most necessary and effective impulses to 
+all holiness; and they account, that the other doc- 
+trine opens the flood gates to licentiousness, And 
+truly this consideration would be of some weight, if 
+people were to be brought to holiness by moral sua- 
+sion, and their natural endeavours stirred up by the 
+terms of the law, and by slavish fears and mercenary 
+hopes; for the force of these motives would be alto- 
+gether enervated by the doctrine of justification by 
+free grace. But I have already shewed, that a man, 
+being a guilty dead creature, cannot be brought to 
+‘serve Goa ont of love by force of any of these motives ; 
+
+
+} 
+
+
+288 THE GOSPEL MYSTERY Direct. XIV. 
+
+
+and that we are not sanctified by any of our own en- 
+deavours to work holiness in ourselves, but rather by 
+faith in Christ’s death and resurrection, even the same 
+whereby we are justified, and that the urging of the 
+law stirs up sin ; and that freedom from it is neces- 
+sary to all holiness, as the apostle teacheth.* And 
+this way of sanctification confirms the doctrine of 
+
+
+justification by faith, as the apostle informeth.¢ For 
+
+
+if we are sanctified, and so restored to the image of 
+God and life, by the Spirit through faith, it is evident 
+that God hath taken us into his favour, and pardoned 
+our sins, by the same faith, without the law; or else 
+we should not have the fruits and effects of his fayour 
+
+
+thereby to our eternal salvation.{ Yea, his justice — 
+
+
+would not admit his giving life without works, if we 
+
+
+were not made righteous in Christ by the same faith, 
+And we cannot trust to have holiness freely given us 
+by Christ, upon any rational ground, except we can, 
+also trust on the same Christ for free reconciliation.) 
+
+
+and forgiveness of sins for our justification. Neither 
+
+
+can guilty cursed creatures, that cannot work by rea- 
+son of their deadness under the curse, be brought to 
+a rational love of God, except they apprehend his 
+loving them first freely without wong 
+
+objection and reason of so many controversies and 
+
+
+books written about it, is because they think that men — 
+will trust to be saved, however they live. Butsanc- — 
+
+
+tification is an effect of justification, and floweth from 
+the same grace; and we trust for them both by the 
+same faith, and for the latter in order to the former. 
+And such a faith, be it never so confident, tendeth not 
+to licentiousness, but to holiness; and we grant, that 
+justification by grace destroys holiness by legal endea- 
+vours, but not by grace. So that there is no need to 
+live a Papist and die an Antinomian.. 
+
+
+4thly, It confirms us in the doctrine of real union i 
+
+
+* Rom. vi, 11, 14, and vii, 4, 5. t Rom. viii, 1. t Rom. viii, a, i 
+
+
+$1 John iy, 19. 
+
+
+The great — 
+
+
+Direct. XIV. OF SANCTIFICATION. 289 
+
+
+with Christ so plentifully held forth in seripture, which 
+doctrine some account a vain notion, and cannot en- 
+dure it, because they think it worketh not holiness, 
+but oo whereas I have shewed that it is 
+absolutely necessary for the enjoyment of spiritual 
+life and holiness, which is treasured up in Christ, and 
+that so inseparably, that we cannot have it without a 
+real union with him.* The members and branches 
+cannot live without union with the vine and head, nor 
+the stones be part of the living temple, except they be 
+really joined, mediately or immediatel , to the corner 
+stone. 
+
+5thly, It confirms us in the doctrine of certain final 
+_ perseverance of the saints. They think this doctrine 
+maketh people careless of good works. I answer, it 
+maketh people careless of seeking them by their own 
+natural strength, and in a way of slavish fear; but 
+careful and courageous in trusting on the grace of 
+God for them, when they are brought, by regenera- 
+tion, heartily to desire them; setting upon the doin 
+of them in that grace.t And I have shewed, that all 
+fears of damnation will never bring persons to work 
+out of love, and that nothing will do it but a comfort- 
+able doctrine. 
+
+Thirdly, It has this excellent pipet y, that it is the 
+ean effectually-powerful, alone-sufiicient, 
+and sure way to attain true holiness. They that have 
+the truth in them, find it; and the truly bumbled 
+find it. People strive in vain when they seek it any 
+other way; therefore venture with the lepers, else 
+you die.{ All other ways either stir up sin, or in- 
+crease despair in you; as seeking holiness by the law, 
+and working under the curse doth, and breeds but 
+slavish and hypocritical obedienceat best, and restrains 
+sin only, instead of mortifying it.§ The Jews sought 
+another way, and could not attain it. And all that 
+
+
+* 2 Cor, xiii, 5, {1 Thess. v, 8, 11. $2 Kings vii. Isa, lv, 2, 3,7. 
+§ Gal. iv, 25. 
+23 
+
+
+290 THE GOSPEL MYSTERY Direct, XIV. 
+
+
+seek it another way, shall lie down in sorrow. And 
+that (1.) because, as we are under the law in our na- 
+tural state, we are dead, and children of wrath. And 
+the law curseth us, instead of helping us, and giveth 
+no life by its obligation. And we cannot work holi- 
+ness in ourselves. So that an humbled person finds 
+it in vain to seek holiness by the law, or his own 
+strength, for the law is weak through our flesh. 
+Seeking a pure life without a pure nature, is building 
+without a foundation. And there is no seeking anew 
+nature from the law, for it bids us make brick with- 
+out straw, and saith to the cripple, Walk, without 
+giving any strength. (2.) In hts way only God is 
+reconciled to us, even in Christ. And so he loves us, 
+and is a fit object of our love. And so, in this way 
+only, we have a new and divine nature by the Spirit 
+of Christ in us, effectually carrying us forth to holi- 
+ness with life and love, and have new hearts according 
+to the law, so that we serve God heartily according 
+to the new nature, and cannot but serve him, So 
+that here is a sure foundation for godliness, and love 
+to God with all our heart, might and soul ; and sin is 
+not only restrained but mortified, and not only the 
+outside made clean, but the inside, and the image of 
+God renewed ; and holy actings surely follow. We 
+sin not according to the new nature, though we are 
+not perfect in degree, beeause of the old nature, 
+
+Fourthly, itis a most pleasant way to those that 
+are in it;* and that in several respects. 
+
+1st. It is a most plain way, easy to be found to one 
+that seeth his own deadness under the law, and isso 
+renewed in the spirit of his mind, as to know and be 
+persuaded of the truth of the gospel. Though such 
+may be troubled and pestered with many legal 
+thoughts and workings; yet when they seriously con- 
+sider things, the way is so plain that they think it 
+folly and madness to go any other way; so that the 
+
+
+* Prov. iii, 17. 
+
+
+Direct. XIV. OF SANCTIFICATION. 291 
+
+
+way-faring men, though fools, shall not err therein,* 
+The enlightened soul cannot think of another way, 
+when truly humbled. And, when we are in Christ, 
+we haye his Spirit to be our guide in this way. So 
+that we need not be filled with such distracting 
+thoughts about knowledge of our way, as legal spirits 
+are about thousands of cases of conscience, which do 
+so multiply a7 them, that they despair of finding 
+out the way of religion, by reason of so various doubts 
+and manifold intricacies. Here, we may be sure, that 
+God will so far teach us our duties, as that we shall 
+not be misled with error, so as to continue in it to 
+destruction. What a trouble is it to a traveller to be 
+doubtful of his way, and without a guide, when his 
+business is of great importance, upon life and death ? 
+It is even an heart-breaking. But those that are in 
+this way, may be sure that though they sometimes 
+err, yet they shall not err destructively, but shall 
+discern their way again.t 
+
+2Qndly, It is ot to those that wall in it by the Spirit, 
+though it be difficult to get into it, by reason of the 
+opposition of the flesh or devil scaring us, or seducing 
+us from it. Here you have holiness as a free gift re- 
+ceived by faith, an act of the mind and soul. Who- 
+soever will, may come, take it, and drink freely, and 
+nothing is required but a willing mind ;{ but the law 
+is an intolerable burden, if duty be laid on us by its 
+terms. We are not left in this way to conquer lusts 
+by our endeavours, which is a successless work ; but 
+what is duty is given, and the law is turned into pro- 
+mises. We have all now in Christ, This is a catholic 
+medicine, instead of a thousand. How pleasant would 
+this free gift, holiness, be to us, if we knew our own 
+wants, inabilities, and sinfulness? How ready are 
+some to toil continually, and macerate their bodies in 
+a melancholy legal way to get holiness, rather than 
+perish for ever? And, therefore, how ready should 
+
+
+* Isa, xxxv,8. Prov. viii, 9. t Gal. iv, 7,10. t Johh vii, 38. 
+
+
+| ey | 
+
+
+292 THE GOSPEL MYSTERY Direct. XIV. 
+
+
+we be, when it is only, take and have; believe, and be 
+sanctified and saved? Christ’s burden is light by his 
+Spirit’s bearing it. No weariness, but renewing of 
+strength, 
+
+8rdly, It is a way of peace, free from fears and ter- 
+rors of conscience, that those meet with ronan ably 
+who seek salvation by works, for the law worket 
+wrath. It is not the way of mount Sinai, hut of Jer- 
+usalem. The doubts of salvation that pearls meet 
+with, arise from putting some condition of works be- 
+tween Christ and themselves, as hath appeared in this 
+discourse. But our walking in this way is by faith, 
+which rejects such fears and doubtings. It is free 
+from fears of satan, or any evil, and free from slavish 
+fears of perishing by our sins, faith laying hold on in- 
+finite grace, mercy, and power, to secure us: the Lord 
+is the keeper and shade on the right hand, Free and 
+powerful grace answers all objections. ; 
+
+4thly, It is a way that is paved with love, like So- 
+lomon’s chariot. e are set to God’s loving-kindness 
+and all the gifts of his love still before our eyes, Christ’s 
+death, resurrection, intercession, beforeour eyes; which 
+breed peace, joy, hope, love. You must believe for 
+your justification, adoption, the gift of the Spirit, and 
+a future inheritance, your death and resurrection with 
+Christ. In believing for these things, your whole way 
+is adorned with flowers, and hath thee fruits growing 
+on each side, so that it is through the garden of Eden 
+rather than the wilderness of Sinai. It is the office of 
+the Spirit or guide to be our comforter, and not a spirit 
+of bondage. Peace and joy are great duties in this 
+way. God doth not drive us on with whips and terrors, 
+and by the rod of the schoolmaster, the law, but leads 
+us, and wins us to walk in his ways, by allurements. 
+
+5thly, Our very moving, acting, walking, in this 
+way, is a pleasure and delight. Every good work is 
+done with pleasure; the very labour of the way is 
+pleasant. Carnal men wish duties were not necessary 
+and they are burdensome to them: but they are plea- 
+
+
+a 
+
+
+Direct, XIV. OF SANCTIFICATION. 293 
+
+
+sant to us, because we do not gain holiness by our own 
+carnal wrestling with our lusts and crossing them, out 
+of carnal fear, with regret and grief, and setting con- 
+science and the law against them, to hinder their act- 
+ings; but we act naturally, according to the new 
+nature, and perform our new spiritual desires, by 
+walking in the ways of God through Christ; and our 
+lusts and pleasures in sin are not only restrained, but 
+taken away in Christ, and pleasures in holiness freely 
+given us, and implanted inus. We have a new taste 
+and savour, love and liking, by the Spirit of Christ: 
+and loolx on the law, not as a burden, but as our pri- 
+vilege in Christ. 
+
+ifthly, It is a high exalted way, above all other 
+ways. Unto this way the prophet Habakkuk is ex- 
+alted, when, upon the failure of all visible helps and 
+supports, he resolves to rejoice in the Lord, and joy in 
+the God of his salvation ; and making God his strength 
+by faith, his feet should be as hind’s feet, and should 
+walls upon his high places. These are the heavenly 
+places in Christ Jesus, that God hath set us in, being 
+quickened and raised up together with him. 
+
+Ist, We live high here, for we live not after the 
+flesh, but after the Spirit, and Christ in us, with all 
+his fulness. We walk in fellowship with God dwell- 
+ing in us, and walking in us. And therefore, our 
+works are of higher price and excellency than the 
+works of others, because they are wrought in God ; 
+and are the fruits of God’s Spirit. And we may know 
+that they are accepted and good, by our gospel prin- 
+ciples, which others have not. 
+
+2ndly, We are enabled to the most difficult duties, 
+and nothing is too hard for us. See the great works 
+done by faith—works that carnal men think folly and 
+madness to venture upon, (they are so great) and 
+honourable achievements, in doing and suffering for 
+Christ. 
+
+3rdly, We walk in an honourable state with God, 
+and on cela ei terms; not as guilty creatures, to 
+
+2B 2 
+
+
+j 
+
+
+294 THE GOSPEL MYSTERY, EVc. Direct. XIV. 
+
+
+get our pardon by works, nor as bond-servants, to earn 
+our meat and drink, but as sons and heirs, poking 
+towards the full possession of that happiness to whic 
+we have a title; and so we have much boldness in 
+God’s presence. We can approach nearer to God than 
+others, and walk before him confidently, without 
+slavish fear, not as strangers, but as such who are of 
+his own family. And this prompts us to do greater 
+things than others; walking as free men. It is a 
+kindly way ; the law to us is a royal law—a law of 
+liberty and our privilege, not a bond and yoke of 
+compulsion, 
+
+4thly, It is the way only of those that are honour- 
+able and precious in the eyes of the Lord, even his 
+elect and redeemed ones, whose special privilege it is 
+to walk therein; no unclean beast geeth there. No 
+carnal man can walk in this way, but only those that 
+are taught of God. Nor would it have come into our 
+hearts without divine revelation. 
+
+5thly, The preparing this way cost Christ very dear. 
+It is a costly way. ; 
+
+6thly, It is a good old way, wherein thou mayest 
+follow the footsteps of all the flock. - 
+
+Tthly, It is the way to perfection. It leads to such 
+holiness which shall, in a while, be absolutely perfect. 
+It differs only in the degree and manner of manifesta- 
+tion from the holiness of heaven: there the saints live 
+by the same Spirit, and thesame God is allinall; and 
+have the image of the same spiritual man. Only here 
+we have but the first fruits of the Spirit, and live by 
+faith, and not by sight; and are not full grown in 
+Christ. Sanctification in Christ is glorification begun, 
+as Glorification is sanctification perfected, 
+
+
+THE 
+
+
+DOCTRINE OF JUSTIFICATION 
+
+
+OPENED AND APPLIED. 
+
+
+Romans iii, 23, 24, 25, 26. 
+
+
+“‘ For all have sinned and come short of the glory of God;”” 
+
+“* Belng justified freely by his grace, through the redemption that Is in 
+Jesus Christ :** 
+
+“ Whom God hath set forth to be a propitiation, through faith in his 
+
+* plood, to declare his righteousness for the remission of sins that are 
+passed, through the forbearance of God;”’ 
+
+“ To declare, I say at this time his righteousness; that he might be 
+just, and the justifler of him which believeth in Jesus." 
+
+
+Tux apostle, having confuted and overthrown all 
+justification, either of Jew or Gentile, by works, in 
+‘the foregoing discourse, is now proving what he as- 
+rted.* “That the righteousness of God without the 
+ww is manifested, being witnessed by the law and the 
+a hets ; even the righteousness of God which is by 
+aith of Jesus Christ unto all, and upon all them that 
+believe, for there is no difference :” shewing, that now 
+in the gospel times, there is no difference between Jew 
+and Gentile ; but that in the justification of both, the 
+righteousness of God, without the law is manifested. 
+This he proveth, by shewing what the gospel teacheth 
+concerning the way of justification; for the gospel 
+only reveals the righteoysness of God.t “I am not 
+ashamed of the gospel of Christ; for therein is the 
+righteousness of God revealed from faith to faith,” 
+
+
+* Vey, 21, 22. Rom, i, 16, 17. 
+
+
+| 
+
+
+296 THE DOCTRINE OF JUSTIFICATION 
+
+
+So the words are a declaration of the gospel way of 
+justification by the righteousness of God ; and that so 
+clearly and fully, and the benefit spoken of, so great 
+and glorious, being the first benefit that we receive by 
+union with Christ, and the foundation of all other 
+benefits: that my text is accounted to be evangelium 
+evangelii, a pe fs part of the written gospel, as 
+briefly, and yet fully expressing this excellent point 
+more than any other text. 
+
+Note in the words particularly, the subject declared 
+and explained, viz. justification of persons, or their 
+being justified. And the meaning of it here is to be 
+cleared and freed from all ambiguities and misunder- 
+standing. Justification signifieth making just, as saric- 
+tification is making holy, glorification making glori- 
+ous; but not making just by infusion of grace and 
+holiness into a person, as the Papists teach, confound- 
+ing justification and sanctification together; but mak- 
+ing Just, in trial and judgment, by a judicial sentence 
+discharging guilt, freeing from blame and accusation ; 
+approving, judging, owning, and pronouncing a per- 
+son to be righteous. Use alters the signification from 
+the notation. It is a juridical word or law-term, and 
+hath reference to trial and judgment, “ With me it is 
+a very small thing, that I should be judged of you, 
+or of man’s judgment: yea I judge not mine own self, 
+For I know nothing by myself, yet am I not hereby 
+justified: but he that judgeth me is the Lord.” And 
+it is so opposed to condemnation in judgment.* “Tf 
+there be a controversy between men, and they come 
+unto judgment, that the judges may judge them, then 
+they shall justify the righteous and condemn the 
+wicked.t By thy words thou shalt be justified, and 
+by thy words thou shalt be condemned.” And it is 
+opposed both to accusation and condemnation. “ Who 
+shall lay any thing to the charge of God’s elect? Who 
+is he that condenimeth? If 1 justify myself, my own 
+
+
+* Deut. xxv, 1. + Matt. xii, 37. 
+
+
+i 
+
+
+OPENED AND APPLIED. 297 
+
+
+mouth shall condemn me, I will maintain mine own 
+ways before him. I have ordered my cause; I know 
+that I shall be justified. Who is he that will plead 
+with me?” Here justification is plainly opposed to 
+the passing sentence of condemnation. “ Do, and 
+judge thy servants, condemning the wicked, to bring 
+is way upon his head, and justifying the righteous, 
+to give him according to his righteousness.” In this 
+sense it is a sin to justify the wicked. Actions must 
+be existent already, and brought to trial, that they 
+ip be justified. 
+ustice or righteousness consists not in the intrinsic 
+nature of an action, but in its agreeableness to a rule 
+of judgment: so that actions are called just and right- 
+eous by an extrinsical denomination, with relation to 
+God’s rule of judging. And this righteousness ap- 
+por by trying the action according to the rule, and 
+yy making an estimate of it; which estimate is either 
+approving or disapproving, justifying or condemn- 
+ing, finding it to be sin, or no sin, or breach of the 
+law. So we may say of the righteousness of persons, 
+with reference to such habits or actings. And, be- 
+cause the righteousness of righteous persons appears 
+when they are brought to trial and judgment, these. 
+fore they are said then to be in a special manner jus- 
+tified, as if they were then made righteous ; viz, a gn 
+their righteousness is declared; as Christ was said to 
+be begotten the Son of God at the resurrection ; be- 
+cause he was, then declared to be the Son of God.* 
+And in the same sense, we that are adopted at present, 
+are said to wait for our adoption, i.e. the manifesta- 
+tion of it. And thus even God is said to be justified, 
+when we judge of his actions as we ought to do, and 
+deem them to be righteous; though nothing can be 
+added to the infinite righteousness of God. And wis- 
+dom is said to be justified of her children. So justifi- 
+cation is not a real change of a sinner in himself, 
+
+
+* Rom. i, 4, 
+
+
+298 THE DOCTRINE OF JUSTIFICATION 
+
+
+(though areal change is annexed to it,) but only a 
+relative change with reference to God’s judgment. 
+And thus the word is used in the text, and so also in 
+matters of judicature throughout the scripture. Yea, 
+some contend against the Papists, that it is no where 
+in scripture used otherways, except by a trope bor- 
+rowed from this as the proper sense. And in the text 
+it is beyond all doubt meant of being deemed and ac- 
+counted just in the sight of God; for such a justifi- 
+cation is here only treated of as appears in the text. 
+And I have been the longer explaining the sense of 
+the word, because the mistaking it, by reason of its 
+composition, occasioned that Popish error, whereby 
+the benefit signified by it is obscured, yea overthrown ; 
+so that we had need to contend for the sense of the 
+word. 
+
+In the text we have, ; 
+
+1. The persofis justified, (1.) Sinners, (2.) Such 
+sinners of all sorts that shall believe, whether Jews 
+or Gentiles. 
+
+2. The justifier, or efficient cause, God. 
+
+3. The impulse cause, grace. 
+
+4, The means effecting, or material cause, the re- 
+demption of Christ. “ues 
+
+5. The formal cause, the remission of sins. 
+
+6. The instrumental cause, faith. 
+
+7. The time of declaring, the present time. 
+
+8. The end, that God may appear just. 
+
+From hence therefore will arise several useful ob- 
+servations, all tending to explain the nature of justifi- 
+cation, which shall be laid down, and cleared out of 
+the text, and confirmed particularly: and then J shall 
+make use of them altogether. : 
+
+OnsErvarion I. “They who are justified are sinners, 
+such who are come short of the glory of God;” 4. e. 
+of God’s approbation; of God’s image of holiness; of 
+eternal happiness.* 
+
+
+* 1 Thess, ii, 12, Rom.v,2. 2 Cor. iv, 17. 
+
+
+OPENED AND APPLIED, 299 
+
+
+1. The law condemns all sinners, and strikes them 
+
+- dead as with a thunder-bolt ; and adjudgeth them to 
+
+shame, confusion, and misery, instead of glory and 
+
+happiness, by the strict terms of it ; which none ful- 
+
+fil; neither can do; neither Jews nor Gentiles, There 
+is no hope, if free grace restored them not, 
+
+2. Christ came only to save sinners, and died for 
+this end, “ When we were yet without strength, in 
+due time, Christ died for the ungodly. This is a 
+faithful saying, and worthy of all acceptation, that 
+Christ Jesus came into the world to save sinners; of 
+whom I am chief. I am not come to call the righte- 
+ous, but sinners to repentance. The Son ‘of man is 
+come to save that which was lost.” And God must 
+be believed on to salvation, asa God that justifieth 
+the ungodly; he must believe as one that worketh 
+not, on him that justifieth the ungodly.* 
+
+OpseRvATION II. “Sinners of all sorts, without 
+difference, whether Jews or Gentiles, that believe, are 
+the subjects of this justification.” This is the scope of 
+the apostle to shew, that, whereas Jews and Gentiles 
+were universally condemned by the light and law of 
+nature, or the law written; so the righteousness of 
+God is upon all them that believe, without difference. 
+This was a great point to be defended against the Jews 
+in the apostle’s time, who appropriated justification 
+to themselves in a legal way and to such as were pro- 
+selytes to the law and circumcision ; and therefore the 
+apostle Paul vehemently urged it. And it was a point 
+newly revealed to the apostles, that the Gentiles might 
+be accepted, without turning Jews, and much prized 
+as a very glorious revelation. And it is confirmed. 
+
+. 1. Because, notwithstanding the Jews’ privilege of 
+the law, by reason of breaking the law, they had as 
+much need of free justification as the Gentiles, and no 
+worthiness above the Gentiles by their works, but 
+were rather greater sinners. And, when there is equal 
+
+
+* Rom. iv, v. 
+
+
+300 THE DOCTINE OF JUSTIFICATION 
+
+
+need and worth, God might righteously justify one as 
+well as another.* 
+
+2. God is the God of the Gentiles as well as of the 
+Jews; as he promised. 
+
+8. Abraham was justified before he was cireumcis- 
+ed, that he might be the father of those that believe, 
+though uncircumcised, that they might inherit the 
+same blessing. t 
+
+4, This will appear farther, by shewing, that jus-- 
+tification is only by faith, and without dependence 
+upon the law, merely by the righteousness of another ; 
+and so Jews and Gentiles are alike capable of it. 
+
+Osservation III. “That the justifier, or efficient 
+cause of justification, is God.” It is an act of God.t 
+It is God that justifieth. He only can justify autho- 
+ritatively and irreversibly. 
+
+1. Because he is the lawgiver, and hath power to 
+save and destroy.§ This case concerns God’s law, 
+and can only be tried at his tribunal. He is the judge 
+of the world. It is a small worthless thing to ie 
+justified by man, or by ourselves merely. || 
+
+2. To him the debt of suffering for sin, and acting 
+righteousness, is owed: and therefore he only can give 
+a discharge for payment, or release of the debtor.4] 
+
+Orsrervation IV. “ God justifieth souls freely by 
+his grace, Swpeov rn adrov yapirt freely by his grace.” 
+One of these expressions had been enough; but this 
+redoubling it sheweth the importance of the truth, to 
+quicken our attention the more. Here is the impulse 
+cause of justification, and his free manner of bestow- 
+ing it accordingly. And this signifies God’s free un- 
+deserved favour, in opposition to any works of our 
+
+- righteousness whereby it might be challenged as a 
+debt to us. “ Now to him that worketh,” is the‘re- 
+ward not reckoned of grace, but of debt. Ifby grace, 
+then it is no more of works: otherwise grace is no 
+
+
+* Rom. iii, 9. + Rom. iv, 10, 11, 12. + Rom, viii, 33. 
+§ Jam. iv, 12. |) 1 Cor. iv, 3, 4. ¥ Psalm li, 4. 
+
+
+OPENED AND APPLIED, 301 
+
+
+more grace. But if it be of works, then it is no more 
+grace.* By grace are ye saved, through faith; and 
+that not of yourselves: it is the gift of God: not of 
+works, lest any man should boast. Who hath saved 
+us, and called us with a holy calling, not according to 
+our works, but according to his own purpose and 
+grace, which was given us in Christ Jesus before the 
+world began. But is now made manifest by the ap- 
+pearing of our Saviour Jesus Christ, &c.” Grace is 
+mercy and love showed freely out of God’s proper 
+motion ; shewing mercy because he will shew mercy ; 
+and loving us because he will love us.t And this is 
+confirmed. 
+
+1. Because there was not, nor is any thing in us, 
+but what might move God to condemn us; for we 
+have all sinned.t 
+
+2. Because God would take away boasting, and 
+have his grace glorified and exalted in our salvation. 
+He will have all the praise and glory, though we have 
+the blessedness.§ ‘That in the ages to come, he 
+
+ight shew the exceeding riches of his grace, in his 
+kindness towards us, through Christ Jesus.” || 
+
+Oxservation V. God justifieth sinners through the 
+redemption that is in Jesus Christ, whom God hath 
+set forth to be a propitiation, through faith in his 
+blood.”’ This is the affecting means, or material cause 
+of our justification, viz. redemption and propitiation 
+through the blood of Christ ; which is the righteous- 
+ness of God treasured up in him. 
+
+By redemption is meant properly such a deliverance 
+as is by paying a price ; and so the words, redeem and 
+redemption, are frequently used. From this proper 
+signification it is borrowed to signifiy a deliverance 
+without price ;{[ or rather, by a metonymy of the 
+cause, put for the highest effect, the state of glory : 
+so that the state of glory is called redemption, as be- 
+
+
+* Rom. xi, 6. f Rom. ix, 15. t Eph. if, 3. 
+§ Eph. il, 7, 9. || Rom. iii, 27. ¥ Luke xxi, 28. 
+2c 
+
+
+| 
+
+
+302 THE DOCTRINE OF JUSTIFICATION 
+
+
+ing the completing and crowning effect of Christ’s 
+redemption ; therefore it is called the purchased pos- 
+session. 
+
+By a propitiation is meant that which appeaseth 
+the wrath of God for sin, and wins his favour. And 
+this propitiation of Christ is two ways typified: first, 
+in the propitiatory sacrifices whose blood was shed: 
+and 2ndly, by the mercy-seat; which was called the 
+propitiation, because it covered the ark, wherein was 
+the law : and the blood of the sacrifices for atonement 
+was sprinkled by the ee before it. And this 
+mercy-seat was a sign of God’s favourableness to a 
+sinful people, in residing among them, and was called 
+Traoryptov.™ : : 
+
+Now this doctrine appears confirmed for these 
+reasons. 
+
+1. Because Christ by the will of God gave himself a 
+ransom for us, to redeem us from sin and punishment, 
+wrath and curse.t He gave himself for us, to redeem 
+us from all iniquity, he gave himself to death for us ; 
+was delivered for our offences ; his death was the price 
+of our redemption, that we might be justified in God’s 
+sight. God gave him up to death, he spared him not, 
+that he might be made righteousness. “ He gave his 
+own life a ransom for many: and so he bought us 
+with this price.t He redeemed us not with silver and 
+gold, but with his precious blood, as of a lamb with- 
+out spot.”§ “ He suffered the penalty due to us for 
+sin.’ “He bare our sins in his own body on’ the 
+tree.”|| He was made a curse for us,” and thereb 
+redeemed us from the curse of the law: and, that he 
+might be made a curse, he was made sin for us. He 
+subjected himself to the law, in active as well as pas- 
+sive obedience; and obeyed his Father even to death, 
+doing and suffering at his commandment; and his 
+obedience was for our justification. So Christ satis- 
+
+
+* Heb. ix, 5. + Tit. ii, 14. $11 Cor, vi, 20. 
+§1 Pet. i, 18, 19. || Gal. iii, 13, { 2 Cor. v, 21. 
+
+
+OPENED AND APPLIED. 303 
+
+
+fied both for our debt of righteousness, and debt of 
+punishment: for our faultiness, taint of sin, and want 
+of righteousness, as well as for our guilt, and obnoxi- 
+ousness to punishment; that we might be free from 
+wrath, and deemed righteous in God’s sight. Hissuf- 
+fering was the consummating act of redemption ; and 
+so all is attributed to it; eyen to his blood; though 
+other doings and sufferings concur, We are righte- 
+ous by him, as we were guilty by Adam.* 
+
+2. God accepteth this price as a satisfaction to his 
+justice, which he shewed in raising Christ from the 
+dead, and so acquitting him from all our sins: “ He 
+was justified in the Spirit for us; raised for our justi- 
+fication. It is God that justifieth: who is he that 
+condemneth? It is Christ that died, yea rather that 
+is risen from the dead. By one offering he hath per- 
+fected for ever them that are.sanctified. This sacri- 
+fice was asweet smelling savour unto God,” If Christ 
+had sunk under the weight of our sins, and not been 
+raised, the payment had not been finished, and so the 
+debt not discharged, of righteousness, because I go 
+to my Father. 
+
+3. This redemption is in Christ, as to the benefit of 
+it; so that it cannot be had, except we be in Christ, 
+and have Christ: so the text expresseth, and sheweth, 
+that he is the propitiation ; and, as so, he is our right- 
+cousness, we a redemption and righteousness in 
+him ; and therein our freedom from condemnation. 
+Christ died, that his seed might be justified; those 
+that are in him by a spiritual generation. 
+
+Oxservation VI. “The formal cause of justifica- 
+tion, or that wherein it consists, is the remission of 
+sin, 7. e, not only the guilt and punishment is remoy- 
+ed, but the fault ; because it is a pardon grounded on 
+justice, which cleareth the fault also. By him we 
+are justified from all things that the law charges us 
+with.”+ | 
+
+
+/ 
+
+
+* Rom. y, 12. +1 Cor. iv, 15. t Acts xiii, 39. 
+
+
+304 THE DOCTRINE OF JUSTIFICATION 
+
+
+In men subject to a law, there is no middle condi- 
+tion between not imputing sin, and imputing righte- 
+ousness: and so these terms are used as equivalent.* 
+“ Through this man is preached the forgiveness of 
+sins: and by him all that believe, are justified, &c.” 
+« This is through the bloodshed of Christ.” 
+
+Oxsevation VII. “God justifieth a sinner through 
+faith in Christ’s blood.” Faith is the instrumental 
+cause of receiving this benefit, faith in the blood of 
+Christ. 
+
+1. This faith is a believing on Christ, that we may 
+be justified by him; “knowing that a man is not 
+justified by the works of the law, but by the faith of 
+Jesus Christ that we might be justified by the faith 
+of Christ, and not by the works of the law.’’? We be- 
+lieve in Christ for justification, out of a sense of our 
+inability to obtain justification by works. 
+
+2. This faith doth not justify us, as an act of right- 
+eousness, earning and procuring our justification by 
+the work of it ; for this would have been justification 
+by works, as under the law; diametrically opposite to 
+grace, and free gift: which excludes all consideration 
+of any works of ours, to be our righteousness, under 
+any denomination or diminutive terms whatever, 
+whether you call it legal or evangelical ; though you 
+reckon it no more than the payment of a pepper- 
+corn.t Faith in this case is accounted a not-work- 
+ing.t And it is not faith that stands instead of the 
+righteousness of the law, but the righteousness of 
+Christ, which satisfieth for what we ought to have 
+done or suffered; as hath been shewed. 
+
+3. God justifieth by faith, as the instrument where- 
+by we receive Christ, and his righteousness ; by which 
+we are justified properly : and we are justified by faith 
+only metonymically, by reason of the righteousness 
+received by it: and to be justified by faith and by 
+Christ, is all one. By faith we receive remission of 
+
+' 
+* Acts xiii, 38, 39. + Rom. xi 6. t Rom. iv. 5. 
+
+
+OPENED AND APPLIED. 305 
+
+
+sins. Its effect, is the reception of justification, not 
+the working in it ; as a man may be said to be main- 
+tained by his hands, or nourished by his mouth, when 
+those do but receive that which nourisheth, his food 
+and drink. The cup is put for the liquor in the cup. 
+Christ is in us by faith ; received, ate, drank.”* 
+
+4, This faith is to be understood exclusively, to all 
+our works for justification. We defend, against the 
+bie, ets justification by faith only: and there is 
+nothing more fully expressed in scripture phrase. 
+
+5. We must understand faith in a full sense, of re- 
+ceiving remission of the fault, as well as of the punish- 
+ment. We believe, God accounts not the fault to us 
+of the least sin, And, where faith is said to be ac- 
+counted for righteousness, it is because of the object 
+it receives. We believe, Christ’s righteousness is im- 
+puted to us, as our sins are to him: or else we receive 
+not remission of sins by believing: which is contrary 
+to charging us with sin and condemnation: which 
+charging signifieth sin imputing. Together with the 
+removal of the charge of sin, we receive the gift of 
+righteousness. And this we have in the reception of 
+Christ’s redemption and bloodshed. 
+
+Oxseryation VIII. “That God, in setting forth 
+Christ to be a propitiation through faith in his blood, 
+aimed to declare his righteosness now under the gos- 
+pel, for the remission of sins that are past as well as 
+present; of those sins that were past, and committed 
+under the Old Testament, which was God’s time of 
+forbearing, in pardoning long before his justice was 
+actually satisfied by Christ’s atonement. ‘he ground 
+of those pardons is now reyealed by Christ’s coming ; 
+that those pardons may be no blemish to the justice 
+of God now satisfied.§ ~ 
+
+1. By this righteousness is meant that righteousness 
+of God mentioned in the proposition; of which the 
+text is but a Pedeantion: viz, the righteousness of 
+God: not his essential righteousness, that which is an, 
+
+
+* John i, 12. ¢ Rom, iii, 28. ¢ Eph. i, 7. § Exod, xxxiv, 7. 
+2c2 
+
+
+366 THE DOCTRINE OF JUSTIFICATION 
+
+
+essential pragerty of God; but a righteousness which 
+is upon all them that believe; Christ’s righteousness, 
+which is the end of the law;* and therefore called 
+God’s righteousness; that which Christ wrought for 
+us, which is given to us, and we receive by faith: 
+that whereby Christ answered the law for us; by 
+which as the price, he redeemed us: which is called 
+God’s righteousness, because it is of God’s working, 
+and it only hath God’s acceptance and approbation ; 
+as Christ is called the Lamb of God, because God 
+provided him, and accepts him as an offering.f Upon 
+the like account, Christ’s kingdom is ealled the king- 
+dom of God, because God’s own hand sets it up, and 
+maintains it, and rules it. Christ, who became obe- 
+dient to death, to work this righteousness, was God 
+as well as man.{ And this is that righteousness 
+which the apostle opposeth to his own; that which 
+is in Christ; which he had through faith. And this 
+is the righteousness of God here, and in other places ; 
+the righteousness which is of God by faith.§ 
+
+2. God aimed at declaring, in gospel times, his 
+righteousness in forgiving sins past, in the time of 
+God’s forbearance under the Old Testament; and also 
+in justifying those that believe in Christ at present: 
+for it was by the righteousness of the same Christ, 
+that sins were pardoned under the Old Testament as 
+well. as pelea Christ was the Lamb slain from the 
+foundation of the world; only the righteousness was 
+not actually fulfilled and revealed then, but it was 
+shadowed out then, by the sacrifices, ransoms, redemp- 
+tions, &c. So this was a time of God’s forbearance; 
+because he pardoned sins, as it were without present 
+payment and satisfaction. He had patience, and did 
+not exact the debt, until Christ paid all. But then 
+God promised, that he would reveal his righteousness 
+in due time. And this he hath done by the ap- 
+pearance of Christ. 
+
+
+* Rom. x, 3, 4. + John i, 29. } Phil. ii, 6,8. ' § Phil. iii, 9. 
+|| Heb. xiii, 8. 4 2 Tim. i, 10. 
+
+
+OPENED AND APPLIED. 807 
+
+
+Oxservation IX. “The end of this manifestation 
+is, that God may appear just, in forgiving sins past 
+as well as present; and the justifier of him that be- 
+lieveth in Jesus.” Here the essential property of 
+God is exalted, and appears glorious, in justifying by 
+the forementioned righteousness of God. 
+
+1. As God justifieth freely by grace, he would 
+appear hereby just in justifying sinners: for it would 
+be a blemish to God’s justice, to forgive without a 
+satisfaction, and righteousness performed; and there- 
+fore, though he be gracious and merciful, yet he will 
+not clear the guilty. And so the saints of God con- 
+cluded, that God had a righteousness and redemption, 
+whereby he forgave sin, though it was not then re- 
+vealed.* God would have justice and mercy to meet 
+in our salyation.t 
+
+God would have it appear, that he only is just, and 
+therefore saveth us, not by our own righteousness, 
+but by his, which is indeed the more exalted by our 
+unrighteousness occasionally, though God is not there- 
+fore unrighteous in taking vengeance. 
+
+3. God would appear to be the only procurer and 
+worker of our righteousness, and so our justifier by 
+way of procurement, as well as by way of judgment ; 
+and so he will justify us by a righteousness of his 
+own, and not by our own: that we may glory in the 
+Lord only.t 
+
+Usz I. It serves for instruction by way of encourage- 
+ment and consolation; that the great happiness of 
+those that are in Christ, is that their sins are forgiven, 
+and they accounted just in the sight of the Judge of 
+all the world, through the redemption that is by the 
+blood of Christ; and this benefit contains all blessed- 
+ness of life, and the consequences thereof.§ That 
+man unto whom God imputeth righteousness without 
+works, hath a blessedness therein, and such an exten- 
+five blessedness in regard of the spiritual part, as 
+
+a) 
+/ 
+* Psa, li, 14. + Psa. lxxxv, 10. {1 Cor.i, 30,31, | § Rom. iy, 6, 
+
+
+308 THE DOCTRINE OF JUSTIFICATION 
+
+
+Abraham had, comprehending all spiritual blessings 
+in Christ: For they which be of taith, are blessed 
+with faithful Abraham.* For this righteousness 
+being the fundamental blessing, is revealed from faith 
+to faith, and they that are by faith just and justified 
+through that righteousness, do live by faith always 
+erthme it, and receiving nourishment and comfort 
+it. j 
+71. They are delivered from the charge of sin and 
+fault before God. Tis ¢yxanoer; “ Who shall lay any 
+thing to their charge, or be suffered to bring in, at 
+God’s tribunal, any indictment, charge, or accusation 
+against them? It is God that justifieth them: and 
+Christ hath died, and rose again. ‘They are redeemed 
+from among men, being the first fruits to God and 
+the Lamb. In their mouth their is no guile, and 
+they are without fault (4 yao) before the throne 
+of God.’ t 
+2. They are delivered from all condemnation in 
+sentence and execution; the curse and wrath of God.§ 
+“Christ hath redeemed us from the curse of the law, 
+being made a curse for us. Jesus which delivered us 
+from the wrath to come. Thou hast taken away all 
+thy wrath, thou hast turned thyself from the fierce- 
+ness of thine anger.” The wrath of Godis an msup- 
+portable burthen, and the foundation of all miseries; 
+which foundation is razed, and afoundation of blessed- 
+ness laid, whereby we have peace. with God, and are 
+fully reconciled to God.|| You that were sometime 
+alienated, and “enemies in your mind by wicked 
+works, yet now hath he reconciled, in the body of his 
+flesh through death, to present you holy and un- 
+blameable and unreproveable in his sight.”” Now, 
+where there is no blame before God, there can be no 
+wrath from God. 
+3. They have no need to seek salvation by the 
+
+
+* Gal. iii, 9. + Rom, i, 17. t Rey. xiv, 4, 5. § Gal. iii, 13. 
+|| Rom. iv, 15. 
+
+
+OPENED AND APPLIED, 309 
+
+
+works of the law, and so are delivered from a yoke 
+that cannot be borne; from endless observances that 
+Pharisees and Papists have heaped up ; from continual 
+frights, doubts, fears, and terrors, by the law; from a 
+wrath-working law; from a sin-irritating law; from 
+a killing law, administration of death and condemna- 
+tion, Mount Sinai, which gendereth to hondage.* 
+
+4, Hence, they are delivered from’ a condemning 
+conscience, which otherwise would still gnaw them 
+asa worm.t “If the blood of bulls and of goats, and 
+ashes of an heifer sprinkling the unclean, sanctifieth 
+to the purifying of the flesh; how much more shall 
+the blood of Christ, who, through the eternal Spirit, 
+offered himself without spot to God, purge your con- 
+science from dead works, to serve the living God.’’ 
+oor conscience is a foul conscience; and it will 
+
+ke all services and duties dead works, unfit for 
+the service of the living God: it is the blood of Christ 
+applied by faith, that takes off this foulness of guilt 
+from the conscience; therefore the blood of Christ 
+hath the only efficacy this way, to take off the con- 
+seience of sin. Hence they come to have a good con- 
+science ; void of offence towards God. 
+
+5. It is an everlasting righteousness, by which their 
+standing in Christ is secured. ‘It is an eternal redemp- 
+tion that is obtained ;§ whereas, by the law, those that 
+were justified to-day typically, might fall under con- 
+demnation, so far as to need another sacrifice for sin 
+to-morrow : they had no real purgation of conscience 
+from sin by those sacrifices; and, therefore, could not 
+have a lasting delivery of their consciences from guilt 
+by them. Here it is far otherwise: here is an effec- 
+tual, complete, and perpetual redemption, reaching 
+the conscience of the sinner, and for the purging away 
+all sins, past, present, and to come.|| 
+
+6. It is a righteousness of infinite value, hecause it 
+
+| 
+* Gal, iv, 24, } Heb. ix, 14, t Acts xxiv, 16.) § Heb. ix, 12. 
+| 1 John i, 7. 
+
+
+310 THE DOCTRINE OF JUSTIIFICATION 
+
+
+is the righteousness of one that is God, and his name 
+is JeHovan our Ricureousness.* It is, therefore, 
+more powerful to save, than Adam’s sin was to destroy 
+or condemn, Christ is here the power of God; hence 
+we are powerful, and conquer, by faith. Likewise 
+there is a marvellous plenty of mercy and grace, that 
+is brought to us by JeHovau our righteousness, plen- 
+teous redemption. It must be most plentiful, because 
+infinite. Though no creature could satisfy for sin, 
+yet Jenovan could do it abundantly ; and, therefore, 
+in Christ, God’s mercy prevails high above our sins.t 
+
+7. God’s grace and justice are both engaged on our 
+behalf in this righteousness, Justice is terrible, and 
+seems to be against mercy, and dreadful to natural 
+people, but it is otherwise to believers; it is pacified 
+and appeased through this righteousness—it is satisfied 
+by Christ for our sins. Justice becomes our friend— 
+joins in with grace, and instead of pleading against us, 
+it is altogether for us; and it speaks contrary to what 
+it speaks to sinners out of Christ. We may also plead 
+justice for forgiveness through merey in Christ. 
+
+8. We may be sure of holiness and glory, of delivery 
+from the power and dominion of sin, as well as the 
+charge of it before God, and guilt in our own con- 
+sciences: for this was the end of Christ’s death. 
+Whom he justified, them he also glorified. The law 
+was the strength of sin, for sin had its title to rule in us 
+by reason of the curse ; and thence Satan often rules: 
+but here is our deliverance from sin and Satan, yea 
+from death too. And, by the same reason, we are 
+raised by this excellent righteousness, to a better state 
+than we had in Adam at first; for Christ died that we 
+might receive the adoption of sons, and the Spirit ; 
+that we might be brought under a new covenant, and 
+be set in the right way of holiness, serving out of 
+love. 
+
+9. We may be sure, hence, of a concurrence of all 
+
+
+' 
+
+
+* Jer, xxiii, 6. Heb. ix, 14. + Psal, ciii, 11, 12, $ Gal. ili, 14. 
+
+
+OPENED AND APPLIED. 311 
+
+
+things for our good. All things shall work for good, 
+through grace, to bring us to glory; because God is 
+for us, who is the Creator and Governor of all things. 
+God will neyer be wroth with us, nor rebuke us in , 
+anger any more. 
+
+10. Hence, we may come before God without con- 
+fusion of face, yea with holiness to the throne of grace 
+in Christ’s name, and expect all good things from him. 
+“In whom we have boldness and access with confi- 
+dence by the faith of him. Let us draw near with 
+full assurance of faith.’’ Christ’s blood pleads for us 
+in heayen, and we may, and are to plead boldly a 
+satisfaction on his account. 
+
+11. We live in those times when this righteousness 
+is fully revealed, and sin made an end of. Thisis our 
+happiness above those that lived before Christ’s com- 
+ing, who were under types and shadows of this righ- 
+teousness; whereas we have the substance in its own 
+light; and so we are not under the law, which they 
+were under, as a schoolmaster. We are not servants, 
+but sons called to liberty. The preaching the old co- 
+venant as a church ordinance to be urged, now is 
+ceased ; the law is not to be preached now in the 
+same terms as Moses preached it, for justification ; it 
+is contrary in terms to faith, though it were subser- 
+vient. 
+
+Use I1.—For examination, whether we be in Christ, 
+and have received this justificatlon by faith with all our 
+hearts. 
+
+1. Consider whether you be made really sensible of 
+sin, and condemnation by the law. ‘This is necessary 
+to make us fly to Christ,)and for this, as one great 
+end, was the law given. Without sense of sin, there 
+will be no prizing of Christ, and desire of holiness, but 
+rather abuse of grace to carnal security and licentious- 
+ness. ‘Those that were stung with the fiery serpents, 
+looked up to the brazen serpent. 
+
+2. Dost thou trust only upon free mercy for justi- 
+fication in God’s sight, renouncing all thy works 
+
+
+{ 
+
+
+312 THE DOCTRINE OF JUSTIFICATION 
+
+
+whatever in this point, as not able to stand in them 
+before God’s exact justice, crying mercy with the poor 
+ublican? Perfectionists, and self-righteous persons 
+have no share in this matter. Paul, notwithstand- 
+ing all that the world might think he had to plead for 
+himself, counted all but dung, that he might win 
+Christ and be found in him, not having his own righ- 
+teousness, which is of the law, but that which is 
+through the faith of Christ, the righteousness which 
+is of God by faith; 7.e., the redeeming and propitiating 
+righteousness of Christ, whereby he desired only to be 
+justified, and which he believed in for that end, op- 
+posing it to any thing inherent in himself; which, 
+therefore, he calls his own righteousness.* : 
+
+38. Dost thou trust with any confidence on Christ, 
+not continuing in a mere suspense? In a way of mere 
+doubting we can receive no good thing from God. 
+Mere doubting will not loose the conscience from the 
+guilt of sin, but leaveth the soul under terror. Abra- 
+ham’s confidence is the example and: pattern of our 
+justifying faith, that we should endeavour to come up 
+unto, believing with a fulness of persuasion, in hope 
+against hope. Though a believing soul may be as- 
+saulted with many doubtings, yet it fights against 
+them, and doth not give up ifsclt to the dominion of 
+them. It hath always something contrary to them, 
+and striving with them, 
+
+4, Dost thou come to Christ for remission of sins, 
+for the right end, namely, that thou mayest be freed 
+from the dominion of sin before the living God? If 
+otherwise, thou dost not receive it for the right end ; 
+and desirest not really the favour and enjoyment of 
+God, and to be in friendship with him. E 
+
+5. Dost thou walk in holiness and strive to evidence 
+this justification by the fruits of faith in good works? 
+If otherwise, thy faith is but a dead faith, for a true 
+faith purifieth the heart. If Christ be thine, he will 
+
+
+* Phil. iii, 7, 8,9. Rom. iy, 5. 
+
+
+OPENED AND APPLIED. 318 
+
+
+be sanctification as well as righteousness.* If God 
+hath taken thee into his favour, he would doubtless 
+cleanse thee. Though faith alone justifies, without 
+the concurrence of works, to the act of justification, 
+yet that faith is not so alone as not to be accompanied 
+with good works ; as the eye alone seeth, yet it is not 
+alone without other members. So the apostle James 
+declareth faith that is alone to be dead, and biddeth 
+us to shew our faith by our works; which is to be un- 
+derstood, not as if works were the conditions of attain- 
+ing justification, but sure evidences of justification 
+attained by faith, and very necessary.f ‘The gospel is 
+no covenant of works requiring another righteousness 
+for justification by doing for life. Works justify us 
+from such accusations of men as will deny us to have 
+justification by faith, or that we havea true and lively 
+faith, or are good trees ;+ not as being our righteous- 
+ness themselves, or conditions of our having Christ’s 
+righteousness, or qualifying us for it. 
+
+Use III.—Jt serveth for exhortation to several duties. 
+
+1. To the wicked. It is dehortation unto them 
+from continuance in sin, under God’s wrath, running 
+headlong to damnation, for here is a door of mercy 
+opened to them ; a righteousness prepared, that they 
+may be ark accepted of God. Some men are des- 
+perados: “They have loved strangers, and after them 
+they will go.’§ They are resolved to run the risk of 
+it, and please themselves, that they shall speed as well 
+as others. And some men would be justified, but seek 
+for it na wrong way. Some will go to the Pope to 
+quiet their consciences by his deceits; some to their 
+own works and performances: but you are exhorted 
+to look out for true righteousness. Christ saith in the 
+gospel, Behold me, behold me; the kingdom of hea- 
+ven is open; merey and Hk eae are freely 
+offered. Repentance is preached with remission of 
+
+
+*1 Cor. i, 30. eae 1,9. John xiii, 8. t James ii, 14, 15. 
+t Matt. xii, 33, 37. § Jer. fi, 25. > 
+Ba 2D 
+
+
+{ 
+
+
+314 THE DOCTRINE OF JUSTIFICATION 
+
+
+sins. Beware you do not neglect this acceptable time 
+—this day of salvation. For, 
+
+(1.) If you do, you remain under the- wrath of 
+God ; under the curse of the law: which like a flood 
+sweeps away all that are found out of this ark, the 
+Lord Jesus Christ. 
+
+(2.) Your condemnation will be aggravated by re- 
+fusing so great salvation. You will have no cloak for 
+your sins when you refuse mercy. You cannot say 
+you are undone, by your past sins, beyond recovery, 
+and therefore it is in vain to strive; for, behold, re- 
+mission of sins is proclaimed unto you. And what a 
+horrid sin is it to despise the blood of the Son of God? 
+Oxssection I. “If God justify the ungodly, what 
+need J forsake ungodliness at all.” 
+
+Ans. Thou canst not seek justification truly, except 
+thou hast a mind to live to God in friendship with 
+him, for justification is God’s way of taking us into 
+friendship with him, and of reconciling us. The use 
+thou art to make of it, is to seek God’s friendship b 
+it, and the enjoyment of him. Why doth a man seek 
+a pardon if he intend to go on in rebellion, and stand 
+out in defiance of his prince?’ They seek pardon ina 
+mocking way, that intend not to return to obedience, 
+
+Oxssxcrion I]. “ My sins are so great that I have no 
+encouragement to hope.” 
+
+Ans. Christ’s righteousness is for all sorts of sinners 
+that believe, whether Jews or Gentiles; and how 
+great sinners were of both sorts; and even for those 
+that killed and murdered the Lord of Glory; for the 
+chief of sinners. Where sin abounds, grace super- 
+abounds. Your sins are but the sins of a creature, but 
+his righteousness is the righteousness of God. 
+
+Exuorrarton II. It exhorts those that have a mind 
+to turn to God, to turn the right way, by faith in © 
+Christ for justification. Let them not seek by works, 
+as most in the world do, and all are pronetodo. But 
+
+
+' 
+* Psal.. 1,055, 6. 
+
+
+OPENED AND APPLIED. 815 
+
+
+this doctrine seems very foolish, yea, pernicious to a 
+natural man. “ Become a fool, that thou mayest be 
+wise ;”* otherwise you will labour in the fire, and 
+weary yourselves for very vanity, and be under con- 
+tinual discomforts and discouragements: for you can 
+do no good work while you are in the flesh, under the 
+law, and its curse, before God has reecived you into 
+fayour, for justification is in order of nature before 
+true holiness of heart and life. Faith is the great 
+worl: and mother duty, and therefore, while you be- 
+lieve not, you dishonour Christ and his death. There- 
+fore come boldly, though you have been a great sinner, 
+and seek righteousness in Christ with holiness,t 
+
+Q. But how shall I get faith? 
+
+A. Faith is the gift of God, and by the gospel. 
+Faith cometh by hearing the gospel preached ; and 
+that comes, in working faith, not in word only, but 
+in power, beyond what can be done by natural or 
+human attainment. Therefore if thou hast no begin- 
+ning of it in thee, thy only way is to attend to the 
+gospel, and to meditate on thy sin and misery, and 
+Christ’s excellency, that so thou mayest be inclined in 
+thy heart to believe, for this is the way God useth to 
+beget faith. But if thou hast a desire and inclination 
+to fly from thyself to Christ, in the bent of thy heart, 
+so that thou preferrest Christ above ali, then the spirit 
+hath begun, and will carry on the work, so that now 
+thou mayest pray confidently for faith. + 
+
+OxsECTION ie “But without holiness no man shall 
+see the Lord. And how shall I get holiness? I can- 
+not sanctify myself; and this confidence you speak of 
+may slacken my diligence.” 
+
+ns. If thow hast righteousness in Christ, God will 
+make thee holy; and this confidence is the only way 
+to get holiness, because of that righteousness. The 
+new covenant is confirmed in him, which promiseth 
+anew heart. If sin be forgiven, thou shalt be deli- 
+
+
+/ 
+
+
+* | Cor. iii, 18. t Rom. vii, 1. { Songi, 4. Luke xi, 13. 
+
+
+316 THE DOCTRINE OF JUSTIFICATION 
+
+
+vered from its power, and quel by the same 
+death and resurrection of Christ whereby thou art 
+justified. 
+
+Exuorration III. It exhorteth them that are jus- 
+tified by faith. 
+
+1, To walk humbly as being nothing of themselves ; 
+to acknowledge themselves enemies to God by nature, 
+and acknowledge their sins in the greatness and hein- 
+ousness of them, that they are saved freely by the 
+righteousness of another, not by their own: yea that 
+they are so far fallen, that the justice of God would 
+have been against them, if it had not been satisfied ; 
+but now they see that Christ hath satisfied, and his 
+righteousness is above their sins,* : 
+
+2. To praise and glorify God through Christ for his 
+grace. Oh! what abundant grace and love appears in 
+God’s washing and cleansing us by his Son’s blood ; 
+and in making his Son sin and a curse for us? And 
+what a glorious and excellent righteousness hath God 
+given us in Christ?> 
+
+3. To walk comfortably, upon the account of this 
+righteousness. Triumph over sin and affliction, Be 
+confident in expecting great things from God; for, 
+though you may be unworthy, and grace will shew 
+you your own unworthiness, yet you stand upon the 
+righteousness of Christ. Glory in the hope of God’s 
+glory ; for, if Christ died to reconcile you when you 
+were enemies, much more will he save you by his life, 
+now you are reconciled, Ask boldly for what you 
+want, for God is in Christ’s manhood as the mercy- 
+seat. Whenever sin stings you, and objections trouble 
+you, look to the brazen serpent ; confess sin and trust 
+for pardon ; meditate on Christ’s righteousness, and 
+the abundance of grace in him. If you find never so 
+much ungodliness, no good qualifications, yet Christ 
+is at hand for your comfort. In all your sins apply 
+yourselves to this fountain. If sin lie on the eon- 
+
+
+' 
+* Ezek. xxxvi, 31. + Isa. Ixi, 10. 
+
+
+—— 
+
+
+° 
+
+
+OPENED AND APPLIED. 317 
+
+
+science, it weakens peace and spiritual strength. Lie 
+not under guilt smith a slavish fear: you have a righ- 
+teousness to deliver you from it; apply it by faith, 
+that you may have no more conscience of sin as con- 
+demning. You have a better righteousness than any 
+perfectionists can have. 
+
+4. Hold fast this way of justification, notwithstand- 
+ing all the noise that is made in the world against it; 
+for the devil will strive to scare you out of it, or steal 
+it from you ; as he did from the Jews, from the Ga- 
+latians, the Papists, and many Protestants. And the 
+apostle reckons it is by a spiritual bewitchery. He 
+will strive to get you to trust on works, and tell you, 
+it is for the promoting of holiness, and to trust on 
+works to get Christ, and to lay works lowest in 
+the foundation. If you lose this righteousness of 
+Christ, under any colour or pretence whatever, you 
+lose all.* Do not so dishonour Christ, as to think of 
+procuring that by works which you have fully in 
+Christ. Think not that the gospel requires another 
+justification to gain this: for the gospel is no legal 
+covenant, but a declaration of the righteousness of 
+faith; and we, being justified, are heirs by adoption 
+and promise. This is the doctrine which glorifieth 
+God, and abaseth the creature ; whichis a great mark 
+of its truth. Beware, therefore, of carnal reason ; 
+which will go quite contrary, and make Christ’s 
+righteousness a stumbling-stone to thee.t 
+
+5. Walk as one that enjoys the favour of God in 
+Christ. Let him have the honour of it. Walk there- 
+fore in holiness, knowing by what price you are re- 
+deemed. Love God that hath loved you first.[ Be- 
+lieve that God will enable you for the practice of 
+holiness. ; Particularly, walk in love to the saints ; 
+exercise forgiveness to your enemies. Sense of your 
+own sins, and God’s forgiving you, will cause you 
+to pity and forgive others ; else you cannot pray or 
+
+
+* Gal. y, 2, 3. t1 Pet. ji, 8. , t 1 John iv, 19, § Rom. vi, 14, 
+2D 2 
+
+
+318 THE DOCTRINE OF JUSTIFICATION, ETC. 
+
+
+trust for forgiveness of your own sins upon reasonable 
+grounds.* Desire grace may be exalted upon others ; 
+and wait patiently for the full declaration of justifica- 
+tion at the great day;t for here your justification is 
+known only by faith; but in outward things you are 
+dealt with as a sinner: then your righteousness shall 
+appear openly, and you shall be dealt with according 
+oi 
+
+
+* Eph. iv, 31,32. Matt. vi, 14, 15, and xviii, 21. 
++ Gal. v,5. Acts ifi, 19. 
+
+
+INDEX. 
+
+
+DIRECTION I. 
+
+
+Paar. 
+
+
+THatT we may acceptably perform the duties of holiness and right- 
+eousness required in the Jaw, our first work is, to learn the 
+powerful and effectual means whereby we may attain to so 
+
+
+greatanend. - - r - - a s 
+
+
+DIRECTION II. 
+
+Several endowments and qualifications are necessary to enable us 
+for the immediate practice of the law. Particularly we must 
+have an inclination and propensity of our hearts thereunto; 
+and therefore we must be well persuaded of our reconciliation 
+with God, and of our future enjoyment of the everlasting 
+heavenly happiness, and of sufficient strength both to will and 
+perform all duti¢s acceptably, until we comé to the enjoyment 
+of that happiness. - - - - - - 
+
+
+DIRECTION III. 
+
+
+The way to get holy endowments Lend qualifications necessary to 
+frame and enable us for the immediate practice of the law is, to 
+receive them out of the fulness of Christ, by fellowship with 
+him; and, that we may have this fellowship, we must be in 
+Christ, and have [Christ himself in us, by a mystical union with 
+him. - = - - - - - - 
+
+
+13 
+
+
+24 
+
+
+45 
+
+
+820 INDEX. 
+
+
+DIRECTION 1V. 
+PaGe. 
+The means or instruments whereby the Spirlt of God accomplish- 
+eth our union with Christ, and our fellowship with him in all 
+holiness, are, the gospel, whereby Christ entereth into our 
+hearts to work faith in us; and faith, whereby we actually re- 
+ceive Christ himself, with all his fulness into our hearts. And 
+this faith is a grace of the Spirit, whereby we heartily believe 
+the gospel, and also believe on Christ, as he is revealed and 
+
+
+freely promised to us therein, for all his salvation. = 61 
+
+
+DIRECTION V. 
+
+
+We cannot attain to the practice of true holiness by any of our 
+endeavours, while we continue in our natural state, and are 
+not partakers of a new state by union and fellowship ~with 
+Christ through faith. - - - - = vid 
+
+
+DIRECTION VI. 
+
+
+Those that endeavour to perform sincere obedience to all the com- 
+mands of Christ, as the condition whereby they are to procure 
+for themselves a right and title to salvation, and a good ground 
+to trust on him for the same, do seek their salvation by the 
+works of the law, and not by the faith of Christ, as he is reveal- 
+ed in the gospel: and they shall never be able to perform sin- 
+cerely any true holy obedience by all such endeayours, - 91 
+
+
+DIRECTION VII. 
+
+
+We are not to imagine that our hearts and lives must be changed 
+from sin to holiness in any measure, before we may safely ven- 
+
+
+ture to trust on Christ for the sure enjoyment of himself, 
+and his salvation, - - - - - - 119 
+
+
+INDEX. 321 
+
+
+DIRBCTION VIII. 
+
+
+Paar 
+
+
+Be sure to seek for holiness of heart and life only in its du order, 
+where God hath placed it, after union with Christ, justification, 
+and the gift of the Holy Ghost; and, in that order, seek it ear- 
+nestly by faith, as a very necessary part of your salvation. 
+
+
+DIRECTION IX. 
+
+
+We must first receive the comforts of the gospel, that we may be 
+able to perform sincerely the duties of the law. - - - 
+
+
+DIRECTION X. 
+
+
+That we may be prepared by the comforts of the gospel, to perform 
+sincerely the duties of the law, we must get some assurance of 
+our salvation, in that very faith whereby Christ himself is re- 
+ceived into our hearts: therefore we must endeavour to believe 
+on Christ confidently, persuading and assuring ourselves, in the 
+act of believing, that God freely giveth to us an interest in 
+Christ and his salvation, according to his gracious promise. 
+
+
+DIRECTION XI. 
+
+
+Endeavour diligently to perform the great work of believing on 
+Christ in a right manner, without any delay, and then also to 
+continue and increase in your most holy faith ; that so your en- 
+joyment of Christ, union and fellowship with him, and all holl- 
+ness by him, may be begun, continued, and increased in you, 
+
+1, 
+
+
+DIRECTION XII. 
+
+
+Make diligent use of your most holy faith, for the immediate per- 
+formance of the duties of the law, by walking no longer accord- 
+ing to your old natural state, or any principles or means of 
+practice that belong unto it, but only according to that new 
+state which you receive by faith, and the principlos and means 
+
+
+139 
+
+
+149 
+
+
+322 INDEX. 
+
+PaGeE. 
+of practice that properly belong thereunto, and strive to con- 
+tinue and increase in such manner of practice. Thisis the only 
+way to attain to an acceptable performance of those holy and 
+righteous duties, as far as it is possible in this present life. 210 
+
+
+DIRECTION XIII. 
+
+
+Endeavour diligently to make the right use of all means appointed 
+in the word of God, for the obtaining and practising holiness, 
+only in this way of believing in Christ, and walking in him 
+according to your new state by faith. - - - - 241 
+
+
+DIRECTION XIV. 
+
+
+That you may seek holiness and righteousness only by believing 
+in Christ, and walking in him by faith, according to the former 
+directions: take encouragement from the great advantages of 
+
+
+this way, and the excellent properties of it. - - - 282 
+The Sermon on Justification. - - - - - - 295 
+GLASGOW: . 
+
+
+PRINTED BY D, MACDONALD, 31 ARGYLE STREET- 
+
+
+A 2 i ewre 
+* Like e | 
+: feesicat 
+
+
+. 
+
+
+PRINTED IN U.S.A. 
+
+
+Lu 
+| 
+Q 
+Lu 
+= 
+<x 
+a) 
+
+
+ii ai 
+
+
+HAH
