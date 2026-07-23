@@ -1,0 +1,102 @@
+Rating
+9
+
+Qualities Eye Opening Engaging Concrete Examples
+
+Meltdown
+What Plane Crashes, Oil Spills, and Dumb Business Decisions Can Teach Us About How to Succeed at Work and at Home
+Chris Clearfield and András Tilcsik | © 2018 From MELTDOWN by Chris Clearfield and András Tilcsik Summarized
+by arrangement with Penguin Press, an imprint of Penguin Publishing Group, a division of Penguin Random House LLC.
+
+Former derivatives trader Chris Clearfield and management professor András Tilcsik assess modern systems' frightening potential for failure, such as nuclear reactor meltdowns, transportation disasters, poor water quality and hacked defibrillators. They delve into what went wrong in various crises without being too technical. They spend two-thirds of this coherent, well-organized argument on research-backed strategies for addressing the risk of failure. A nuclear meltdown might not seem related to daily life, but these failure-prevention strategies apply to many issues. The authors provide tools for staving off disaster in complex environments.
+Take-Aways
+· Complexity makes modern systems more useful yet more vulnerable to catastrophic failure. · Acknowledging small problems and learning from them helps you discover larger threats. · "Tight coupling" ­ a situation where the margin for error is slim ­ can make small problems in
+complex systems spiral out of control. · In complex, tightly-coupled systems, failures may be internal or stem from outside sources
+such as social media, hackers and fraud. · Reducing the complexity of processes helps systems avoid failure. · Adding structure to the decision-making process reduces human error. · Encouraging dissenting views helps identify problems. · Diversity moves people out of their comfort zone, adds vigilance and helps avoid big mistakes. · Outsiders can provide a different perspective that questions common assumptions.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-29 02:28:38 CET
+
+www.getabstract.com
+
+Summary
+Complexity makes modern systems more useful yet more vulnerable to catastrophic failure.
+Many complex systems intertwine with your life. They include utilities such as electricity and water, transportation systems, communication networks and many more.
+"Everyday meltdowns ­ failed projects, bad hiring decisions and even disastrous dinner parties ­ have a lot in common with oil spills and mountaineering accidents."
+Sometimes, these systems fail. Such failures are more common than you may realize, and they relate to society's technological progress. Many technologically advanced systems are incredibly complex with slim tolerances for error. Mistakes can become catastrophic.
+Acknowledging small problems and learning from them helps you find larger threats.
+The 1979 meltdown of the Three Mile Island nuclear reactor in Harrisburg, Pennsylvania, was a complex system failure, but it wasn't caused by a major system malfunction. The source was an interaction among small problems with the plumbing, a valve and an indicator light.
+"In a complex system...we need to rely on indirect indicators to assess most situations."
+The small problems caused such an outsized failure ­ a reactor meltdown ­ for two reasons: the technological complexity of a nuclear reactor as a system and because the system had no room for error at any point.
+"Tight coupling" ­ a situation where the margin for error is slim ­ can make small problems in complex systems spiral out of control.
+No one can see everything going on in a complex system. Its components link in a web, not a linear chain. A tightly coupled system has no tolerance for failure, and the sequence of events is critical. Complex web systems rely on all components functioning correctly at all times. If one thing goes wrong, people have no time to correct it. As a result, multiple failures create a chain reaction.
+"We are in the golden age of meltdowns. More and more of our systems are in the danger zone, but our ability to manage them hasn't quite caught up."
+Complexity and tight coupling also caused the 2009 Washington, DC, Metro urban rail system crash. Sensors failed to tell the system that a train was on a specific stretch of track, leading to a train "disappearing" from view. This resulted in a collision that killed nine people. Major factors that contributed to the disaster included the number of track segments, the volume of trains traveling on them and the tight schedule windows.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-29 02:28:38 CET
+
+www.getabstract.com 2 of 7
+
+In 2012, the Starbucks coffeehouse chain sponsored a winter holiday skating rink in London. The developers expanded their audience by mounting a screen above the rink displaying Twitter posts that included the hashtag #spreadthecheer. A content filter was supposed to keep the screen from showing undesirable content. When the filter broke down, tweets appeared that weren't favorable to Starbucks. Social media coverage damaged Starbucks' reputation. Social media increased the system's complexity and reduced its tolerance for error by amplifying the audience.
+Modern systems often use safety mechanisms to manage their increased complexity and tight coupling. Those safety mechanisms must catch critical issues. For example, Transocean, which drilled the Deepwater Horizon oil well, claimed its "best year in safety performance" the year the well exploded and triggered a massive oil spill. Its system design overlooked the safety issues that collided to create the disaster.
+In complex, tightly-coupled systems, failures may be internal or stem from outside sources such as social media, hackers and fraud.
+In 2012, the digital trading systems at Knight Capital, a stock trading firm, made a huge volume of unwarranted trades because some of its servers hadn't been upgraded properly. The firm didn't consider itself a tech company and didn't effectively manage its high-tech environment. Knight Capital had launched well before all trading shifted to online processing, and its procedures were still oriented toward human traders working on the floor of the stock market. The 2012 trades nearly bankrupted Knight Capital, which a rival then purchased.
+"It's counterintuitive: Safety features reduce safety."
+Similarly, at the beginning of the 2000's, the semi-private UK Post Office implemented a new digital system to manage hundreds of contractors who provided local small-town postal delivery. The system conducted automatic audits, some of which accused certain contractors of theft, fraud and false accounting. Some contractors lost their jobs, homes and savings. Some went to prison. Yet the digital system caused inaccurate audits; no actual thefts ever happened. Like Knight Capital, the UK Post Office hadn't perceived itself as a technology company.
+Digital technologies are also subject to hacking. For example, journalist Andy Greenberg and hackers Charlie Miller and Chris Valasek collaborated to show that it was possible to hack a 2014 Jeep Cherokee through the cellular connection that connected to its onboard entertainment and navigation. While Greenberg was driving, the hackers could control some 30-odd systems in his car, including its throttle, brakes, transmission and air conditioning. Their demonstration revealed how hackers with bad intentions could exploit vehicle digital technology. Greenberg was alarmed, but the story was a journalistic coup. Wired magazine ran his report, and three days later Chrysler (which manufactured Jeeps), recalled 1.4 million cars, admitted its security failure and provided drivers with a USB drive they could plug in to update their vehicle's software and seal the breach.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-29 02:28:38 CET
+
+www.getabstract.com 3 of 7
+
+Hackers can exploit any digital technology, as hacker Barnaby Jack demonstrated. He revealed vulnerability of certain medical devices ­ like insulin pumps and defibrillators ­ to hacking, with potentially life-threatening outcomes. Internet-connected medical implants are easier to adjust but their extra complexity makes them vulnerable to hacking.
+The management of the energy company Enron took advantage of the complexity of the energy grid in its investment scheme. Enron's leaders devised an intricate shell game to exploit the energy pricing system. In 2001, a whistleblower revealed the strategy. In the end, investors lost billions of dollars, employees lost their entire retirement accounts, executives went to prison and the company had to close.
+Reporter Jayson Blair exploited the complex organizational structure of The New York Times to hide that he was writing fake news articles. Blair could conceal his fraud due to the large volume of news that went through the newsroom. Because of separation between the newsroom and the accounting department, Blair could submit expense reports for trips he never made, further hiding his duplicity. When the scheme unraveled, it damaged the Times's reputation.
+Reducing the complexity of processes helps systems avoid failure.
+Users can implement solutions to manage complexity and help prevent large-scale failures. Safety systems can address the risk of failure. But the safety mechanism then becomes part of the system itself, thus adding more complexity.
+"When we are in charge, we ignore the perspectives of others. This is a dangerous tendency."
+Rather than starting with the design of safety systems, first diagnose the problem. Charles Perrow created a matrix to assess complexity and coupling that can reveal if a system is vulnerable to accidents due to its very nature. Using "transparent design" for a complex system can identify errors and ward off mistakes. If a system design makes it easy to identify errors, those in the system have a better chance of correcting mistakes or not making them in the first place. Either positive option can keep the system from spiraling out of control.
+Adding structure to the decision-making process reduces human error.
+Psychologists Don Moore and Uriel Haran, and marketing professor Carey Morewedge, developed a system they call "subjective probability interval estimates" (SPIES) for use in making decisions in a system. It considers the best and worst case scenarios and also looks at intervals within the range of possible outcomes. When you are making decisions, forecasts or estimates, using SPIES reduces overconfidence.
+Even after using SPIES to predict outcomes and make decisions, so-called wicked environments ­ in which direct feedback can't occur ­ may make getting system feedback impossible. Worse
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-29 02:28:38 CET
+
+www.getabstract.com 4 of 7
+
+yet, complex systems are wicked environments: they foil direct observation and offer no feedback. Learning from mistakes often isn't an option.
+"Leave some people out of the decision-making process so they can then bring an outsider's perspective on it and find problems that insiders would miss.
+Rather than using intuition to solve problems in these cases, add structure by developing specific criteria for the given project or environment. The "premortem method" helps reveal (or bring to the surface) risks that you might otherwise ignore or fail to discuss. To use it, imagine you've completed your project unsuccessfully. Then consider what went wrong. Sometimes all the tools that help you make better decisions and avoid disaster in complex systems will be insufficient. Pay attention to warning signs. They help you identify how a system might fail. Ignoring the data is a human reaction. Even when you see warning signs, the system might work properly at that moment ­ so the human tendency is to ignore the warning. This is called "outcome bias." For example, officials in Flint, Michigan, ignored warning signs about contaminated water after switching to a local supply system. They refused to acknowledge their problem.
+The engineers running the Washington, DC, Metro system did slightly better than the Flint water system officials. Metro engineers knew about problems with track sensors and created a program to handle the problems ­ but didn't put it into practice. Managers at United Airlines used feedback from earlier close calls and pilot confusion about the approach to Dulles International Airport to understand that Federal Aviation Administration information didn't give pilots the knowledge required to avoid crashing into a hill a few miles from the runway. United figured out the problem and installed what it learned in its own flight profile information, but it didn't share this data with other airlines. Sharing might have prevented the 1974 crash of TWA Flight 514.
+"Learn from small failures to avoid big ones."
+Those three failures highlight the importance of "anomalizing" ­ the learning process that involves gathering data, fixing problems, understanding and addressing root causes, and then sharing the information. In the end, observers must audit the solution to make sure it corrects the problems.
+Encouraging dissenting views helps identify problems.
+Human brain structure reinforces conformity with groupthink. When a person goes against the group, his or her brain activity mirrors that experienced during a highly emotional event. The brain doesn't want the pain of being an outsider. This explains, in part, why it is difficult to hear dissenting voices. People who feel they are in a position of power tend to dismiss other
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-29 02:28:38 CET
+
+www.getabstract.com 5 of 7
+
+opinions and are less willing to accept even expert advice. In these circumstances, researchers have likened having a position of power to having brain damage.
+"Diversity feels strange. It's inconvenient. But it makes us work harder and ask tougher questions."
+Training those in power to listen to dissent is crucial, as is encouraging subordinates to speak out. Many failures in complex systems occur because no one listened to those who spoke up, such as the rural contractors of the UK Post Office or the citizens of Flint, Michigan. Both times, government officials ignored information from people they considered nonexperts.
+To encourage dissent, break down hierarchical barriers. Don't sequester yourself in a large office with assistants as gatekeepers. That sends a strong message about authority. Reducing the perceived power differential can be as simple as moving to a more accessible space. People in subordinate positions tend to speak up more often if a leader doesn't voice an opinion first. After a leader speaks, subordinates regard their own point of view as a potential dissent, but they're often more willing to speak if the leader's opinion hasn't already framed the discussion.
+Diversity moves people out of their comfort zone, thus increasing vigilance and avoiding big mistakes.
+Diversity is critical to catching bad ideas before they manifest in bad consequences. Diverse groups push people outside their comfort zone, which makes for skepticism and vigilance. Those qualities help identify errors.
+"Build diverse teams and listen to skeptics."
+Achieving diversity is more difficult than it might seem. Companies and organizations spend increasing amounts of money and effort on diversity programs without producing positive change. The reason is that managers don't like it when their discretion is taken away, that is, when someone infringes on their ability to make decisions their own way. They want autonomy over how they make decisions and what they decide. Because of this, voluntary diversity training presented as an opportunity can be more effective than compulsory training. The option of targeted recruiting also works. Frame optional programs as a potential benefit, not an imposition.
+Formal mentoring helps increase diversity even if that's not its goal. Women and minorities are often the first to sign up for such programs. Simply having someone track diversity in your firm can also lead to improvement. Just reporting the data works because people want to look good.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-29 02:28:38 CET
+
+www.getabstract.com 6 of 7
+
+Outsiders can provide a different perspective that questions commonly-held assumptions. Organizations that run complex systems rely on subject-area experts, who tend to think alike due to their similar training. Lacking this mutual understanding and background, outsiders can be more objective and catch potential failures. Never discount the outsider perspective simply because it comes from a nonexpert.
+"If the system is...tightly coupled, skeptical voices are crucial because the cost of being wrong is just too high. In the danger zone, dissent is indispensable." To manage complex, tightly-coupled systems, understand what is happening and make any necessary changes. This isn't always possible. Even when it is, people often continue past the point at which the plan makes sense. The desire to see a project through to completion is known by pilots as "get-there-itis" ­ more formally known as "plan continuation bias." A common perception is that avoiding failure necessarily reduces innovation. However, structured decisionmaking tools, diversity and dissent can increase innovation and productivity while preventing disasters.
+About the Authors
+Former stock trader Chris Clearfield writes about complexity and failure for general and academic publications. University of Toronto, Rotman School of Management professor András Tilcsik teaches organizational failure and disaster risk management.
+Did you like this summary? Buy book or audiobook http://getab.li/33184
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this abstract. getAbstract acknowledges the copyrights of authors and publishers. All rights reserved. No part of this abstract may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+7 of 7
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-29 02:28:38 CET
+
+

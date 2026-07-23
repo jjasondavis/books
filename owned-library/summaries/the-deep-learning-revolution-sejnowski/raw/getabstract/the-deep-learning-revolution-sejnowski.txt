@@ -1,0 +1,94 @@
+Rating
+8
+
+Qualities Scientific Visionary Concrete Examples
+
+The Deep Learning Revolution
+Artificial Intelligence Meets Human Intelligence
+Terrence J. Sejnowski | MIT Press © 2018
+Artificial neural networks can learn. Artificial intelligence luminary Terrence J. Sejnowski details his and his colleagues' deep-learning research achievements during their three-decade campaign against the notion that computers can't simulate brains. By combining discoveries in neuroscience and biology with new learning algorithms, researchers can use the brain to teach networks and then use the networks to teach people about their brains. "Deep learning" ­ a form of machine learning ­ will dominate the 21st century, answering the most puzzling questions about consciousness and challenging everyone to keep learning.
+Take-Aways
+· "Deep learning" is based on artificial neural networks, which simulate how the brain learns through experience.
+· The first artificial neural network involved a "perceptron," which weighs inputs and outputs, similar to how a brain neuron functions.
+· The Hopfield net and the Boltzmann machine expanded artificial neural networks and made them more efficient.
+· NETtalk "learned" how to speak English, starting with only 100 words. · Deep learning may soon explain how biological systems interact in space and time. · Game maker DeepMind's AlphaGo and AlphaZero demonstrate the revolutionary power of
+artificial neural networks. · Neural networks can explain how the brain works ­ but not yet why it works. · Deep learning will transform how people learn in the future.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-07-24 13:25:11 CEST
+
+www.getabstract.com
+
+Summary
+"Deep learning" is based on artificial neural networks, which simulate how the brain learns through experience.
+Information feeds knowledge, which provides insight about what people do, what they want and who they are. Knowledge is no longer external to the brain but converges with it through deep learning systems. Machines are learning how to translate words, recognize voices and diagnose illnesses.
+"Life on Earth is filled with many mysteries, but perhaps the most challenging of these is the nature of intelligence."
+Deep learning is a branch of machine learning. Its roots are in mathematics, computer science and neuroscience. Deep learning machines learn by the experience of collecting and analyzing vast amounts of data to make sense of the world. "Data are the new oil...whoever has the most data wins." Learning algorithms are "refineries" that extract information from raw data. The new information feeds knowledge.
+The deep learning revolution doesn't focus only on how artificial intelligence evolved but also on how human intelligence is evolving. Bringing machine learning into the 21st century took three decades of patience and perseverance by a small but luminous research community.
+The first artificial neural network involved a "perceptron," which weighs inputs and outputs, similar to how a brain neuron functions.
+Human intelligence isn't based solely on logic; it uses general intelligence for specialized problems. Learning builds general intelligence.
+For artificial intelligence to emulate human intelligence successfully, the AI must emulate the brain's processes by executing algorithms within "massively parallel architectures."
+"AI pioneers who sought to write computer programs with the functionality of human intelligence did not care how the brain actually achieved intelligent behavior."
+In 1962, Cornell University's Frank Rosenblatt created the first neural network ­ the perceptron ­ which was a pattern-recognition machine modeled on one neuron. It had one layer of inputs and one output unit. The inputs looked for patterns by summing up the values of all the inputs, multiplying them by their connection strength ­ weights ­ and sending them to the output unit. The weighted sum of the inputs must pass a threshold, at which point they are assigned a one or a zero. That is how the machine decides if an image is, for example, that of a cat or not a cat.
+Instead of programmers handcrafting the weights, the process can be automated, so the computer can learn from examples. The goal is to produce generalizations from many specific examples.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-07-24 13:25:11 CEST
+
+www.getabstract.com 2 of 6
+
+There is a risk of the computer failing to make generalizations because there aren't enough examples, in which case the computer simply memorizes them.
+The next level of complexity is an independent component analysis (ICA). An ICA has more than one output layer and employs an unsupervised learning algorithm that uses the measure of independence between output units as the "cost function." The independent outputs perfectly separate the data, or "decorrelate" it. Feedback connections to earlier "hidden layers" and recurrent connections among units at each layer add complexity. The independent components start by being "densely coded" but then become "sparsely coded" as information distributes to the higher levels. Having many neurons firing small amounts of information is more efficient than processing dense data in one area.
+The process mimics the "levels of investigation" in the brain, which starts at the dense molecular level and expands up and out via synapses, neurons, networks, maps, systems and, finally, the entire central nervous system. Synapses are the computational elements of the brain. Even a perfect model of a neuron can't explain its purpose.
+"Although neuroscientists are very good at taking the brain apart, putting the pieces together poses a more difficult problem ­ one that requires synthesis rather than reduction."
+Computation is the missing link in understanding the nature behind the operations. A new field of study called "computational neuroscience" investigates this.
+The Hopfield net and the Boltzmann machine expanded artificial neural networks and made them more efficient.
+"Scruffy" and "neat" connectionist models describe two competing approaches to neural networks. A scruffy model distributes the representation of objects across many units and uses approximations to get qualitative answers. A neat model is more computationally compact ­ one label, one unit ­ and proves more accurate. Progress in neural network design requires both. The key lies in giving them more complex dynamics by building feedback connections between layers, instead of simply "feedforward" connections.
+In 1982 paper, John Hopfield introduced the Hopfield net, wherein every output connects back to all the inputs in the network and their strengths are symmetrical. This nonlinear network makes simultaneous updates. With no instructions, the network can retrieve stored information to complete an action.
+"Physics, computation and learning are profoundly linked in an area of neuroscience theory that has been successful at illuminating brain function."
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-07-24 13:25:11 CEST
+
+www.getabstract.com 3 of 6
+
+The Boltzmann machine's goal is to find the global energy minimum of a Hopfield net. If kept at a constant temperature, the Boltzmann machine will reach equilibrium ­ which is where the magic happens. In this unsupervised state, the machine becomes "generative" ­ that is, each output state gets "visited" to reinforce the input pattern.
+By extracting statistical regularities common to all the data, freezing the weights at the first layer, and adding layers of more and more input units, the upper layers produce more nonlinear combinations of low-level features, making it possible to abstract the general from the specific.
+This "bottom up" type of learning mirrors the behavior of the human cortex.
+NETtalk "learned" how to speak English, starting with only 100 words.
+Using the Boltzman machine in 1986, author Terry Sejnowski and his team tackled their first realworld problem in machine learning: teaching a computer to talk. They started with 100 words. Their goal was to predict the sound of the middle letter in a window that showed seven letters. The machine learned the 100 words almost perfectly. The researchers tried 20,000 words, and the network found the regularities in the English language as well as the exceptions. Like a human baby, NETtalk went through a "babbling" phase ­ a breakthrough that caused a sensation when NETtalk appeared on the Today Show TV program.
+"We cannot exclude the possibility that some very large generative network will someday start talking, and we can ask it for explanations."
+Expanding on this early prototype, the original Google Translate challenged the prevailing assumption that learning a language relies on rules. Previous methods had searched for words that could be translated as a group, but deep learning "looks for dependencies across whole sentences." In 2016, the new Google Translate used deep learning to translate the first paragraph in Ernest Hemingway's The Snows of Kilimanjaro into Japanese and then back into English. The translation was nearly flawless. The experiment demonstrated that even though word order provides some information, semantics matter more. Deep learning networks show that language learning isn't based on syntax but on experience in a "rich cognitive context."
+Deep learning may soon explain how biological systems interact in space and time.
+A deep learning neural network records every activity. Researchers can follow the flow from the output layer through the hidden layers and observe how it changes. This builds a better understanding of the human brain.
+Artificial neural networks have their limits. For example, even if they get the right answer to a problem, they can't explain how. While a diagnosis from a neural network might be statistically more accurate than a doctor's, physicians have more experience and apply pattern recognition ­ not algorithms. Like brains, artificial neural networks are a kind of black box that doesn't reveal
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-07-24 13:25:11 CEST
+
+www.getabstract.com 4 of 6
+
+its processes. Artificial neural networks suffer bias by design; they only have the information that humans give them.
+A new field under development, algorithmic biology, is developing algorithms that may explain biological systems and how they interact. Biological systems have many layers of complexity across temporal and spatial scales. In short, "it's networks all the way down."
+Game maker DeepMind's AlphaGo and AlphaZero demonstrate the revolutionary power of artificial neural networks.
+DeepMind's AlphaGo taught itself how to play the Chinese game Go, which is legendary for its difficulty. AlphaGo used the same learning algorithm as that used by the basal ganglia in the human brain, which makes decisions based on a temporal difference algorithm and reinforcement learning. After training with supervised learning based on 160,000 human Go games, it began playing against itself. When it played the human Go champion of Asia, AlphaGo executed revolutionary, novel moves and defeated him in a five-game match. AlphaZero, a later machine that learned only from the rules of the game with no human supervision, defeated AlphaGo. Is AlphaGo intelligent? It displays both fluid and crystallized intelligence, but in a narrow domain. Within that domain, it does one thing only ­ but better than any human ever could.
+Neural networks can explain how the brain works ­ but not yet why it works.
+Like the human brain, neural networks have expanded and generated the capacity to accommodate their expansion. The internet follows this example. What might emerge from observing these networks in action is a computational theory of learning "as profound as in other areas in science."
+Learning algorithms contribute to greater understanding of living things by providing opportunities to create worlds complex enough to compare to the living world. Neural networks are simpler than the human brain but provide insight into how information distributes across large populations of neurons. For example, science now has proof that redundancies in the brain are a feature of diversity ­ not of duplication. Parallel operations enable the brain to achieve more in many small steps than in one big one, a tactic that requires less logical depth.
+"It may be easier to create consciousness than to fully understand it."
+Studies in visual perception and how it relates to consciousness show that there is no one neuron assigned to every discrete sensory stimulus. For example, it's not just one neuron that recognizes your grandmother. Many, many neurons all stimulated simultaneously are responding to a picture of your grandmother. Soon, science will be able to record and manipulate millions of neurons to understand better how this highly distributed activity produces thoughts, emotions, plans and decisions.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-07-24 13:25:11 CEST
+
+www.getabstract.com 5 of 6
+
+Science has yet to parse the machinery behind thinking itself. The human brain evolved by adapting progressively to its environment and modifying parts of itself accordingly.
+Deep learning will transform how people learn in the future.
+Cognitive computing will transform lives in the 21st century. In medicine, personalized treatment will be more precise. Digital databases and biometric tracking will reduce identity theft. Nandan Nilekani, the billionaire co-founder of Infosys, put seven years into developing the world's largest biometric identity program to provide portable ID cards to more than a billion Indian citizens so they can verify themselves "anytime and anywhere in seconds." The success of the program links directly with an increase in India's national productivity. The trade-off is loss of individual privacy.
+Deep learning will affect the way people learn and work. Sejnowski and University of California engineering professor Gary Cottrell won a $25 million grant to launch and fund the Temporal Dynamics of Learning Center. Among its initiatives is the Global Learning XPrize, which seeks to develop open source, scalable software to educate children in developing countries. Another research project demonstrates that all learning "changes the structure of the brain," which challenges the prevailing view that children are born with set potential that can't be altered. The biggest obstacles to better educational models are social and cultural, not scientific.
+"Nature may be cleverer than we are individually, but I see no reason why we, as a species, cannot someday solve the puzzle of intelligence."
+With the knowledge learned in schools becoming obsolete on the day of graduation, lifelong learning is an imperative. Massive open online courses (MOOCs) are gaining traction. Oakland University electrical engineering professor Barbara Oakley teamed with Sejnowski to offer the MOOC titled Learning How to Learn: Powerful Mental Tools to Help You Master Tough Subjects. The course is currently the most popular MOOC in the world, with three million registered learners since 2014 and gaining 1,000 new learners each day from more than 200 countries. By adapting their research on how the brain learns, Sejnowski and Oakley are helping to train an entire new generation of learners.
+About the Author
+Terrence J. Sejnowski, PhD, teaches at the Salk Institute for Biological Studies, where he is director of the Computational Neurobiology Laboratory, and is director of the Crick-Jacobs Center for Theoretical and Computational Biology.
+Did you like this summary? Buy book or audiobook http://getab.li/36342
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this review. All rights reserved. No part of this review may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+6 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-07-24 13:25:11 CEST
+
+

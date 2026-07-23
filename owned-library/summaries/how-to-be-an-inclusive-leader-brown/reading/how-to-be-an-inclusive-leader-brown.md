@@ -1,0 +1,106 @@
+<!-- SUMMARY (not the full book) extracted from a summary PDF the owner owns. -->
+Source file: how-to-be-an-inclusive-leader-brown-en-40622.pdf
+Summary of: how-to-be-an-inclusive-leader-brown; third-party book summary (getAbstract/ExecSummaries); owned copyright â€” personal use, do not distribute. NOT the book's own words â€” use to locate themes/positions, never quote as the author.
+
+Rating
+9
+
+Qualities Eye Opening Engaging Inspiring
+
+How to Be an Inclusive Leader
+Your Role in Creating Cultures of Belonging Where Everyone Can Thrive
+Jennifer Brown | Berrett-Koehler © 2019
+A Fortune 500 firm suffered a PR debacle when a victim of anti-gay comments filed a harassment suit against it. The CEO hired Jennifer Brown, a diversity and inclusion consultant and LGBTQ+ advocate, to talk to 25 top executives ­ all white males ­ about equity. Some executives belittled and dismissed her information; others kept checking their watches. That happens when you challenge the establishment on equity; progress requires knowing what to do and how to do it. Brown offers a step-by-step guide to help your firm do a good job of handling inclusivity and diversity issues.
+Take-Aways
+· Many organizations struggle with inclusivity and diversity. · Employees often must overcome multiple discriminatory barriers. · Companies that are not inclusive or diverse can lose their competitive edge and harm their
+internal social cohesion. · The "Inclusive Leader Continuum" is a four-stage path executives can travel to become
+inclusive leaders. · 1. "Unaware" leaders have little knowledge of inclusivity and diversity issues. · 2. "Aware" leaders learn more about inclusion and diversity issues. · 3. "Active" leaders make their organizations more inclusive and diverse. · 4. "Advocate" leaders become champions of inclusivity and diversity. · Achieving an inclusive, diverse workplace is difficult but important.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-10-02 20:57:57 CEST
+
+www.getabstract.com
+
+Summary
+Many organizations struggle with inclusivity and diversity.
+Most workplaces are neither inclusive nor diverse. The US Equal Employment Opportunity Commission reports that in 1985, only 3% of US corporate senior managers were Black men; the percentage grew to only 3.3% by 2014.
+"White men are overrepresented when it comes to publishing books, speaking at conferences and being interviewed or cited in publications. What message do you think this may be sending to leaders who don't share the same identity?"
+Only 1.5% of senior managers in the Fortune 500 are Black women. Half of managers who identify as LGBTQ+ report they feel they must stay closeted at work.
+In an equitable employment environment, everyone could bring his or her full self to work without fear. Unfortunately, different kinds of people continue to remain underrepresented or invisible in the workforce.
+Employees often must overcome multiple discriminatory barriers.
+Many people deal with multiple barriers. Often LGBTQ+ ­ "lesbian, gay, bisexual, transgender and queer or questioning" ­ people face workplace discrimination or prejudice. The plus sign added to this acronym stands for inclusion and represents the panoply of different identities and experiences. In the lexicon of diversity, LGBTQQIA+ extends to include "intersex and asexual and/or allied people."
+"Many companies talk about making diversity, equity and inclusion a priority but are continuing to fail in building cultures where employees of all demographics have a real chance to thrive."
+Some people face discrimination not only for being members of racial, ethnic or sexualorientation minority groups, but also for being older or disabled or having "a plus-size body type." Others dealing with bias include immigrants, former inmates, those who never finished high school, and more. Companies can address these issues by striving to create an equitable culture in which everyone receives the same treatment and opportunities.
+Companies that are not inclusive or diverse can lose their competitive edge and harm their internal social cohesion.
+Companies that celebrate diversity "have achieved 28% higher revenue, doubled their net income, and earned 30% higher profit margins" than their competitors. In contrast, organizations that fail to prioritize diversity and inclusion will not remain competitive. Changing demographics render
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-10-02 20:57:57 CEST
+
+www.getabstract.com 2 of 6
+
+inclusivity and diversity corporate imperatives. Members of the Baby Boom generation in the workforce are 75% Caucasian. Millennial workers are 55.8% white, a proportion that is quickly shrinking. The growing number of younger employees represent a significant, more diverse proportion of the workforce.
+"If they don't give you a seat at the table, bring a folding chair." (Shirley Chisolm, the first Black Congresswoman)
+Younger workers ­ millennials and their successors, Generation Z ­ expect and demand inclusive workplaces. If they find their employer flawed in this regard, they move on to other companies at which they feel more at home and accepted. Inclusivity and diversity also contribute to your organization's social cohesion and well-being, assets that fuel collaboration, teamwork and an improved bottom line. When you promote equity, you reinforce the power of "creative abrasion." This dynamic helps employees avoid groupthink and promotes problem-solving. People who feel included will venture to offer fresh ideas and challenge the ideas of other people.
+The "Inclusive Leader Continuum" is a four-stage path executives can travel to become inclusive leaders.
+Many executives don't want to acknowledge the severity of the diversity problems in their organization ­ or even admit such problems exist. When someone advocates improved inclusion, many executives still respond: "I don't care if you're Black, white or purple ­ I hire the best person for the job." Inevitably, someone will ask, "Are you suggesting we should have quotas?"
+"Human potential is unleashed when we feel like we belong."
+Instead, executives should set out to become "inclusivity leaders," so they can be proactive in their organization's efforts to create an equitable workplace. This developmental path follows a multi-step model, the Inclusive Leader Continuum, which helps managers determine where their personal "knowledge and mind-set" places them on a non-inclusivity-toinclusivity spectrum. This framework enables executives to determine the next steps on their personal inclusivity journey and to set the goals they want their organizations to achieve. The Inclusive Leader Continuum tracks these four stages of leadership development:
+1. "Unaware" leaders have little knowledge of inclusivity and diversity issues.
+Leaders at this stage may not consider inclusivity or diversity or may regard these issues only in terms of compliance with legal requirements.
+"Power tends to protect power. Challenging the status quo is, at the least, inconvenient and, at the most, downright threatening to others."
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-10-02 20:57:57 CEST
+
+www.getabstract.com 3 of 6
+
+Motivational speaker Tony Robbins often lectures about personal empowerment issues. In 2018, a disturbing video of Robbins went viral on YouTube. During his lecture, Robbins claimed that women who report "stories of sexual harassment or sexual assault" are trying to destroy men. A female member of his audience criticized what seemed to be his disparagement of the #MeToo movement. Robbins, who is six feet, seven inches tall, approached the much smaller woman who criticized him, placed his hand on her and appears to have pushed her. She had to retreat backward as Robbins continued his #MeToo diatribe. The video became an internet sensation. People roasted Robbins for intimidating his audience member.
+Hoping for support amid this PR disaster, Robbins contacted Tarana Burke, the founder of #MeToo, to ask her help with damage control. This backfired as Burke quickly weighed in against him. Robbins offered a weak mea culpa: "I apologize for suggesting anything other than my profound admiration for the #MeToo movement." The video and Robbins' apology demonstrated that he understood little about the #MeToo movement and that he had little compassion for sexual assault survivors.
+He was stuck in the Unaware stage of the Inclusive Leadership Continuum. To move from Unaware to Aware, heed these tips:
+1. Many people have never focused on identity ­ They didn't have to because they were born with privilege. If this is you, start learning about the crucial issues at the core of fighting discrimination.
+2. "Good intentions" require good actions ­ What can you do for those who may suffer exclusion at your workplace?
+3. Bet on equity ­ Equity means creating a level playing field for everyone; it is not the same as equality, "a far-off, idealized goal."
+2. "Aware" leaders learn more about inclusion and diversity issues.
+Aware leaders understand that modern workplaces are not equitable. They see they've been blind to inclusivity and diversity issues, and may harbor previously unacknowledged biases. Once they become aware, they set out to learn more.
+"If you want to get healthy, you don't wait for someone to hand you vegetables ­ you get informed, you research nutrition and you challenge yourself to start exercising! Don't wait for someone to hand you a broader worldview. Go get it." (Leslie Slaton Brown, chief diversity officer, Hewlett-Packard)
+Daniel, for example, grew up in Atlanta, Georgia's African-American community. He took a job in a less diverse state at a firm with no other Black employees. He faced a difficult transition, but his supervisor, although he was not African-American, made the way easier for him. Though the supervisor did not share Daniel's background or life experiences, he offered "tact, compassion and
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-10-02 20:57:57 CEST
+
+www.getabstract.com 4 of 6
+
+an eagerness to help." This made all the difference for Daniel, and it demonstrates what an inclusive leader can accomplish.
+To build your knowledge and awareness:
+1. Study all "diversity dimensions" and classifications ­ These categories involve "but are not limited to ­ race, gender identity, ethnicity, sexual orientation, physical and mental ability, age, socioeconomic status/class, religion, political ideology, veteran status, citizenship, education and appearance."
+2. Educate yourself about privilege ­ Learn who has it and who doesn't. 3. Challenge your biases ­ Every human being suffers biases. Challenge your prejudices and
+work to eliminate them.
+3. "Active" leaders make their organizations more inclusive and diverse.
+People at this stage take positive actions to make their workplaces more equitable. They have moved away from their comfort zones to try new ideas, do new things and to re-prioritize their lives toward establishing equity for everyone.
+"Leadership is not leadership unless it's uncomfortable."
+Bria Sullivan is a Google software engineer. Although the technology industry is mostly Caucasian, Sullivan committed to help 10 Black people obtain high-tech jobs. So far, thanks to her, three Black people have been hired for well-paid technology positions. To become active in improving inclusivity and diversity, consider these steps:
+1. Promote inclusivity and diversity ­ This is a major undertaking, and you may feel powerless. Start small, do something contained and move ahead. Commit to making more small changes.
+2. Mentor and sponsor people in your organization ­ If you are already a mentor or a sponsor, reach out and work with people who are different from you.
+3. "Be patient" ­ Don't expect instant success. Sooner or later, you'll find you're making a difference.
+4. "Advocate" leaders become champions of inclusivity and diversity.
+As equity champions, leaders at this stage take risks and challenge people, including their bosses, to create a fair, equitable workplace.
+"We...want to feel our commonality with others ­ a sense of community, of sharing experiences in common, of feeling less alone. These things are worth fighting for, even when it's hard."
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-10-02 20:57:57 CEST
+
+www.getabstract.com 5 of 6
+
+Richard Jeanneret is vice chair and managing partner for the northeast region of EY, a consulting, assurance, tax and transaction-services firm. He transitioned from unaware to advocate in order to support his son, who announced his transgender status as a senior in high school. The opposition of some family members created an "epiphany moment" for Jeanneret, who became a champion of the rights of LGBTQ+ professionals.
+To become an inclusivity advocate:
+1. Figure out who is excluded ­ Learn "who's in the room and who's not," and "who's being heard and who's not." Make things better for those who are left out.
+2. Educate your colleagues and contacts ­ Help other people become well-informed about the pressing need for inclusivity and diversity.
+3. Don't expect your journey to be painless ­ As an inclusivity advocate, you're rocking the boat. Expect anger, negativity and hostility. Remain resolute; you're on the right team.
+Achieving an inclusive, diverse workplace is difficult, but important.
+If you are ready to devote yourself to inclusion and diversity, and to advocate for equity, you're on the right track. You may need to acknowledge that despite your hard work, you remain somewhat in the dark about the inclusivity needs of certain groups. Don't feel bad; everyone can learn more about fairness and equity. The Inclusive Leadership Continuum is just that ­ a continuum. It represents a daily endeavor, a journey that is never linear.
+"An individual has not started living until he can rise above the narrow confines of his individualistic concerns to the broader concerns of all humanity." (Martin Luther King, Jr.)
+You can make all the difference t0 people in your company if you help them "feel welcomed, valued, respected and heard." Stay motivated and don't give up or quit. If you don't act, your silence solidifies the status quo.
+About the Author
+Host of the podcast The Will to Change, Jennifer Brown is founder, president and CEO of Jennifer Brown Consulting (JBC), and an award-winning entrepreneur, speaker, author, and diversity and inclusion consultant.
+Did you like this summary? Buy book or audiobook http://getab.li/40622
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this review. All rights reserved. No part of this review may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+6 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-10-02 20:57:57 CEST
+
+

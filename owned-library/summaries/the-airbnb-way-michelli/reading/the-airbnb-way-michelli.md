@@ -1,0 +1,88 @@
+<!-- SUMMARY (not the full book) extracted from a summary PDF the owner owns. -->
+Source file: the-airbnb-way-michelli-en-37398.pdf
+Summary of: the-airbnb-way-michelli; third-party book summary (getAbstract/ExecSummaries); owned copyright â€” personal use, do not distribute. NOT the book's own words â€” use to locate themes/positions, never quote as the author.
+
+Rating
+7
+
+Qualities Background Well Structured Concrete Examples
+
+The Airbnb Way
+5 Leadership Lessons for Igniting Growth through Loyalty, Community, and Belonging
+Joseph A. Michelli | McGraw-Hill © 2019
+Five factors ­ belonging, trust, hospitality, empowerment and community ­ drive Airbnb's remarkable success, according to customer experience expert Joseph A. Michelli. He reports that the company tries to encourage people to see one another as trustworthy and to foster the concept that travelers can experience a sense of belonging everywhere. To that end, he says, Airbnb wants to assist its hosts in offering service with warmth and compassion. Michelli's super positivity about the company can be a little overwhelming, but he provides value for travelers seeking more information about Airbnb and for executives who are passionate about customer service.
+Take-Aways
+· Airbnb accommodates millions of travelers worldwide. Five values drive its success: · "Belonging" ­ Airbnb wants people to feel as if they fit in wherever they are. · "Trust" ­ The company encourages people to see others as trustworthy and strives to discredit
+the notion that strangers bring hazards. · "Hospitality" ­ Airbnb helps hosts offer service with warmth and compassion. · "Empowerment" ­ Airbnb believes technology should enrich the customer experience. · "Community" ­ Airbnb fosters a sense of community and promotes service to others.
+Summary
+Airbnb accommodates millions of travelers worldwide. Five values drive its success.
+Airbnb, an online service that enables travelers to book guest rooms in private homes or to pay to stay in houses or apartments belonging to other people, tallied about 400 reservations, total, in
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-09 13:54:00 CET
+
+www.getabstract.com
+
+2008. By 2018, it was racking up some "400 bookings every two minutes." The company believes that five factors account for its success:
+1. "Belonging" ­ Airbnb wants people to feel as if they fit in wherever they are.
+Creating a sense of belonging means fashioning situations in which people can experience feeling at home anywhere. From the inception of Airbnb, its founders Joe Gebbia, Nathan Blecharcyzk and Brian Chesky sought inspiration for how their organization should function. They looked for insight from leaders in different fields to help broaden their perspective beyond technology or customer recruitment.
+"Immigration spread economic prosperity. Integration promoted diversity. Innovation expands our horizons. And exploration is about the future of our species. But what travel has done that is as important is support belonging." (Chris Lehane, SVP of policy and communication, Airbnb)
+Existentialist philosopher Paul Tillich (1886­1965) said that listening is the first imperative of love. For Airbnb, listening means seeking opinions about its purpose from within the organization and from hosts and guests.
+In Simon Sinek's TED Talk and best-selling book, Start with Why, he encourages leaders to think about the "why" of their brands. Unfortunately, when company leaders try to identify their organizations' why, they tend to focus exclusively on their own ideas and thoughts. By contrast, Airbnb's founders wanted each part of its ecosystem to identify its own whys. They asked employees, hosts and guests to participate in an exercise that identified Airbnb's reason for existence as a desire "to create a world where anyone could belong anywhere." Eventually, Airbnb's mission became simply, "Belong Anywhere."
+Airbnb's senior managers pledged to broaden the scope of this fundamental but profound idea. Their efforts included trying to eliminate "national wage gaps" and committing to making their workforce more diverse to reflect local demographics. The company encountered problems with its hosts regarding diversity. In 2015, Harvard Business School researchers found that hosts accepted 16% fewer applications from potential guests with "distinctively African-American names" than from guests with the same profile but distinctively white names.
+CEO Brian Chesky accepted responsibility for failing to address this problem quickly enough. Subsequently, Airbnb pursued a series of planned steps to address host bias. It sought the assistance of former US attorney general Eric Holder and of the former head of the American Civil Liberties Union, Laura Murphy. In 2016, Airbnb began asking all its hosts to sign an agreement to treat everyone equally. Uncooperative hosts are not allowed to book guests through its service.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-09 13:54:00 CET
+
+www.getabstract.com 2 of 6
+
+2. "Trust" ­ The company encourages people to see others as trustworthy and strives to discredit the notion that strangers bring hazards.
+Nick Shapiro supervises trust and safety at Airbnb. Before joining the company, he worked at the CIA as deputy chief of staff, and he was a White House spokesperson for President Barack Obama. Shapiro suggests that trust is the core of everything Airbnb does.
+"We intentionally designed our community to help earn and build trust within and among our millions of hosts and guests in more than 191 countries worldwide." (Nick Shapiro, Airbnb global director of trust and safety)
+Airbnb aims to gain trust by stressing the importance of three factors. First, it emphasizes the safety of the people who use its service, both hosts and guests. Second, it prioritizes transparent information and clear instructions about how to use its website. And third, it provides customer support to help resolve complaints or conflicts when something goes wrong.
+The company also undertakes a number of steps to protect the personal information and finances of its community of hosts and guests ­ for instance, it uses multifactor authentication to verify the identity of hosts or guests when they log in from a new computer. By applying sophisticated technology to evaluate the potential risk in every room reservation, the company can highlight possibly hazardous situations.
+Airbnb used background checks and feedback from its user community to revoke bookings linked to a mid-2017 rally of white supremacists in Charlottesville, Virginia. It continues to use multiple methods to detect people who identify themselves fraudulently or try to defraud the Airbnb system.
+Airbnb guides both guests and hosts in using practices and methods that promote safety. For instance, it suggests that guests thoroughly read the feedback from a home's earlier guests to make sure the accommodations will suit them. Guests can use Airbnb's messaging tool to ask hosts questions before they book. The firm suggests that guests use its platform for all their booking and payment transactions to protect their personal and financial information.
+3. "Hospitality" ­ Airbnb helps hosts offer service with warmth and compassion.
+Chesky says that when the company started operations, it didn't really understand hospitality. Its executives collaborated with its head of hospitality Chip Conley to draw on the energy of millions of small-business entrepreneurs. Chesky points out that when hosts invite customers into their homes, the hosts try to embody hospitality. When they get to know their guests and come to understand their stories, these interactions can result in long-term friendships.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-09 13:54:00 CET
+
+www.getabstract.com 3 of 6
+
+Laura Chambers, the general manager of home hosts at Airbnb, says the company wants its hosts to succeed, so it gives them ideas about hosting and about the business transactions involved. It advocates that hosts work on delivering excellent service and helps them shoot for five-star reviews. Airbnb asks hosts to respond promptly to guests' requests and to try to fulfill their needs.
+"Consumers have come to avoid businesses that can't address their inquiries and needs immediately."
+Host profiles on the Airbnb website provide information about how quickly, on average, a host will respond after receiving a message from a guest. The profiles also provide data on the host's recent performance. These metrics guide potential guests to the most diligent, respected hosts.
+Airbnb tries to reduce the effort a customer must expend. For example, a host can enable guests to make an instant booking, which means they don't have to wait to learn the availability of a home or whether the host approves their bookings. Leading Airbnb hosts recognize that they must speak and act quickly to show their guests that their needs come first.
+Brooke Ashley Johnson has stayed at several Airbnb properties. She liked most of them, except one in Berlin. She and her husband had booked two nights, but when they arrived, they found that the home had inadequate wireless connectivity. Johnson needed Wi-Fi to finish a project for work. Their host also failed to respond to their issues with the wireless and the faulty air conditioning.
+Johnson reached out to Airbnb's customer service, which help her and her husband get out of their commitment to stay a second night. Johnson says that if Airbnb hadn't helped them, she might not have used it again. But considering how well it handled the situation, she feels more loyalty to the company. Johnson reviewed the host unfavorably, both to suggest that she should do more for her guests and to warn other travelers.
+4. "Empowerment" ­ Airbnb believes technology should enrich the customer experience.
+Airbnb leaders know they can't rely on technology alone as the core of their strategy. Instead, they believe their technology should enrich their customers' experience. It pushes back against the notion that businesses want to exploit communities rather than assist them. The company works to foster community progress, preserve ecological systems, and help those affected by natural disasters.
+At Airbnb, "empowerment" means giving people the authority to enrich their communities as they see fit. In 2015, the professional services consultancy PricewaterhouseCoopers reported that participants in the sharing economy ­ such as Airbnb hosts and guests ­ feel that by being part of this ecosystem, they are gaining autonomy, saving money and developing closer relationships.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-09 13:54:00 CET
+
+www.getabstract.com 4 of 6
+
+Airbnb charges no listing fees and allows hosts to set their own prices. The company provides hosts with access to a "Smart Pricing" tool that calculates optimum rooming fees according various factors, including demand, seasonality, location and comparisons with similar listings.
+"The core success of Airbnb is linked to how the founders crafted a convenient way for people to find and share available spaces."
+Hosts keep 95% to 97% of the profits ­ without deductions for processing credit card transactions or for the $1 million of insurance coverage the company provides. Airbnb also covers the costs of marketing, payment processing and customer service support.
+Airbnb recounts that in 2017, it expanded fastest in African-American, Latino, and other minority communities. It reports that 62% of its hosts in the United States say that hosting helps them defray their home expenses. In addition, Airbnb notes that 12% its hosts in North America feel that Airbnb helped protect them from losing their homes due to failure to pay their mortgage or rent.
+5. "Community" ­ Airbnb fosters a sense of community and promotes service to others.
+In 2018, Chesky wrote a letter to the Airbnb community explaining his belief that the company can help transform the world by promoting the concept of community in large and small spaces. Each of the three founders demonstrated his commitment to social change by affirming the Giving Pledge spearheaded by billionaires Warren Buffet and Bill and Melinda Gates. The program calls on the richest families and individuals to give the bulk of their fortunes to philanthropic causes.
+Airbnb lobbied for changes in the laws that govern its ability to distribute equity. At present, US Securities and Exchange Commission rules don't allow companies to grant equity to individuals who aren't employees or investors. This prevents Airbnb from granting corporate equity to its hosts. It says that its efforts to change such rules demonstrates its willingness to share the financial gains that its hosts help generate.
+"Airbnb leaders...focus both on the long-range sustainability of their business and the importance of mitigating unintended negative environmental impacts."
+In 2013, Airbnb initiated its Global Citizenship Champion program, which pays employees their salary for four hours of their time to work as volunteers in their communities. In 2015, the company issued its Community Compact to set out the values governing how it relates to its communities around the world, including its attitude toward providing data, paying taxes and dealing with specific local issues.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-09 13:54:00 CET
+
+www.getabstract.com 5 of 6
+
+Airbnb also responds to extreme human needs. In January 2017, President Donald Trump issued an order which brought travel to the United States from Iran, Iraq, Libya, Somalia and Sudan to a standstill for 90 days. The order prevented Syrian refugees from entering the United States for four months. Airbnb pledged to provide housing to affected refugees through its Open Homes program until their situations could be resolved.
+About the Author
+Joseph Michelli, PhD, is a prolific best-selling author, speaker and organizational consultant who focuses on the customer experience. His other books include Driven to Delight, Leading the Starbucks Way, The Zappos Experience, Prescription for Excellence and The New Gold Standard.
+Did you like this summary? Buy book or audiobook http://getab.li/37398
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this abstract. getAbstract acknowledges the copyrights of authors and publishers. All rights reserved. No part of this abstract may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+6 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-02-09 13:54:00 CET
+
+

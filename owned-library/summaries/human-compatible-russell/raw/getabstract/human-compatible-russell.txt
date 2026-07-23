@@ -1,0 +1,80 @@
+Rating
+8
+
+Qualities Analytical Scientific Visionary
+
+Human Compatible
+AI and the Problem of Control
+Stuart Russell | Allen Lane © 2019
+If asked to predict the most significant occurrence in the future of humans, the best answer would be the advent of superintelligent artificial intelligence (AI). Superintelligent AI might help human beings avert climate disaster, cure all diseases, and much more. Superintelligent AI might also usher in the end of human history. The quest for AI has always been for increasingly intelligent machines. University of California, Berkeley, computer science professor Stuart Russell suggests that people should instead generate intelligent machines that benefit human life.
+Take-Aways
+· The traditional model of artificial intelligence success is wrong. · A clear definition of intelligence is the first step toward creating artificial intelligence. · The most important concept in AI is that of the intelligent agent. · The ability to understand language will be crucial for human-level AI. · With superintelligence, humans may be able to achieve a better civilization. · Malevolent people will figure out ways to misuse artificial intelligence. · People can design highly intelligent machines that benefit human life.
+Summary
+The traditional model of artificial intelligence success is wrong.
+The desire to create artificial intelligence (AI) goes back to the ancient world. The idea that an intelligent machine was possible derives from a summer workshop organized by young mathematicians John McCarthy and Marvin Minsky at Dartmouth College in 1956. The meeting
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-19 08:28:24 CEST
+
+www.getabstract.com
+
+sought to discover how to make machines that understood and used language, solved problems that humans solve, and ultimately improve themselves.
+"We have to face the fact that we are planning to make entities that are far more powerful than humans."
+AI enjoyed early successes, such as Arthur Samuel's checker-playing program, but by the end of the 1960s, frustration arose at the limited results in early efforts at machine learning and translation. Interest in AI revived in the 1980s due to the economic possibilities of expert systems. By the second decade of the 21st century, advances like deep learning led to leaps forward in speech and visual recognition as well as translation. Today, AI can do many of the things humans can do; self-driving cars and intelligent personal assistants are just around the corner. Advances in computing, like algorithms designed to maximize click-throughs, affect billions of people. Despite the dizzying rate of progress and media attention, before anything resembling superintelligent machines can exist, major breakthroughs must occur.
+"We need to move away from one of the driving ideas of 20th-century technology: machines that optimize a given objective."
+AI isn't necessarily beneficial for humans, if not designed to be. Algorithms that aren't impressively intelligent have already managed to promote fascism, undermine public commitment to democracy, and erode the foundations of the European Union and NATO. It is frightening to consider the capabilities of a superintelligent algorithm. The problem may be the initial understanding of AI. From early on, AI was understood as embodying a standard conception of human intelligence: Humans are intelligent because they achieve their objectives, and machines are intelligent when they achieve their objectives. People don't need AI that achieves the machine's objectives; they need AI that benefits humans and helps to achieve human objectives.
+A clear definition of intelligence is the first step toward creating artificial intelligence.
+The traditional model of AI ­ in which computers optimize aims given to them by humans ­ is false and misguided. Creating a better model of AI ­ and knowing whether a particular AI system succeeds ­ requires a clearer idea of the nature of human intelligence and how that perspective might apply to machines.
+"Having a reasonable definition of intelligence is the first ingredient in creating intelligent machines. The second ingredient is a machine in which that definition can be realized."
+Beginning with ancient Greek philosophers like Aristotle, people's capacity to act successfully and achieve their aims was the measure of intelligence. Aristotle studied logic (how a person can infer from premises to a conclusion) and practical reasoning (how a person decides on a particular
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-19 08:28:24 CEST
+
+www.getabstract.com 2 of 6
+
+action that fulfills desirable ends). By the 17th century, thinkers introduced probability theory into how they view rational decisions.
+"Autonomous weapons will greatly reduce human security at all levels: personal, local, national and international."
+When weighing choices, you consider the "expected value" of a choice ­ roughly what you think you will get from that choice. This view eventually changed to the "expected utility" ­ the benefit you think you will get from a given choice. Made precise in the 20th century by mathematician John von Neumann and Oskar Morgenstern, intelligence became associated with "a rational agent [that] acts so as to maximize expected utility." Such understanding of intelligence applies only to individuals. When applied to multiple people simultaneously, this conception of intelligence or rational decisions leads to complicated results. Any form of artificial intelligence must include the possibility of mutual cooperation.
+The most important concept in AI is that of the intelligent agent.
+At least since the 1980s, researchers recognized that logic in and of itself won't be adequate for AI. The world of pure logic is one of certainty; the actual, day-to-day world is full of uncertainty. AI researchers accepted computer scientist Judea Pearl's ideas, which connected AI to other fields of research such as statistics and control theory. This was the start of what some people term "modern AI." The governing concept in modern AI is the intelligent agent. An intelligent agent transforms "perceptual inputs" into actions. Consider a self-driving car taking you to the airport. It might have eight cameras working at 30 frames per second, as well as an accelerometer and a device to monitor GPS data. All the data gets converted into electronic signals sent to the steering wheel, brakes and accelerator and ­ ideally ­ results in an uneventful drive to the airport.
+"Progress toward general AI is going to occur in narrow-AI projects that address specific tasks; those tasks give AI researchers something to get their teeth into."
+An intelligent agent's design will reflect the problems and environment it will likely face. Typical issues challenging the design of an intelligent agent include whether it is fully visible; whether the environment and its own actions are specific or ongoing; whether the environment is subject to abrupt, dramatic change; and whether the "length of the horizon" of the decision and action can be calibrated in accordance with its overall objective. These factors can give rise to countless problems. Some of the problems are relatively easy, like teaching a computer how to play board games. Others prove far more difficult, like keeping a government running or teaching biology. Many advances in the direction of general AI come in the form of smaller, more narrowly defined projects.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-19 08:28:24 CEST
+
+www.getabstract.com 3 of 6
+
+The ability to understand language will be crucial for human-level AI.
+In the late 1990s, an IBM computer defeated chess champion Garry Kasparov. News media spun the victory as a huge breakthrough for AI. In fact, it was a continuation of a process begun with the first chess-playing algorithms created by Claude Shannon in 1950. AI breakthroughs that make the news seldom reflect what happens among researchers. In AI, what becomes publicly known is rarely a specific breakthrough ­ but rather an accumulation of knowledge that crosses a threshold to offer some commercial viability.
+"Our intelligence is responsible for our civilization. With access to greater intelligence we could have a greater ­ and perhaps far better ­ civilization."
+The problems associated with creating human-level artificial intelligence aren't close to solutions. And solutions won't appear from some more data and faster computers. Even the best, humanlevel intelligent system that the most brilliant experts could create would be a failure because such a system would be unable to understand what was going on around it. One of the major, conceptual breakthroughs that human-level artificial intelligence demands is for machines to understand language.
+"The central concept of modern AI is the intelligent agent ­ something that perceives and acts."
+Intelligence without knowledge or the capacity to acquire knowledge would be useless. Language, and the meanings of words, is itself a reservoir of information and knowledge that represents the cumulative effect of how those words got into the language in the first place. A machine that understands language in the full sense that human beings understand it could acquire virtually limitless amounts of human knowledge. By doing so, it could sidestep the time it took billions of human beings to acquire that knowledge. "Natural language technology" isn't yet up to understanding millions of books; the best systems can only glean straightforward information. Nonetheless, major projects are underway to help deepen the capacity of machines to understand and absorb information from language.
+With superintelligence, humans may be able to achieve a better civilization.
+People often limit their imagination as to what superintelligent AI makes possible. They think in terms of safer transport and the elimination of medical errors. But a "general-purpose intelligent system" could do anything people can do. Thus a superintelligent AI system could solve a problem or create an invention without human assistance. Such a system could look into the future with greater precision and accuracy than humans ever could. It could help plan a citywide evacuation in the event of a natural disaster or even generate policy proposals that might help mitigate climate change.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-19 08:28:24 CEST
+
+www.getabstract.com 4 of 6
+
+"We need to steer AI in a radically new direction if we want to retain control over increasingly intelligent machines."
+Since human intelligence is the font of human civilization, access to superintelligence may well help people improve the quality of life on Earth. Human-level AI systems could, for example, raise everyone's standard of living by increasing the production of goods and services. Every child could have an AI tutor. AI could eliminate diseases, and it could address mental health problems. With intelligent personal assistants, people would be better able to navigate today's complicated social, economic and political world.
+Malevolent people will figure out ways to misuse artificial intelligence.
+Ill-intentioned people will seek ways to misuse AI for their own ends. AI systems can, for example, abet ruthless surveillance efforts. Intelligence agencies already use AI technology in order to recognize voices and faces. Corporations already monitor and sell vast amounts of information about people ­ what they purchase and how they use the internet and social networks. With such surveillance capabilities, AI systems will be able to monitor what people read, what they like and what they know and will be in a position to craft specific messages that exploit their vulnerabilities. This enables social media algorithms to compromise political perspectives. Advances in AI make possible autonomous weapons systems (AWS) that identify and kill human targets. Such weapons could be scaled to become weapons of mass destruction. Along with actual attacks, the mere suggestion of an attack would be an ideal tool to induce terror. AWS would reduce human security.
+People can design highly intelligent machines that benefit human life.
+The ultimate task is to design machines with superior intelligence that can provide people with assistance at all levels but with the certainty that the AI will never turn against humans and pursue objectives that aren't theirs. Machines designed in the traditional way, as they become superintelligent, will pursue their goals irrespective of their human consequences. To design "beneficial machines," researchers and developers must follow three principles: "(1) The machine's only objective is to maximize the realization of human preferences. (2) The machine is initially uncertain about what those preferences are. (3) The ultimate source of information about human preferences is human behavior."
+"The technical community has suffered from a failure of imagination when discussing the nature and impact of superintelligent AI."
+The first principle indicates that beneficial machines must be "purely altruistic." The machine won't give priority or value to its own self-preservation, and it will specifically benefit people over any other creature or entity. The second principle explains that the machine won't know in advance what human beings want and therefore won't know what it wants. A machine that thinks
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-19 08:28:24 CEST
+
+www.getabstract.com 5 of 6
+
+it knows what people want might become driven, aggressive and single-minded. A machine that doesn't assume it knows its own aims will be humble and defer to what humans tell it. The third principle simply grounds the machine's aims in its observation of human behavior and choices. By following these principles, people can move away from the traditional model of AI ­ in which machines optimize the aims people give them ­ to a model in which humans maintain control over machines that have superior intelligence.
+About the Author
+Stuart Russell, PhD, is a professor of computer science at the University of California, Berkeley. He served as the vice chair of the World Economic Forum's Council on AI and Robotics and as an adviser to the United Nations on arms control.
+Did you like this summary? Buy book or audiobook http://getab.li/38069
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this abstract. getAbstract acknowledges the copyrights of authors and publishers. All rights reserved. No part of this abstract may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+6 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-19 08:28:24 CEST
+
+

@@ -177,8 +177,11 @@ segregated `owned-library/` division. Each work is tagged `public-domain` or `ow
 (in `CATALOG.tsv` and in its reading-copy header); the owned-copyright items are personal-use
 copies — **do not distribute**, and the segregated folder makes them trivial to exclude if this
 private repo is ever made public. 33 works extracted from DRM-free EPUB and text-layer PDF.
-Skipped: MOBI/PDB (no clean extractor available without Calibre), image-only PDFs, getAbstract
-book *summaries* (~46 files — not full books), work documents/presentations, and KJV duplicates
+A further **60 third-party book *summaries*** (getAbstract, ExecSummaries, Shortform) live in
+`owned-library/summaries/` — a lens on what modern nonfiction says (useful for the *modern edge*
+of the diachronic research), each header-flagged **SUMMARY — not the book's own words, never quote
+as the author**. Skipped: MOBI/PDB (no clean extractor available without Calibre), image-only PDFs,
+work documents/presentations, and KJV duplicates
 (the corpus already has the KJV). 5 are public domain (Dickens *A Tale of Two Cities*, Melville
 *Moby Dick*, Bernays *Propaganda*, Oliver *History of Initiation*, Newton *The Builders*); the rest
 are owned-copyright (devotional, product-management, motivation/self-help, and comparative/esoteric).

@@ -1,0 +1,91 @@
+Rating ?
+8
+
+Qualities ? Applicable Overview Concrete Examples
+
+Buy book or audiobook
+The Right Way to Win
+Making Business Ethics Work in the Real World Robert Zafft · Rowman & Littlefield Publishing Group, Inc. © 2020 · 256 pages
+Society / Ethics / Business Ethics
+Take-Aways
+· Practicing ethical behavior in business goes beyond nixing corporate greed. · Four main ethical frameworks guide global business practices today. · Virtue and vice are not mutually exclusive. · An ethical business is the sum of its parts. · Don't underestimate the reputational damage that small mistakes or ethical lapses cause. · Being technically legal does not make something right. · Organizational accountability hinges on individual accountability. · Crises can disrupt an organization's "normal ethics calculus."
+
+BatchLoginContext[cu=5482345,asp=3498,subs=6,free=0,lo=en,co=US] 2021-04-07 11:05:27 CEST
+
+1 of 6
+
+Recommendation
+Ethical business practices are vital to protecting your company's reputation and, thus, its success. In this practical guide, attorney and former McKinsey consultant Robert Zafft applies business ethics to real-world circumstances. He explores what it means to learn and implement ethical behavior in business, explains how organizational leaders can foster honorable practices with sound management methods, and demonstrates why acting ethically bolsters your bottom line.
+Summary
+Practicing ethical behavior in business goes beyond nixing corporate greed.
+When Wells Fargo CEO John Stumpf appeared before the US Senate to account for the 5,300 employees of his bank who opened fake accounts in customers' names, his blindness to negative public reaction ­ along with his nonplussed attitude toward it ­ was astonishing.
+"People are people. Real-world business ethics has to take them as they are, not as we might wish them to be."
+Excess focus on a CEO's purported greed can lead people to ignore more important truths, including realities of human nature and the fact that people's actions always happen in a context. Human beings justify their actions, however immoral ­ and no one works in a vacuum. People operate inside of companies, procedural routines and internal cultures, and they respond to incentives in those contexts.
+Four main ethical frameworks guide global business practices today.
+Ethics are a code of conduct by which a group of people interact. Four ethical frameworks tend to guide global business practices: "Cost/Benefit," "The Golden Rule," "Blind Bargaining" and "Virtue."
+"The Lifeboat Game" can clarify these frameworks. Suppose 10 shipwreck survivors end up in a lifeboat built for six. If the survivors don't immediately throw four people overboard, all 10 will drown. Profiles of the 10 passengers reveal characteristics which, depending on your point of view, argue either for or against their fellow passengers chucking them into the sea.
+For example, from a Cost/Benefit perspective, you might focus on each passenger's "utility" ­ either each one's likelihood of survival, how the person's family or society would benefit from his or her actions, or how likely he or she is to help the rest of the group survive. Other people might use the Golden Rule, selecting survivors according to the values they cherish most ­ for example, saving women and children on the basis of protecting physically weaker individuals.
+"The Lifeboat Game has no one right answer. But that does not mean that anything goes or that all answers are equivalent."
+A Blind Bargaining approach might have the passengers draw lots to give each individual an equal chance. The Virtue framework is the least applicable to the lifeboat scenario, since "Virtue Ethics" derive
+
+BatchLoginContext[cu=5482345,asp=3498,subs=6,free=0,lo=en,co=US] 2021-04-07 11:05:27 CEST
+
+www.getabstract.com 2 of 6
+
+from trying to become more virtuous. The Lifeboat Game underscores that ethics can take a number of forms. Whichever framework you use, it matters to understand how your decisions fit that framework and to be able to explain yourself to other people.
+Virtue and vice are not mutually exclusive.
+Machiavelli's 1513 book The Prince offers insight into the nature of virtue and vice. These supposed opposites can, under certain circumstances, transform into one another. Consider the pairing of "generosity and stinginess." Generous leaders may enjoy popularity early in their reigns, but unchecked generosity leads to unwise financial decisions. By acting in a more stingy manner, a leader might conserve assets and accomplish more for the common good.
+This dichotomy can occur with "mercy and strictness" and "faithfulness and trickery." Too much laxity in enforcing the law, for example, can increase lawlessness.
+"Just as the virtue-vice pairs...can morph into one another, the main ethical... frameworks can, if taken to an extreme, lead to unethical behavior."
+Ethical frameworks can turn on themselves and become unethical. The Cost/Benefit framework can prompt leaders to ignore non-quantifiable factors. The Golden Rule's emphasis on motive can encourage leaders to overlook results. Blind Bargaining's drive to flatten the playing field for everyone can rob people of decisionmaking powers. Pursuit of Virtue often comes at a cost to other people.
+Ethical questions are often messy. For example: Should officials allow a job-creating chemical plant upstream from a vacation hotspot and nature preserve? People on both sides of the issue could present ethical arguments and accuse the other side of selfish behavior. It often comes down to how you frame the issue ­ as a noble fight to protect the environment or as an example of a wealthy, largely white minority ignoring the economic and employment needs of its far-more-numerous nonwhite neighbors. This emphasizes the importance of looking for and analyzing all the facts as you make ethical decisions, not weighing only those that fit your personal inclinations.
+An ethical business is the sum of its parts.
+The law in the United States grants corporations many of the same rights as human citizens. They can, for example, own property and make contracts. They enjoy the right to free speech. If a business is a sole proprietorship, the business's ethics are the same as those of the owner. In the case of a business such as Hobby Lobby, for example, which sued and won its case against the US government for protection under the Religious Freedom Restoration Act, the company's ethics hinge on the members of its small, defined, similarly inclined ownership group.
+When all of a business's owners or shareholders agree on how to spend the company's assets, they don't have an ethical conflict ­ assuming their mutual choice is ethical, in itself. However, when a company allocates assets to prioritize certain owners' goals or values over others ­ regardless of the worthiness of those values or the stakeholders' legal rights ­ that raises ethical questions. How can multiple owners and leaders of a business serve the company's needs rather than their own? What ethical guidelines should they follow?
+
+BatchLoginContext[cu=5482345,asp=3498,subs=6,free=0,lo=en,co=US] 2021-04-07 11:05:27 CEST
+
+www.getabstract.com 3 of 6
+
+"What ethical guidelines tell controlling owners, directors and managers how to direct and run the business. Responses to this question fall into five broad clusters called dualism, monism, modest idealism, high idealism and pragmatism."
+Dualism argues that maximizing business owners' profits is the greatest ethical good.The monist approach argues that acting for the public good ultimately most benefits the company. Modest idealism prioritizes compliance with laws and regulations.High idealism posits that a business is responsible for the welfare of all its stakeholders ­ including its customers. The Pragmatic view argues that private businesses should perform services the public sector commonly provides. The process a business follows to decide on its ethical approach ­ and its goals in deciding as it does ­ determines whether that company is doing "the right thing."
+Don't underestimate the reputational damage that small mistakes or ethical lapses cause.
+From 1971 to 1980, Ford Motor Company sold more than three million Pinto model subcompact cars. The inexpensive, lightweight vehicle faced a number of design hurdles, but its fuel tank placement proved most problematic. Ultimately, Ford based its decision on where to put the fuel tank on a new crash test metric, Standard 301. When the standard changed shortly after the Pinto hit the market, Ford considered making modifications, but ultimately decided none of the proposed redesign options would make a substantial difference to the vehicle's safety. But in the summer of 1977, Mother Jones magazine published an article claiming to show that Ford had knowingly put an unsafe vehicle on the market.
+"Citing what it claimed were secret Ford internal documents, the `Mother Jones' article painted a picture of Ford deliberately foisting a defective and dangerous car onto consumers."
+Though Ford attempted to fight the article's claims, subsequent lawsuits and a preliminary defect ruling by the National Highway Traffic Safety Administration (NHTSA) sealed the company's fate. Ford was either indefensibly dishonest, negligent or unlucky, or victimized by opportunistic media and unscrupulous regulators. The lessons from the scandal are clear:
+1. Be transparent ­ Document your firm's decision-making process. 2. Even small lapses can have big consequences ­ Ford's lies about the results of an emissions
+test undercut its credibility. 3. Have a game plan to counter those who try to undermine your reputation ­ Bloggers,
+politicians and mainstream media can try to make your business look bad. Counteract attacks with positive buzz about your brand.
+Being technically legal does not make something right.
+When the Enron scandal unfolded in 2001 and 2002, it brought down Enron, itself, a major US energy company, and it led to the demise of another, even larger entity: Arthur Andersen LLP, one of the world's biggest auditing and accounting companies. Arthur Andersen's founder was an ambitious, hard-driving
+
+BatchLoginContext[cu=5482345,asp=3498,subs=6,free=0,lo=en,co=US] 2021-04-07 11:05:27 CEST
+
+www.getabstract.com 4 of 6
+
+employer who made ethical business practices a core tenet of his business's culture. By 2001, the firm's global scope had weakened that culture's cohesion.
+"Many partners across the accounting profession mistook their desire to please the client executives who hired them for the accountants' professional duty to serve the client entity, as well as the public interest."
+Starting in the 1990s, American accounting firms began to focus more on rules than standards regarding the often-murky waters of corporate accounting practices. The accounting profession focused on staying within the technical bounds of the law, following applicable procedures and rules to generate profits for executives, rather than considering whether those edicts served the interests of companies or the public.
+The firm successfully weathered smaller scandals before Enron, but failed in each instance to admit fault, fire guilty parties and clean up its practices. When Enron folded, no one felt inclined to give Arthur Andersen a pass on questionable behavior.
+Organizational accountability hinges on individual accountability.
+When someone takes the benefits of an action for himself or herself while shifting the costs onto someone or something else, malfeasance almost always ensues.Organizational design, process control and workplace culture help ensure that individuals pay the costs of their actions as well as realizing the benefits.
+"No society, no party to a contract and no organization can hope or expect even a basic degree of ethical behavior without a strong and steady focus on individual accountability."
+Sound business processes that can handle unexpected circumstances as well as routine interactions will help organizations establish individual responsibility and reduce inefficiency. Some processes may have more wiggle room for variations than others: If a Quarter Pounder from McDonald's weighs a bit more or less than 0.25 pounds, that's acceptable, but a jet engine component that is slightly off could have a devastating effect. Companies can use statistical analysis to help spot outliers that indicate either problematic individuals or faulty processes in need of improvement.
+Crises can disrupt an organization's "normal ethics calculus."
+To avoid becoming ethically unmoored during times of crisis, follow three rules:
+1. Establish goodwill with the public and your employees and business partners ­ This social capital will mitigate the harm of any bad gossip. Ensure that your business culture and brand values align with this goal.
+2. Adapt, but don't become an outlier ­ Pay attention and adapt to social trends and technological advances, but don't place your business too far in the fore or at the tail end of such developments.
+3. Be proactive, not reactive ­ All businesses face crises. Organizational leaders must take the broad view, and set their strategy and messaging accordingly.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=6,free=0,lo=en,co=US] 2021-04-07 11:05:27 CEST
+
+www.getabstract.com 5 of 6
+
+About the Author
+Attorney and former McKinsey Company consultant Robert Zafft advises businesses on cross-border trade and investment, governance and dispute resolution. He lectures at Washington University in St. Louis's Olin Business School.
+Did you like this summary? Buy book or audiobook http://getab.li/40660
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this review. All rights reserved. No part of this review may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+6 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=6,free=0,lo=en,co=US] 2021-04-07 11:05:27 CEST
+
+

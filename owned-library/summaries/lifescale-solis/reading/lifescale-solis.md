@@ -1,0 +1,96 @@
+<!-- SUMMARY (not the full book) extracted from a summary PDF the owner owns. -->
+Source file: lifescale-solis-en-37072.pdf
+Summary of: lifescale-solis; third-party book summary (getAbstract/ExecSummaries); owned copyright â€” personal use, do not distribute. NOT the book's own words â€” use to locate themes/positions, never quote as the author.
+
+Rating
+8
+
+Qualities Applicable Inspiring Well Structured
+
+Lifescale
+How to Live a More Creative, Productive, and Happy Life
+Brian Solis | Wiley © 2019
+Your time and attention have never been more valuable. Tech companies vie for your attention and trade it as a commodity. They lure you into increasing your time on their platforms, and exploit neuroscientific discoveries to manipulate your online behavior. You succumb to the barrage of distractions, losing focus and creativity. "Digital anthropologist" Brian Solis noticed the demise of his own creativity and developed the Lifescale method in response. He provides a framework for recapturing your focus, rekindling your creative spark, and igniting a deep sense of purpose and well-being.
+Take-Aways
+· Digital distractions gobble your focus and attention. · In the "attention economy," technology companies ruthlessly manipulate people's behavior to
+monetize their attention. · "Rapid toggling" ­ multitasking among activities ­ has many harmful effects. · Creativity isn't a special talent bestowed only on a lucky few. · People often misperceive pleasure-seeking as happiness. · Practicing mindfulness enables you to focus on the present. You become more aware of your
+environment and alert to your feelings. · Purpose drives you beyond mediocrity into greatness. · Positive thinking is a powerful tool for achieving your goals and aspirations. · Increasing the ability to focus your productive energy enables deep dives into creative
+endeavors.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-04-03 16:42:27 CEST
+
+www.getabstract.com
+
+Summary
+Digital distractions gobble your focus and attention.
+People suffering addiction to digital devices often drop out of real life to sleepwalk, zombie-like, through a virtual existence. They lose the ability to focus, meet goals and fulfill responsibilities. The detrimental effects of never disconnecting from the digital world include decreasing attention spans, loss of empathy, and less energy for creative activities or critical thinking. Productivity drops as workers spend an average of two hours a day on their smartphones. The time you spend on apps, networks, social media and texts does not make you happier. It erodes your sense of wellbeing, increases stress and anxiety, and engenders feelings of loneliness and self-doubt.
+"There's a direct path to happiness and it's through creativity; the benefits of that relationship are incredible."
+Happiness correlates directly to creativity. Digital distraction inhibits creative flow. If you want to reclaim happiness and become more creative through learning how to resist the magnetic pull of distraction, consider "Lifescaling." The Lifescale journey begins with developing awareness of why you succumb to distraction and relearning how to focus. You'll define your values, and identify what brings you happiness and fulfillment. You'll construct new routines and adopt creative habits for being a centered, present participant in your own life.
+In the "attention economy," technology companies ruthlessly manipulate people's behavior to monetize their attention.
+Platforms such as Facebook, Twitter and Snapchat monetize your attention. It's a profitable commodity. Developers use "manipulation techniques" to influence user behavior, enticing you to spend time with games, social networks and apps. These techniques grow increasingly sophisticated as companies apply neuroscience to exploit human cognitive weaknesses. The ill effects are measurable. For example, teen suicide rates are rising. The frequent use of social media by the members of this age group increases their risk for depression.
+"We haven't lost our ability to focus at all. We just need to reclaim it."
+Distraction provides an escape, especially if you're unhappy with your job or relationships. Digital distractions offer a welcome detour from responsibility, problems or difficult tasks. But now you can reclaim ownership of your mind.
+"Rapid toggling" ­ multitasking among activities ­ has many harmful effects.
+The human brain cannot multitask. What you're doing is "task-switching" between one activity and another, and that depletes neural energy. The quality of your output suffers, your mistakes
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-04-03 16:42:27 CEST
+
+www.getabstract.com 2 of 6
+
+increase, and you lose comprehension and experience higher levels of stress. Multitasking negatively affects memory and inhibits creativity.
+In the first step of the Lifescale journey, incorporate techniques into your daily routine to realign your energy and attention. Understand that you procrastinate to avoid negative emotions ­ often originating in a task ­ such as worry, self-doubt or boredom. To reframe the task as a vehicle for engendering feelings of accomplishment, visualize the benefits of completing something you've put off. Reorder your morning routine. Tackle your most important projects first thing, and do less-demanding tasks later in the day.
+Abstain from multitasking. "Single-task" instead. Reduce distractions by turning off notifications, closing apps and windows, and silencing your smartphone. Work for an uninterrupted period, such as 25 minutes, and take short, five-minute breaks to re-energize. Refrain from checking email or surfing the internet during your breaks. Stretch or move around. Slowly increase the time of your work periods.
+Creativity isn't a special talent bestowed only on a lucky few.
+Everyone has creative capabilities. Society and education systems suppress creative expression by putting less value on the arts than on subjects that supposedly prepare you to succeed. Everyone has the creative power to find solutions and discover new possibilities. Expressing creativity is essential to well-being. It engages the mind, promotes critical thinking and boosts innovation. When you're immersed in creative activities, you're resistant to distractions and you feel less anxiety. You gain self-confidence and awareness, take risks and accept failure as part of the process.
+"Many highly talented, brilliant, creative people think they're not because the thing that they were good at in school wasn't valued or was actually stigmatized."
+Indulge your curiosity, ask questions and investigate possibilities. Start an ideas list, adding three new ideas every day.
+People often misperceive pleasure seeking as happiness.
+People believe that things, other people or activities make them happy, and that happiness is fleeting. They pursue the next delicious meal, exciting vacation, new romance or work promotion. You may seek attention and validation from outside sources and measure your worth by "likes" from strangers on social media. This brings less happiness, not more. To experience sustained happiness and well-being, engage in pursuits that provide you with meaning and purpose. Understand that what makes you happy springs from your values.
+Values are the underlying belief system that is the fabric of your character and directs your life. These exercises will help you identify your core values:
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-04-03 16:42:27 CEST
+
+www.getabstract.com 3 of 6
+
+1. List times in your life when you felt the happiest. 2. Note the times in your life when you felt the worst. 3. Extrapolate the values from your best and worst times, and place them in a "matrix-style
+format." 4. Record every value you find important, such as hard work, generosity, fun, self-reliance, loyalty
+or tolerance. 5. Group your key values together by themes. For example, values such as "learning, growth and
+development" fall under one theme. 6. Pick one value from each group that represents the theme. 7. Create subsets to include every value you find worthwhile. 8. Consider actions you can take to fulfill and live by your top five to 10 values. 9. Commit to living by these values by posting the list where you'll see it every day.
+Practicing mindfulness enables you to focus on the present. You're more aware of your environment and alert to your feelings.
+Most people live in a "me-centered" universe, according to "happiness guru" Dr. Srikumar Rao. They think about themselves constantly, falling into the trap of "accidental narcissism." But, living in alignment with your core values requires shedding me-centered thinking and devoting yourself to the greater good. Develop self-awareness, which differs from thinking about yourself. Instead of questioning why things happen, ask, "What?" For example, "What do I find most important?" and "What is my life's purpose in this moment?" Practicing mindfulness transports you from "why" to "what," begetting a rich and fulfilling life experience.
+Digital distraction diverts your attention and prevents you from fully experiencing every moment. "Mental chatter," the constant stream of thoughts, judgments and worries running through your brain, is the other big distraction. A mindfulness practice allows you to concentrate on the present, becoming cognizant of your environment and alert to your feelings. Mindfulness promotes creativity. When distractions don't drain you, you're free to focus on creativity.
+"Being in the moment is not just a slogan; it's incredibly powerful. Not only for you, but for those you're spending time and sharing life with."
+Focus on your breath. Breathe in deeply, then hold your breath for five seconds and exhale in a big puff. Take a deep breath in, and hold it for a second before exhaling. As you repeat this breathing exercise, notice how it calms your mind. Promote mindfulness through the art of acceptance. Let go of those things you cannot control. Appreciate what you're doing in the moment, such as eating a meal or sipping a cup of tea. A meditation practice is self-calming; it helps you let go and opens your mind.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-04-03 16:42:27 CEST
+
+www.getabstract.com 4 of 6
+
+Purpose drives you beyond mediocrity into greatness.
+Purpose provides energy and focus, motivating you to perform as your best self. Clarity of purpose counters the mental chaos bred by spiritual aimlessness. It offsets me-thinking.
+"A more mindful, empathetic, loving and present life is the foundation of success as a process of living rather than as a plateau of achievement."
+Participating in four kinds of life experiences can promote a clear sense of purpose:
+1. "Physical and mental well-being" ­ Participate in activities that promote good health. 2. "Belonging and recognition" ­ Give and receive validation mutually from people who
+matter to you. 3. "Personally treasured activities" ­ Make time daily to do the things you love. 4. "Spiritual closeness and connectedness" ­ Seek a sense of connection to something
+bigger than yourself and the feeling of being a part of the collective human experience.
+Compose a personal purpose statement. This concise, one- or two-sentence statement sets forth your life passion and values, and a direction you can travel to achieve them. For example, Oprah Winfrey's purpose statement reads: "To be a teacher. And to be known for inspiring my students to be more than they thought they could be."
+Positive thinking is a powerful tool for achieving your goals and aspirations.
+Incorporating purposeful behavior into your daily life is an ongoing process. Cultivating a positive outlook fuels motivation. The human brain has an innate, negative bias. But you can retrain your mind to have a positive bent. This doesn't mean you are naive or thoughtlessly happy. It calls for controlling your reaction to input, thoughts and emotions. Simple methods for establishing new, positive thought patterns include practicing appreciation and gratefulness, finding inspiration from quotes and affirmations, and incorporating positivity into your mindfulness practice. Send positivity into the world to attract positive reactions.
+"You cannot control your mood, and you cannot always control the thoughts that pop into your head, but you can choose how you handle them."
+Turn positive thinking into action through "visioning." Generate mental images of what you'd like to achieve. Let your vision motivate and inspire you to perform at your highest level. Write a description of your goal or objective. Describe the desired outcome. Be realistic and choose an attainable goal. Create a vision board ­ a collection of images, words and pictures that form a visual representation of what you wish to achieve. Prominently display the board where you can see it daily. Create an action plan that describes the specific steps to take to achieve your goal. Seek
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-04-03 16:42:27 CEST
+
+www.getabstract.com 5 of 6
+
+input from people you respect and trust. Their support, feedback and practical advice can keep you on the right path.
+Increasing the ability to focus your productive energy enables deep dives into creative endeavors. Harness your productive energy and take a deep dive into creativity. Professor Cal Newport of Georgetown University defines deep work as "the ability to focus without distraction on a cognitively demanding task." To switch between deep and shallow efforts, remove yourself from distraction to pursue uninterrupted work in a quiet place. Use blocks of time for concentrated work, and alternate between periods of deep and shallow work. Or dive deeply into work whenever your schedule allows, even if only for a short time.
+"Building your ability to focus creatively is like holding your breath. The more you practice it, the more you increase your ability to hold longer and deeper breaths." Become ruthlessly protective of your deep-dive time, and stick to your schedule. Learn where you do your best work. Plan ahead to minimize interruptions. For example, have coffee and drinks on hand, keep highlighters and pens in stock, and construct an inspiring playlist. Investigate sharing a creative workspace to glean inspiration, feedback and support from others. Over time, you'll experience periods of creative flow during deep work. As you immerse yourself in a task, you'll see that time flies by, your creative juices flow, outside distractions recede, and you're filled with a sense of personal truth and well-being.
+About the Author
+Brian Solis, principal analyst at the Altimeter Group, also wrote X: The Experience When Business Meets Design and What's the Future of Business.
+Did you like this summary? Buy book or audiobook http://getab.li/37072
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this abstract. getAbstract acknowledges the copyrights of authors and publishers. All rights reserved. No part of this abstract may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+6 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-04-03 16:42:27 CEST
+
+

@@ -1,0 +1,258 @@
+<!-- SUMMARY (not the full book) extracted from a summary PDF the owner owns. -->
+Source file: ExecSummaries-Fierce_Conversations.pdf
+Summary of: execsummaries-fierceconversations; third-party book summary (getAbstract/ExecSummaries); owned copyright â€” personal use, do not distribute. NOT the book's own words â€” use to locate themes/positions, never quote as the author.
+
+Career & Self-Development: Communication
+
+July 2009
+SOUNDVIEW Executive Book Summaries®
+www.summary.com
+
+Fierce Conversations
+Achieving Success at Work & in Life, One Conversation at a Time
+THE SUMMARY IN BRIEF
+Business is fundamentally an extended conversation -- with colleagues, customers, partners and the unknown future emerging around us. Unfortunately, many conversations fail.
+Conversations are the work of a leader and the workhorses of an organization. While no single conversation is guaranteed to change the trajectory of a career, a company, a relationship or a life -- any single conversation can.
+Practicing and championing fierce conversations company-wide enhances employees' capacity to serve as effective agents for strategic success, structuring the basis for high levels of alignment, collaboration and partnership at all levels within the organization.
+Whether it's coming up with a big idea, transforming a company into a great place to work, improving customer-renewal rates, enhancing cross-boundary collaboration or providing leadership development and the healthier financial performance that goes with it -- success occurs one conversation at a time.
+We effect change by engaging in robust conversations with ourselves and others. Each conversation we have with co-workers, customers, significant others and children either enhances those relationships, flattens them or takes them down. In Fierce Conversations, executive development expert Susan Scott explores principles and practices that will help you engage in conversations that interrogate reality, provoke learning, tackle tough challenges and enrich relationships, no matter how sensitive the topic.
+IN THIS SUMMARY, YOU WILL LEARN:
+· How to overcome the barriers to meaningful communication. · How to expand and enrich conversations with colleagues, customers, friends
+and family members. · How to increase clarity and improve understanding. · How to handle strong emotions -- on both sides of the table.
+Published by Soundview Executive Book Summaries, P.O. Box 1053, Concordville, PA 19331 USA © 2009 Soundview Executive Book Summaries · All rights reserved. Reproduction in whole or part is prohibited. Concentrated KnowledgeTM for the Busy Executive · www.summary.com July 2009 · Order #31N-TFS
+
+by Susan Scott
+CONTENTS
+Master the Courage to Interrogate Reality
+Page 2
+Come Out From Behind Yourself, Into the Conversation, and Make It Real
+Page 3
+Be Here, Prepared to Be Nowhere Else
+Page 4
+Tackle Your Toughest Challenge Today
+Page 5
+Obey Your Instincts
+Page 6
+Let Silence Do the Heavy Lifting
+Page 7
+Embracing the Principles
+Page 8
+
+THE COMPLETE SUMMARY: FIERCE CONVERSATIONS
+by Susan Scott
+
+The author: Susan Scott teaches positive change through powerful communication. Her firm, Fierce Inc., is an internationally recognized leader in cultural transformation and executive education. For 13 years, Scott ran think tanks for executives through Vistage International, a CEO development organization. Previously, Scott served as vice president of the Pace Network, a search firm in Seattle, and also as a regional manager for Context Associated, a training organization headquartered in San Francisco.
+Fierce Conversations: Achieving Success at Work & in Life, One Conversation at a Time by Susan Scott. Copyright © 2002, 2004 by Fierce Conversations Inc. Summarized by permission of the publisher The Berkley Publishing Group, a division of Penguin Group (USA) Inc. 287 pages, $15.00, ISBN 978-0-425-19337-2.
+Summary copyright © 2009 by Soundview Executive Book Summaries, www.summary.com, 1-800-SUMMARY, 1-610-558-9495.
+For additional information on the author, go to http://www.summary.com or to http://www.fierceinc.com.
+
+Introduction: The Idea of Fierce
+In Roget's Thesaurus, the word fierce has the following synonyms: robust, intense, strong, powerful, passionate, eager, unbridled, uncurbed, untamed. In its simplest form, a fierce conversation is one in which we come out from behind ourselves, into the conversation, and make it real. While many people are uncomfortable with "real," it is the unreal conversations that should scare us because they are incredibly expensive for organizations and for individuals. Every organization wants to feel it's having a real conversation with its employees, its customers, its marketplace and with the unknown future that is emerging around it. Each individual wants to have conversations that are somehow building his or her world of meaning.
+If you are a leader, your job is to accomplish the goals of the organization. How will you do that in today's workplace? In large part, by making every conversation you have as real as possible.
+Getting Started
+Begin by listening to yourself as you've never listened before.
+Begin to overhear yourself avoiding the topic, changing the subject, holding back, telling little lies (and big ones), being imprecise in your language, being uninteresting even to yourself. And at least once today, when something inside you says, "This is an opportunity to be fierce," stop for a moment, take a deep breath, then come out from behind yourself, into the conversation, and make it real. Say something that is true for you.
+When you do, whatever happens from there will happen. It could go well or it could be a little bumpy, but at least you will have taken the plunge. You will have
+
+said at least one real thing today, one thing that was real for you. Something will have been set in motion, and you will have grown from that moment. Once you master the courage and the skills and begin to enjoy the benefits of fierce conversations, they will become a way of life. G
+Principle 1: Master the Courage to Interrogate Reality
+No plan survives its collision with reality, therefore, whether you are running an organization or participating in a committed relationship, you will find yourself continually thwarted in your best efforts to accomplish the goals of the "team" unless reality is regularly and thoroughly examined. Describing reality, however, can get complicated because there are multiple realities existing simultaneously on almost any and every topic.
+Most leaders have learned from experience that until the multiple -- sometimes conflicting -- realities of key individuals and constituents have been explored, implementing a plan can be a decidedly tentative endeavor. To the degree that you resist or disallow the exploration of differing realities in your workplace and at home, you will spend time, money, energy and emotion cleaning up the aftermath of plans quietly but efficiently torpedoed by individuals who resent the fact that their experience, opinions and strongly held beliefs are apparently of little interest to the organization.
+Three Stages
+There are three stages of interrogating reality. The first step is to identify the issue on the table and, if you have a
+
+1-800-SUMMARY Published by Soundview Executive Book Summaries (ISSN 0747-2196), P.O. Box 1053, Concordville, PA 19331 USA,
+
+service@summary.com
+
+a division of Concentrated Knowledge Corp. Published monthly. Subscriptions: $209 per year in the United States, Canada and Mexico, and $295 to all other countries. Periodicals postage paid at Concordville, Pa., and additional offices.
+
+Postmaster: Send address changes to Soundview, P.O. Box 1053, Concordville, PA 19331. Copyright © 2009 by Soundview Executive Book Summaries.
+
+Available formats: Summaries are available in print, audio and electronic formats. To subscribe, call us at 1-800-SUMMARY (610-558-9495 outside the United States
+
+and Canada), or order on the Internet at www.summary.com. Multiple-subscription discounts and corporate site licenses are also available.
+
+Rebecca S. Clement, Publisher; Sarah T. Dayton, Editor in Chief; Andrew B. Clancy, Senior Editor; Edward O'Neill, Graphic Designer; Chris Lauer, Contributing Editor
+
+2 Soundview Executive Book Summaries® www.summary.com
+
+Summary: FIERCE CONVERSATIONS
+
+solution in mind, make a proposal. Be clear and concise. "This is the issue. This is what I propose, for these reasons."
+An alternative approach is to withhold your ideas until others have shared theirs; however, conversations are best launched when there is a well-defined idea offered as a jumping-off place for everyone's thinking and discussion. If you don't have a proposal, simply identify the issue and proceed.
+When you are in the presence of knowledgeable but cautious individuals, once you've made your proposal or described the issue, don't just ask, "What do you think?" Invite questions. Check for understanding. Say, "Before we go any further, please ask any clarifying questions you may have." If you notice someone who is silent but looks puzzled or concerned, ask, "Alison, what questions do you have?"
+Check for Agreement
+Once you are certain that everyone understands what you are proposing, check for agreement. For example: "I believe this is the right way to go, the right course of action. But I suspect some of you may see it differently. If you do, I'd like to hear it. I know that my enthusiasm may make it hard to challenge me, but my job is to make the best possible decisions for the organization, not to persuade you of my viewpoint. So please speak up." Then proceed to call on every individual at the table. "Mike, what's your perspective on this? I invite you to push back on what I've said."
+This kind of invitation will get people to open up because you publicly, openly and actively encouraged them to share opposing views. You've shown that you are open to rational influence.
+Do the same thing following the sharing of others' ideas. "Jim, what is your perspective on Mike's idea?"
+The Right Sequence
+Thus, the sequence in interrogating reality is:
+1. Make a proposal.
+2. Check for understanding.
+3. Check for agreement.
+What's the payoff for interrogating multiple realities? Original thinking and innovation becomes possible. Most importantly, the best decisions will be made and implemented.
+Mineral Rights
+The "Mineral Rights" conversation model is based on the idea that, "If you're drilling for water, it's better to drill one 100-foot well than 100 one-foot wells." This conversation interrogates reality by mining for increased
+
+clarity, improved understanding and impetus for change. Mineral rights will help you drill down deep on a
+topic by asking your colleague, customer, boss, direct report, spouse, child or friend a series of questions. This is a natural exploration that accomplishes all four purposes of a fierce conversation:
+1. Interrogate reality. 2. Provoke learning. 3. Tackle tough challenges. 4. Enrich relationships. The questions asked during a Mineral Rights conversation help individuals and teams interrogate reality in such a way that they are mobilized to take potent action on tough challenges. The questions are: 1. What is the most important thing we should be
+talking about today? 2. What is the core, underlying issue? 3. What current results is this creating? 4. If nothing changes, what's likely to occur? 5. Where are your fingerprints on this issue? 6. What is the ideal outcome you envision? 7. What is the next most potent step you need to take? And throughout this conversation, probe for emotion. "When you consider those results, what do you feel?" "When you consider that possible outcome or scenario, what do you feel?" Emotion gives the lit match something to ignite. G
+Principle 2: Come Out From Behind Yourself, Into the Conversation, and Make It Real
+You are an original, utterly unique human being. You cannot have the life you want, make the decisions you want or be the leader you are capable of being until your actions represent an authentic expression of who you really are or who you wish to become.
+In the context of fierce conversations, authenticity requires that you pay attention to Woody Allen's first rule of enlightenment: "SHOW UP!"
+You must deliberately, purposely come out from behind yourself, into the conversation, and make it real -- at least your part of it.
+How real are any of us if we do not share our doubts and dark days with those closest to us, if we do not claim our failures as well as our successes? Authenticity is not something you have; it is something you choose.
+
+www.summary.com Soundview Executive Book Summaries® 3
+
+Summary: FIERCE CONVERSATIONS
+
+Healthy Selfishness
+Even individuals who wield significant power at times withhold their real thoughts and feelings from those central to their success and happiness. It has much to do with the underlying impulse to survive by gaining the approval and support of others (boss, customer, coworker, family member, significant other) who we imagine hold the keys to the warehouse wherein is kept everything we want and need. To ensure that such power brokers are on our team, we aim to please. While the desire to please is not a flaw, at crucial crossroads we sometimes go too far. Way too far. When faced with a so-called moment of truth, we find ourselves chucking the truth over the fence or tucking it behind the drapes in exchange for a trinket of approval.
+Some fear that becoming authentic is a form of selfishness, and unknowingly limit the possibilities within their relationships, feeling it's inappropriate to put their own interests first. After all, what would people think?
+Consider this: Successful relationships require that all parties view getting their core needs understood and if possible, met as being legitimate. You won't articulate your needs to yourself, much less to your work team or life partner, until and unless you see getting your needs met as a reasonable expectation. So pry the permission door open just far enough to consider that you have a right to clarify your position, state your view of reality and ask for what you want.
+Individuation
+Coming out from behind yourself is part of the search, whether born of panic or courage, for that highly personalized rapture of feeling completely yourself, happy in your own skin. It is a reach for authenticity -- a process of individuation -- when you cease to compare yourself with others and choose, instead, to live your life. It is an opportunity to raise the bar on the experience of your life. It is a deepening of integrity -- when who you are and what you live are brought into alignment. No more damping down your soul's deepest longings in order to get approval from others. As André Gide wrote, "It is better to fail at your own life than succeed at someone else's."
+The principal job at hand is to intertwine addressing your current business and personal issues with selfexploration and personal development, building a bridge between yourself as a person and yourself as a professional.
+Our companies, our relationships and our lives are mirrors accurately reflecting us back to ourselves. The
+
+The Seven Principles of Fierce Conversations
+1. Master the courage to interrogate reality.
+2. Come out from behind yourself, into the conversation, and make it real.
+3. Be here, prepared to be nowhere else.
+4. Tackle your toughest challenge today.
+5. Obey your instincts.
+6. Take responsibility for your emotional wake.
+7. Let silence do the heavy lifting.
+results with which we are pleased reflect parts of ourselves that are working well. The results that disappoint and displease us reflect aspects of ourselves -- beliefs, behaviors -- that simply aren't working.
+We can see an organization, department or relationship with clarity only when we look ourselves full in the face.
+Rewards
+What are the rewards for coming out from behind yourself, into your conversations, and making them real? You will find yourself abandoning the safety of confusion for the juice and motivation of clarity. You will nurture your own deepening authenticity and the emergence of healthier, more effective qualities and behaviors. Your desire to control others will be balanced with the willingness to surrender. As a result, you will move toward what you desire -- a happier marriage, personal freedom, professional accomplishment, a life that simply fits you better. A lot better. The experience of being awake, alive and free. G
+Principle 3: Be Here, Prepared to Be Nowhere Else
+Being truly present in a conversation is, sadly, a rare experience often because we are multi-tasking, eyeing our emails or thinking about something other than the conversation that is right in front of us, the one that wants and needs to take place. But it is only when we genuinely "see" the people who are important to us, that we can hope to succeed as agents for positive change.
+Having ignored, misheard and misread many individuals throughout our lifetime, however, we often find that
+
+4 Soundview Executive Book Summaries® www.summary.com
+
+Summary: FIERCE CONVERSATIONS
+
+discovering someone else's authentic self can be complicated by our increasing cynicism.
+Yet we must learn to rebuild the links that connect people and that provide an effective antidote to cynicism and disaffection. We must transform the way we speak, the way we ask, the way we listen. How do we get to know another person? How do we get past "How are you? I'm fine."?
+By really asking and really listening. By being with someone, even if only for a brief moment, prepared to be nowhere else.
+The One-on-One
+For both personal and professional relationships to move forward or upward, you must have fierce affection for the other person. You must have genuine curiosity about what is going on with that person at any given time. You must have an insatiable appetite for learning more every day about who he or she is. Occasionally set aside all of the topics ping-ponging inside your own head and simply be with this other person, here and now.
+All this being present stuff does not involve listening endlessly to someone telling you more than you ever wanted to know about a series of boring topics.
+The conversation is the relationship. One conversation at a time, you are building, destroying or flatlining your relationships. It is possible, however, to create high-intimacy, low-maintenance relationships -- one relatively brief conversation at a time.
+Soft Eyes and Ears
+One of the basics of being present is eye contact. Being here, prepared to be nowhere else, does not require maniacal eye contact during your conversations. Many people want to back away from an avid individual whose eyes seem to drill through us and out the other side. Better to have "soft eyes."
+Instead of trying to focus on any one thing, if we soften our eyes and allow the world to come to us, we will see a great deal more. We will catch subtle motion. Our peripheral vision will become acute.
+The same thing happens with our listening. We may succeed in hearing every word yet miss the message altogether. There is so much more to listen to than words. Listen to the whole person.
+When we listen beyond words for intent, for the scaffolding on which a story hangs, clarity and character emerge. We need to listen this way to ourselves, not just to others. G
+
+Principle 4: Tackle Your Toughest Challenge Today
+Hand in hand with the courage to interrogate reality comes the courage to bring to the surface and confront your toughest, most often recurring personal and professional issues.
+Remember, enriching relationships is one of the purposes of a fierce conversation.
+Below is a model that can be used when you need to confront someone's behavior or coach someone else to do so. If you wish to craft conversations that moderate our worst conversational tendencies, you should:
+· Advocate your position clearly and succinctly. · Illustrate your position by sharing the thinking
+behind it. · Publicly test your views, and invite and encourage
+others to do so as well. · Inquire into the views of others and actively explore
+their thinking. Challenging conversations can be broken down into three distinct parts: opening statement, interaction and resolution.
+The Opening Statement
+Preparation of your opening statement is essential. Do your homework. Write down your opening statement and practice saying it out loud. There are seven components to an opening statement:
+1. Name the issue. 2. Select a specific example that illustrates the
+behavior or situation you want to change and the negative results it is currently creating. 3. Describe your emotions about this issue. 4. Clarify what is at stake if nothing changes. 5. Identify your contribution to this problem. 6. Indicate your wish to resolve the issue. 7. Invite your partner to respond. You have 60 seconds to do it all.
+The Interaction Phase
+The next part of the confrontation model is the interaction phase:
+Inquire into your partner's views. If your partner says something with which you violently disagree, resist the temptation to build a stronger case. Simply listen so that your own learning may be provoked. Ask questions. Dig for understanding. Use paraphrasing and perception checks; don't be satisfied with what's on the surface. For example: "May I tell you what I'm hearing? I want to
+
+www.summary.com Soundview Executive Book Summaries® 5
+
+Summary: FIERCE CONVERSATIONS
+
+make sure I've understood you." Rather than jump back in and start talking as soon as
+your partner says something you feel is off base, focus on examining your partner's reality and his or her filters.
+Finally, when your partner knows that you fully understand and acknowledge his or her view of reality, move toward resolution, which includes an agreement about what is to happen next. This is the longest part of the conversation.
+The Resolution
+Throughout the interaction phase of confrontation, reality is interrogated, learning is provoked and relationships are enriched. Now it's time to come to an agreement about what happens next. After all, you said your intent was to resolve the issue, and the following questions will help you accomplish this:
+What have we learned? Where are we now? Has anything been left unsaid that needs saying? What is needed for resolution? How can we move forward from here, given our new understanding?
+How do you end the conversation? Make an agreement and determine how you will hold each other responsible for keeping it. When we confront behavior with courage and skill, we are offering a gift. And it goes both ways. While it may be difficult to hear others' truths about ourselves, there is likely to be a vein of gold worth mining. G
+Principle 5: Obey Your Instincts
+How does an intelligent human being make poor decisions? When President Kennedy got the idea to invade Cuba, only one person, Arthur M. Schlesinger Jr., questioned this decision; however, other advisers talked Schlesinger out of bringing up his concerns. The invasion was a disaster.
+Listen to Your Internal Voice
+Obeying your instincts requires that you listen to your own internal voice, acknowledge your internal reference point, rather than rush to embrace the myriad references and voices of others. Most of us allow ourselves to be influenced or persuaded that the voice within us is mistaken, flawed, at best a distraction. And if we are intent on gaining others' approval, we are quick to discard our insights, commanding the voice inside us, "Shut up and go to your room."
+In fierce conversations there is neither a struggle for approval nor an attempt to persuade. There is, instead, an interchange of ideas and sentiments, during which
+
+you pay attention to and disclose your inner thoughts while actively inviting others to do the same.
+Listen to both sides of your brain as if you were hearing two conversations at the same time. One conversation is the literal conversation that is visible, audible. The other conversation is the one going on inside your head -- what you are thinking and feeling.
+Perception Testing
+Bring some of your private thoughts and feelings into the neutral zone between your private thoughts and your public thoughts by noticing them without attachment. They aren't right or wrong. They just exist. Become interested in them as phenomena in the world, as if they were interesting shells you found on the beach. When you are ready you can bring these thoughts into the public conversation. If you like, you can use these words: "While you were speaking, I had a thought that I would like to check out with you ..."
+This is called "perception checking." It lets your partner in on what you have been thinking and feeling, but it doesn't invite defensiveness because you didn't interject your thoughts as the capital-T Truth.
+Another approach is to ask a question to open up a willingness on another person's part. For example, you might ask, "Would you like to hear something I'm feeling [or thinking or wondering] right now?" Then, assuming your partner is willing and interested, share your thought.
+What Is Appropriate?
+And what if your instincts occasionally miss the target?
+Consider this possibility: Your confusion is an asset; in fact, your search for clarity may blaze a path for others. In working to express what you do not understand -- but long to understand -- you invite the kind of conversations for which others are searching. If you begin to wonder what others will think of you, you won't be able to pursue original avenues. Look for the deepest issue that engages or troubles you. Familiarity with the unknown and with the fluidity of the world is essential. Speak your way toward it. G
+Principle 6: Take Responsibility for Your Emotional Wake
+For a leader, there is no trivial comment. Something you might not even remember saying may have had a devastating impact on someone looking to you for guidance and approval. By the same token, something you said years ago may have encouraged and inspired some-
+
+6 Soundview Executive Book Summaries® www.summary.com
+
+Summary: FIERCE CONVERSATIONS
+
+one who is grateful to you to this day. Everything each of us says leaves an emotional wake. Positive or negative. Our individual wakes are larger than we know.
+An emotional wake is what you remember after I'm gone. What you feel. The aftermath, aftertaste or the afterglow.
+Your Stump Speech
+A leader's long-term performance is profoundly affected by the long-term spin the organization puts on him or her. Our emotional wake determines the story that is told about each of us in the organization. It's the story that's told when we're not in the room. It's the story that will be told about us after we're gone. It can be a wonderful story that makes us smile or a painful story with a bad ending.
+If you are a leader, taking responsibility for your emotional wake requires that you have a stump speech that you are prepared to give anytime, anywhere to anyone who asks or who looks the least bit confused. Your stump speech must be powerful, clear and brief.
+This is where we're going.
+This is why we're going there.
+This is who is going with us.
+This is how we're going to get there.
+Great leaders share their stump speeches with their teams and with their customers repeatedly, not only to convey a clear and compelling story but also to leave a positive emotional wake by providing such clarity that it is difficult to put a negative spin on their words.
+Your Legacy
+What is your story? How would you like to be interpreted? What is the legacy you want to leave? If the people in your organization could tell one story about you, what would you want it to be? What is the message you wish to deliver to your customers? What wake do you wish to leave following each conversation? The conversation is the relationship. In the workplace, this translates to your ongoing dialogue with all those essential to your success and that of your organization.
+Many great leaders sustain a love affair with their work and their lives. They place their attention at the service of deep, long-term concepts and convictions in the workplace and the home. They possess a groundedness that comes from having wrestled core problems to the ground and lived to tell about it. They have become sensitized to the effect they have on others. They have become increasingly aware of the wake caused by their words and actions. Their perspective and goals have
+
+shifted as they recognized that leadership must be for the world, for the greater good, rather than for narrow personal interests. G
+Principle 7: Let Silence Do the Heavy Lifting
+Many people attempt to forge relationships exclusively through words. Lots of words. However, the best leaders talk with people, not at them.
+Talking at people is a common affliction. Did you know that eight out of 10 sales proposals fail? And 50 percent of those eight fail because we spend too much time talking about ourselves or the features and benefits of our product, and not enough time listening to the customer before we explained how wonderful doing business with us would be.
+So Many Words, So Little Substance
+Fierce conversations require silence. In fact, the more emotionally loaded the subject, the more silence is required. And, of course, this carries over into our homes, into our personal relationships. Often we are simply trying to intuit something about ourselves, our companions or the topics themselves. Sometimes we need silence in which to make a decision about the closeness we feel for our companions or the distance we feel from them.
+Once in a precious while, silence is merely abstinence from self-assertion. For many work teams and couples, however, it is easy to fall into a conversational pattern that contains so many words, so much white noise, that it leaves all parties deaf to any comments of substance that could have been interjected into the conversation. Our habitual ways of talking with (or at) each other prevent us from allowing silence to help us get in touch with what we really want to say.
+Slow Down
+Sometimes a dramatic intervention is required to stop the words in order to start a conversation. There are issues that our colleagues and customers will ignore every time they come up. If we are not alert, we will walk with others right past the issue. We may sense that something is there, but the conversation is moving too fast. Or, because we are so invested in playing the role of "expert," we fill the air with words, missing the real issue entirely.
+Silence is the greatest tool to slow down a conversation. As we talk with people, as we sit with them in silence, what is in the way -- anger, numbness,
+
+www.summary.com Soundview Executive Book Summaries® 7
+
+Summary: FIERCE CONVERSATIONS
+
+impatience, manipulation, rigidity, blame, ego, cruelty, ambition, insensitivity, intimidation, pride -- may fall away. It is in silence that such attributes, emotions and behaviors reveal themselves as unnecessary.
+The Space Between Thoughts
+Deepak Chopra refers to the space between thoughts as the place where insight can occur. The trouble is, for most of us, there is no space between thoughts.
+While the occasional stream of consciousness can be illustrative, important conversations require moments of silence during which we may reflect on what someone has said and consider our responses, before opening our mouths. Otherwise, our knee-jerk responses may not reflect our highest and best thoughts. How could they? We haven't had a moment to consider what they might be.
+How do we let silence do the heavy lifting? Provide it. Allow silence to fill in the greater meaning that needs to be there. Perhaps if I close my mouth, you'll open yours.
+During company meetings, the best responses, the most brilliant solutions, often come from the person who has sat silently listening for a very long time while the rest of us filled the air with debate. Even when called upon, such an individual often appears reluctant to speak, sitting in reflective silence for agonizing moments while others click ballpoint pens and glance at their watches. Then he or she speaks, and everyone else in the room is compelled to shift to a broader, wiser perspective, with the result that elegant, complete answers begin to emerge. G
+Embracing the Principles
+Fierce conversations are not a form of showing off or parading a rich vocabulary. Fierce conversations are an effort to understand -- first of all, for yourself -- something that is worthy of your pondering. They are deeply probing explorations. Speak about the things you want to understand. Most people want to share journeys of this kind. Forget about being clever or impressive. What is called for now is quiet integrity.
+The secret is for you to show up -- fully. You may be among people who don't support you. You may be among people who, loving or unloving, are simply not equipped to support the ambition of engaging in fierce conversations. This is not an unusual experience. The courage to show up is both simple and daunting. Once you show up, people can see you. They can judge and criticize and gossip. Some safety and comfort are lost
+
+Never Mistake Talking for Conversation
+· Talk with people, not at them. · The more emotionally loaded the subject, the
+more silence is required. · Use silence to slow down a conversation. · Allow silence to fill in the greater meaning that
+needs to be there. · Allow silence to teach you how to feel.
+when an ambition or strongly felt emotion is expressed. Perhaps, if you have become impatient with the false identity you have created for yourself, life is inviting you into much larger worlds than you have imagined.
+Intimacy is required in conversation now -- at home and in the workplace. We must answer the big questions in our organizations: What is real? What is honest? What is quality? What has value?
+How to Effect Change
+We effect change by engaging in robust conversations with ourselves, our colleagues, our customers, our family, the world. Your ability to effect change will increase as you become more responsive to your world and to the individuals who are central to your happiness and success.
+Change the world -- one conversation at a time. The world will be well served if each of us makes a strong personal choice to pay fierce attention to every conversation that we have.
+It is not enough to be willing to speak. The time has come for you to speak. Be willing to face mutiny everywhere but in yourself. Your time of holding back, of guarding your private thoughts, is over. Your function in life is to make a declarative statement. Sit beside someone you care for and begin. G
+RECOMMENDED READING LIST
+If you liked Fierce Conversations, you'll also like: 1. Transparency by Warren Bennis, Daniel Goleman and James O'Toole.
+Digital technology makes transparency all but inevitable in this era. Three essays offer leaders practical advice on how to embrace transparency as a good thing, even if it's not an easy one. 2. Winning With People by John C. Maxwell. Good relationships provide the substance we need to live successful and fulfilling lives. Maxwell offers the tools that can help improve your existing relationships and cultivate strong new ones. 3. The Speed of Trust by Stephen M.R. Covey. The one thing that is common to every individual, relationship, team, family, organization and nation is trust. The ability to establish, grow, extend and restore trust is the key leadership competency of the new global economy.
+
+8 Soundview Executive Book Summaries® www.summary.com
+
+

@@ -1,0 +1,100 @@
+<!-- SUMMARY (not the full book) extracted from a summary PDF the owner owns. -->
+Source file: autonomy-burns-en-35313.pdf
+Summary of: autonomy-burns; third-party book summary (getAbstract/ExecSummaries); owned copyright â€” personal use, do not distribute. NOT the book's own words â€” use to locate themes/positions, never quote as the author.
+
+Rating
+8
+
+Qualities Overview Innovative Insider's Take
+
+Autonomy
+The Quest to Build the Driverless Car ­ And How It Will Reshape Our World
+Lawrence D. Burns and Christopher Shulgan | AUTONOMY: The Quest to Build the Driverless Car--And How It Will Reshape Our World. Copyright © 2018 by Lawrence D. Burns. Published by arrangement with Ecco, an imprint of HarperCollins Publishers
+Former GM executive Lawrence Burns ­ collaborating with business writer Christopher Shulgan ­ tells the exciting story of the development of the driverless car. He reports on the races sponsored by the US military to develop autonomous vehicles, which offered multimillion-dollar prizes. The authors also provide an insider view of how the auto industry reacted to the prospect of this new technology as well as exploring the potential cost and time savings, and safety and convenience of AVs. This analysis will engage anyone fascinated by the new future for mobility that may be just around the corner.
+Take-Aways
+· The internal combustion car has problems with energy efficiency and safety. · The time and energy wasted by cars cost the US economy more than $4 trillion annually. · Autonomous vehicles (AVs) began with encouragement and investment by the US Defense
+Advanced Research Projects Agency (DARPA). · DARPA-sponsored races accelerated progress in AV technology. · DARPA challenges also generated Silicon Valley interest in AV. · The 2008 financial crisis slowed development of the self-driving car. · Google supported AV technology through the Chauffeur project. · The auto industry deployed driverless technology with mixed results. · Autonomous vehicles will disrupt the auto industry, with significant impact on the economy
+overall. · Google spun off its AV technology as an independent company known as Waymo.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-26 12:14:31 CEST
+
+www.getabstract.com
+
+Summary
+The internal combustion car has problems with energy efficiency and safety.
+In the United States, more than 95% of the 252 million light-duty vehicles on the road are powered by gasoline and use more than 180 billion gallons of fuel each year. Gasoline-powered engines are inefficient and use only around 1.5% of the energy generated to move the car. Private owners use their cars on average only 5% of the time, creating significant parking problems in large cities.
+"We've structured our transportation in such a manner that most working adults believe that owning and maintaining their own vehicles is integral to their full participation in contemporary society."
+The combination of weight and speed also makes cars dangerous. There were more than 37,000 automobile-related deaths in the United States in 2016. Globally, the number is a shocking 1.3 million car-related deaths annually. In addition, the emissions of gasoline-powered vehicles contribute a significant amount to the greenhouse gases created by the United States.
+The time and energy wasted by cars cost the US economy more than $4 trillion annually.
+In the United States, the average cost of car ownership and operation is about $1.50 per mile. The Program on Sustainable Mobility at Columbia University estimates that a service-based mobility model using electric-powered autonomous vehicles (AVs) could save over 80% of this cost, or roughly $4 trillion per year. AVs provide an opportunity to disrupt the current business model. Moreover, they offer a model that could be both highly profitable and mitigate the safety and environmental shortcomings of the status quo.
+Autonomous vehicles (AVs) began with encouragement and investment by the US Defense Advanced Research Projects Agency (DARPA).
+In 2003, DARPA decided to stage a race of autonomous vehicles in the Mojave Desert to encourage innovation and development in the AV field. The US military wanted to advance the technology for the purpose of fighting in the Middle East. Improvised explosive devices (IEDs) were causing a growing number of casualties in both urban and rural war theaters. Autonomously piloted vehicles offered the potential to reduce these casualties. At the time, AVs had been developed only for specialized applications such as exploring and mapping old coal mines.
+"We've entered a period that is moving us towards a saner transportation solution ­ one of those rare disruptions that will improve the way life happens for decades and perhaps for centuries to come."
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-26 12:14:31 CEST
+
+www.getabstract.com 2 of 7
+
+Carnegie Mellon University (CMU) entered the race under the leadership of renowned robotics professor Red Whittaker. The team he assembled worked intensely to meet DARPA's winning criteria, which stipulated a driverless vehicle that could cover the 150-mile course in the desert in less than 10 hours. The prize for the winner was $1 million.
+"As computing power improved, robotics was increasingly becoming a software problem, which computer scientists rather than mechanical engineers had to solve."
+The task of replicating and coordinating the sensory perceptions and motor skills of humans driving a car isn't easy. It requires an advanced system of laser-based sensors and cameras to detect the physical world around the vehicle. Powerful on-board computers process all the information and compare it against GPS-based mapping data. The team spent an intensive year working out the engineering and software issues involved in developing a safe and fully autonomous vehicle.
+"Thrun knew who [Larry] Page was, of course. What surprised him was how interested Page was in the project. `Larry's always been a robotics enthusiast,' Thrun says, explaining that had Page not started Google, he might have pursued a PhD in robotics."
+On the day of the race, March 10, 2003, the Red Team vehicle made it only 7.3 miles into the 150mile race course. None of the other entrants finished either. Instead of abandoning the effort, DARPA doubled down and announced that it would host a follow-up race in 2005, open to all. This time the prize for the winner would be $2 million.
+DARPA-sponsored races accelerated progress in AV technology.
+The first DARPA challenge had engaged the interest of people outside the robotics sector. Sebastian Thrun led the Stanford Artificial Intelligence Laboratory and was an expert on Simultaneous Localization and Mapping (SLAM), a critical technology that made AVs possible. Thrun entered DARPA's second challenge with a team from Stanford, along with Whittaker's team and several other universities. The Stanford team won the event. Its vehicle crossed the finish line in 6 hours and 53 minutes, just barely beating the more experienced CMU team. The success of the second race validated DARPA's strategy and confirmed the viability of AVs. The third and final challenge required AVs that could safely operate in an urban environment amid tighter spaces and other vehicles.
+"I was a top executive in a major corporation, managing a budget of billions of dollars at GM, but part of me envied these young men. They weren't the sort of people who crunched numbers in an ivory tower."
+Wider interest in the competition brought sponsorships for teams by various car companies. GM sponsored the CMU team and donated a vehicle. For the Urban Challenge, the principal hurdle was to use sensory inputs to allow the vehicle to develop a 3D simulated map of the world around
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-26 12:14:31 CEST
+
+www.getabstract.com 3 of 7
+
+it. The software code would translate and explain all factors that the vehicle might encounter out in the real world.
+"Throughout the 1990s, GM had developed a strong culture of workplace safety. Our testing protocols were extremely risk-averse. The GM liaison was worried that Tartan Racing's testing was going to seriously injure someone."
+The vehicles quickly surpassed the capabilities required for the race. Engineers used detailed scenario analysis in an iterative process to develop code that could account for almost any situation the vehicle would encounter. Vehicles could now navigate busy parking lots and reverse course to choose another route if a road was blocked. They could perform these maneuvers at faster speeds than ever. On race day, 11 teams made it through the qualifiers and competed. CMU's Tartan Racing Team won the race, beating the Stanford team and claiming the $2 million prize.
+"And here I was, entrusting my life to a machine."
+At this stage, Google's founders began to show interest in the technology. In 2005, Larry Page had expressed interest in the work that Thrun was doing at Stanford on the DARPA challenge. Page believed that AVs were an important new technology. Thrun and Page also saw the potential of the physical mapping data that AVs used as a means to develop mapping software for all vehicles. When Thrun looked to commercialize the new mapping technology by creating a startup, Google ended up buying it and creating Google Street View.
+DARPA challenges also generated Silicon Valley interest in AV.
+Few executives from Detroit's auto industry attended the final DARPA challenge. The progression of the technology through the three races showed its rapid evolution and viability. Yet Detroit's conservative culture still regarded AVs as a fringe technology that wouldn't be viable for decades. The auto companies helped sponsor the teams, but most of the technological progress came from university robotics departments and their engineers and programmers.
+"I'd seen research efforts that seem destined to lead to major economic and environmental benefits go nowhere because of the change-averse mind-set of the automotive industry."
+Within the auto companies themselves, several factors played into their skepticism. At the time of the races, car companies were risk averse. They were run by a generation of managers who had only ever known the personally driven, internal combustion engine-powered vehicle. When times were good, as they were in the mid-2000s, it was easy to make big profits this way. American auto makers were also subject to a high degree of government regulation, which led to a safetyoriented culture that wasn't open to cars driving themselves. Finally, companies like GM had large unionized workforces with sizable health and retirement costs. Auto makers essentially had an
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-26 12:14:31 CEST
+
+www.getabstract.com 4 of 7
+
+intrinsic aversion to exploring a new technology that would fundamentally disrupt every aspect of their industry.
+The 2008 financial crisis slowed development of the self-driving car.
+When the financial crisis struck the United States in 2008, car sales plummeted from an average of between 15 and 17 million vehicles the previous decade to just 10.4 million vehicles in 2009. It was the worst downturn in the history of the auto industry. GM was losing huge amounts of money and faced possible bankruptcy. In this environment, even GM's cautious investments in alternative energy and driverless concept vehicles were pared back to the minimum.
+Google's "single decision to design a vehicle operated almost entirely with software for full driverless operation, without a brake pedal, without a steering wheel, without even an accelerator, attracted critical attention from within the mobility sector."
+GM saved one program to develop a two-person autonomous "mobility pod" vehicle named EN-V (electrically networked vehicle) ­ introduced at the New York Auto Show in 2009 and the Shanghai World Expo in 2010. The concept highlighted a vision for the future of urban mobility and received positive reviews from media sources at a time when there wasn't a great deal of good news for US auto makers. Besides this one achievement, none of the major auto makers put significant resources into the development of AVs. The momentum remained with Silicon Valley.
+Google supported AV technology through the Chauffeur project.
+In 2008, Page asked Thrun to establish a project to help commercial AV technology. Thrun put together a team of about a dozen engineers and programmers from the DARPA challenges to establish the Chauffeur project. He had already worked with Google on Street View. The interactive mapping data he developed for Street View fed into the Chauffeur project. It allowed AVs to use real-time detailed GPS data to enhance safety, speed and accuracy. From there, it was an iterative process of tweaking the hardware and software so the vehicles could locate and drive themselves practically anywhere. Google tasked the team with predetermined goals such as driving AVs in specific types of environments. Google would pay financial incentives to team members as they achieved each goal, culminating in the final goal: 100,000 miles of autonomous driving on public roads. When the Chauffeur project had successfully met its goals, there remained some questions as to how to communicate the results to the public. The testing work required the AVs to use public roads, which might have compromised public safety. Google worked with a technology journalist from The New York Times to demonstrate just how safe the vehicles had become. The reaction of the tech sector was again more positive than that of the auto sector. Many in the auto industry didn't believe a market existed for AVs. The reason was simply that "people liked to drive." Consumers didn't yet understand the financial opportunity ­ or the fact that AVs were destined to be safer than regular cars.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-26 12:14:31 CEST
+
+www.getabstract.com 5 of 7
+
+The auto industry deployed driverless technology with mixed results.
+In May 2016, a Tesla Model S using a driver-assist program based partly on AV technology recorded its first fatality. The driver crashed into a truck in Florida at a high speed and died instantly. Proponents of the driverless technology realized early on that there was a human behavioral glitch in its use. If the system could be turned off or only used under certain conditions, such as freeway driving, then it would still be subject to human error. AV technology couldn't work safely as an add-on to regular vehicles. Such vehicles would need to become a category of their own to realize their full benefits.
+Autonomous vehicles will disrupt the auto industry, with significant impact on the economy overall.
+The average cost per mile to own and operate a standard gas-powered vehicle in the US is $1.50 per hour, factoring both out-of-pocket and time costs. Modeling based on the premise of fleets of autonomous vehicles hailed through smartphone apps (similar to existing ride-sharing services) suggests that vast saving of both time and money are possible. AVs would achieve this while also improving convenience and safety. Using American cities such as Ann Arbor, Michigan, as test environments suggested that only 15% to 20% of the current number of vehicles on the road would achieve similar levels of mobility. Autonomous vehicles would employ far higher rates of capacity utilization than personally owned cars, which are typically used only about 5% of the time.
+"We're heading for interesting times. Enjoy the ride!"
+The total costs per mile of autonomous electric vehicles in transportation services, including the driverless technology itself, depreciation, financing and electricity are estimated at $0.20 per mile. The potential saving thus is $1.3o per mile. Americans spend $4.5 trillion annually on car-based mobility, implying a total saving of $3.9 trillion per year. In addition, driverless technology could liberate up to 72 billion hours of time spent commuting in traffic jams.
+Google spun off its AV technology as an independent company known as Waymo.
+Waymo is working with auto companies to implement and commercialize its technology. Uber and other companies are deploying similar technology to develop AV fleets. These projects are in the early stages of an AV revolution about which many consumers remain unaware.
+"Soon, personal mobility will be dominated by transportation-as-a-service models, akin to self-driving versions of today's Uber or Lyft ride-sharing services."
+But developments will likely fundamentally disrupt entire industries and transform how most people get around in the future.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-26 12:14:31 CEST
+
+www.getabstract.com 6 of 7
+
+About the Authors
+Lawrence D. Burns served as corporate vice president of research, development and planning at General Motors and has served as an adviser to the Google's Waymo project since 2011. Christopher Shulgan is a business writer who specializes in collaborating with industry experts.
+Did you like this summary? Buy book or audiobook http://getab.li/35313
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this review. All rights reserved. No part of this review may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+7 of 7
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-06-26 12:14:31 CEST
+
+

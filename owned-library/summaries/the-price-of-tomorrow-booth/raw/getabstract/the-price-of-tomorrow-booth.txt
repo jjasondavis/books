@@ -1,0 +1,82 @@
+Rating
+7
+
+Qualities Overview Hot Topic Insider's Take
+
+The Price of Tomorrow
+Why Deflation is the Key to an Abundant Future
+Jeff Booth | Stanley Press © 2020
+Tech entrepreneur Jeff Booth has grappled with the dynamics of online platforms and artificial intelligence, an experience that leads him to believe that technology will fundamentally upend long-held economic precepts. Prices will fall and jobs will disappear, he writes in this sometimes-contrarian take on the future economy, but that will bring the benefits of cheaper living and abundance to all. While economists may quibble with some of his arguments, Booth has undoubtedly put his finger on developments that are just beginning to emerge.
+Take-Aways
+· The old pattern of relying on an inflationary economy with steady job creation is starting to break down.
+· Technology is changing where value originates in companies, and creative destruction is undermining the legitimacy of capitalism.
+· As they reduce the costs of goods and services, tech advancements will lead to deflation. · The power of platform companies is rising. · Artificial intelligence is already impressive in specific applications, and more general AI is not
+far off. · Technology in the energy sector, especially in solar, will revolutionize markets. · Creating more and more debt just to propel growth is not sustainable. · Governments should stop borrowing and printing money, and instead embrace deflation and
+abundance.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-09-04 11:43:59 CEST
+
+www.getabstract.com
+
+Summary
+The old pattern of relying on an inflationary economy with steady job creation is starting to break down.
+Societies tend to derive economic prescriptions from the concept of scarce resources. They assume that ever-widening consumer demand automatically creates new jobs and that scarcity produces an inflationary environment. But technology is disrupting these familiar dynamics. Many goods and services will become less scarce, or even free, and technology will replace jobs faster than new ones can arise. These changes will lead to a lower cost environment with less work for humans to do.
+"Technology is deflationary. That is not conjecture. It is the nature of technology. And because technology underpins more and more of the world around us, it means that we are entering into an age of deflation unlike any the world has ever seen."
+If people continue to cling to outdated assumptions, this technologically driven economic turmoil risks worsening already growing income and wealth inequality, as labor markets produce fewer and fewer vacancies. Deteriorating economic conditions may lead to populations further swayed by politicians with populist and polarizing narratives. Competition for a shrinking pool of wellpaying jobs, both domestically and internationally, is a recipe for more conflict, discord and hatred.
+Technology is changing where value originates in companies, and creative destruction is undermining the legitimacy of capitalism.
+In the old economy, those who controlled distribution centers for finished goods ­ like chain stores, newspapers, TV networks and other large companies with branch outlets ­ had monopoly power. But internet technology has upended these channels by changing the form of assets from physical units to information bytes. Tech companies are no longer a niche sector, and most old-economy corporations are going to be ­ indeed, will have to become ­ tech-oriented to be successful. Throughout history, technical developments and labor-saving machines have forced progress in the form of new industries that incrementally replaced old ones. But tech advancements now seem to be following an accelerating pattern of destroying jobs faster than an economy can create new sectors of consumer demand to replace them.
+"Technology...is increasingly the backbone of every industry and every company. In the near future, if you're not a technology-based company, you will likely not be a company at all."
+If technology solutions with a low marginal expense continue to supplant more and more jobs, then decreased costs and prices, along with fewer work opportunities for people, will ensue. Efficiency savings and job reductions are two sides of the same coin. Capitalism's relentless
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-09-04 11:43:59 CEST
+
+www.getabstract.com 2 of 6
+
+drive for efficiency spurs this dynamic, which constitutes the creative destruction described by economist Josepf Schumpeter. He warned that the process could, in turn, undermine the capitalist system by eroding the possibility of jobs for all ­ the basis of capitalism's legitimacy in the eyes of the public. The basic support of and tolerance for capitalism will not survive if too many people are locked out of its benefits.
+As they reduce the costs of goods and services, tech advancements will lead to deflation.
+One side effect of technology revolutionizing different sectors will be deflationary conditions in the economy. Work will disappear as goods and services become cheaper; computers do not need wages. One iconic example of technology making things less expensive is the way mobile phones have replaced so many other gadgets and services that people formerly paid for, thereby cutting consumer expenditures. Developments in 3D printing will reduce the need for factories, storage and transportation, as more manufacturing will take place close to the consumer.
+The power of platform companies is rising.
+A few decades ago, many of the top global firms dated back to the late 1800s. Today, in contrast, the majority of the world's leading companies are those that gain their value and power from a combination of online platform dominance and their capture and manipulation of information. Corporations such as Amazon and Google's parent company Alphabet vaulted onto the topten list of major companies between 2009 and 2019. They also are positioned to dominate developing fields, like artificial intelligence, merely by having access to so much data about consumers and their online norms of behavior.
+"The consumers win in the form of better pricing and service ­ which is deflationary ­ and therefore, the monopolies are hard to stop. As I learned the hard way, you are either the platform or the arbitrage on the platform."
+Network effects explain the dynamics of platform dominance: Once a business becomes the most popular in its field, each additional user makes the service more valuable and essential to all other users. For example, Amazon has 500 million products competing for customers, and it aggregates all the suppliers in one location. The suppliers have teams of people optimizing their sales, paying fees to Amazon to appear as an ad at the top of a search. This aggregation creates a downward pressure on prices, with the only certainty being that whichever vendor a customer clicks on, Amazon will get its cut. While the arbitrage of competition constrains the suppliers, the platforms amass monopoly power and continue to grow.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-09-04 11:43:59 CEST
+
+www.getabstract.com 3 of 6
+
+Artificial intelligence is already impressive in specific applications, and more general AI is not far off.
+In 1967, one megabyte of hard drive memory cost $1 million; today, it costs just two cents. With this trend showing no sign of stopping, it's hard to even envisage what computer power will look like in coming decades. The showpiece examples of AI capability have so far been narrow application programs designed to one-up humans in games of chess and the like, or to perform specific tasks, like reading and interpreting medical data in scans to detect cancer. These kinds of programs alone could have a large impact on jobs in certain economic sectors. And the everyday functioning of Amazon and Google searches continuously extends the scope of these specialized AI routines. Humans design and set up such AI functions, but once these are running, the need for people in jobs is diminished.
+"As artificial intelligence moves across industries, the gains to humanity are incredible. But as each new skill is acquired by artificial intelligence, jobs are at risk since AI will do them better at a drastically different price."
+Just as the printing press was a step-change improvement in humans' ability to store and codify knowledge, so, too, does AI represent a giant leap forward. Going to the next level of AI ­ replicating general human intelligence ­ is still some way off, but trends suggest it should eventually happen, to some degree. AI's ability to advance to human-type understanding is based on its capacity to collect information, test hypotheses against this data and then keep analyzing until a result matches. The patterns of programs that beat champions in the game of Go illustrate how computers can scrutinize thousands of scenarios and then pick the best one, learn from their mistakes, and never make suboptimum moves due to fatigue or memory loss.
+"These things are true: 1) error correction is at the heart of all of our `intelligence'; 2) information is growing at an exponential pace; 3) that knowledge is being transferred to computers that can gain knowledge and correct errors faster than human brains can; and 4) every one of our jobs is a function of our intelligence."
+Alan Turing, the British genius who used early pathbreaking computers to crack German codes during World War II, theorized that "the brain at birth is an unorganized machine." The brain becomes organized only through learning. This concept highlights how AI could eventually achieve true general intelligence in the future. The exponential rise in the capacity to collect information and apply error-correction analysis to it brings the potential for true general AI closer. The emphasis on data accumulation also highlights why the tech giants, with their massive datasets and collection capacity, lead the way in AI.
+
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-09-04 11:43:59 CEST
+
+www.getabstract.com 4 of 6
+
+Technology in the energy sector, especially in solar, will revolutionize markets.
+Technology is also a disruptive force in areas like energy, where solar power especially has the potential to out-compete fossil fuels and threaten industry jobs and infrastructure. Just as computer power has gotten cheaper, the cost of solar power per watt since 1954 has dropped from an inflation-adjusted $2,108 to $0.82, a trend that suggests a decrease in cost of 75% every 10 years. Thus, the days of coal are numbered, and policies to bring jobs back to the fossil fuel industries are misguided. Technology could make energy extremely cheap, cutting that component's cost in everything consumers and businesses pay for and putting deflationary pressure on prices.
+"If governments and central banks think they can outrun deflation today...what happens when we add to those numerous technologies the deflationary effects that abundant solar energy will bring?"
+Imaginative possibilities, like desalination plants in the coastal areas of developing countries, could become viable, and climate change targets could be attainable with less pain. More households could disconnect from energy company grids and become self-sufficient producers.
+Creating more and more debt just to propel growth is not sustainable.
+The American government has dealt with the unsettling and deflationary impact of technology by trying to keep the economy stimulated through more borrowing. But the amount of debt added to the economy, compared to the growth it generates, is not a good trade-off, nor is it sustainable. When the deflationary pressures of technology finally win out, these borrowings will become unmanageable burdens, as debt combined with deflation is toxic. As in business, the only worthwhile debts are those that create improvements in future productive capacity and that thus can pay for themselves. China, which holds $1.1 trillion of US bonds as part of its reserves, is partly enabling high US government borrowing. Taken together with China's reliance on exporting to the United States, the situation begins to look like "vendor financing," such as that from a car dealer that lends a buyer the money to purchase an automobile. Increasing government and consumer debt to juice the economy and achieve growth looks more like a Ponzi scheme than a healthy form of capitalism.
+"Our economic systems were not built for a world driven by technology where prices keep falling. They were built for...an era that counted on growth and inflation, an era where we made money from scarcity and inefficiency. That era is over."
+Tackling a shortfall between government receipts and government expenditures can only happen in one of four ways: austerity, a debt default or restructuring, higher taxes, or money printing. History shows that a government resorts to printing money when its situation is desperate and all other options are either not viable or politically unattractive.
+www.getabstract.com 5 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-09-04 11:43:59 CEST
+
+Governments should stop borrowing and printing money, and instead embrace deflation and abundance.
+A component of the US government's response to the 2008 financial crisis was quantitative easing (QE), which effectively created more dollars that went into assets like stocks and property. The Federal Reserve increased its asset holdings from $900 billion in 2008 to some $4 trillion in 2020, essentially by printing money. This experiment in monetary policy dictated that the economic winners were those who owned assets. The policy rewarded them with a windfall, in a version of crony capitalism. QE devalued the US dollar, which wasn't apparent because other countries did the same thing.
+"Monetary easing and artificially low interest rates have been a grand experiment played out on the world stage...Our assets, including real estate and stocks, were the beneficiaries, having run up in value far beyond what they would have been without the printing."
+The QE program rescued the banks and bankers that had caused the 2008 disaster. By stimulating the economy and saving the banks, the government acted much like a fire department that puts out the small fires in a woodland, only to risk a greater conflagration as the deadwood, brush and undergrowth builds up on the forest floor. Piling on more debt from following the outdated quest for growth by any means is just postponing the inevitable. Circumstances call for new thinking, not for defending old concepts.
+"Put the lagging GDP growth with illusionary asset price inflation, plus an impossible-tomaintain rise of debt, against a backdrop of technology growing at an exponential rate, and the phase transition starts to come into focus."
+The abundance that new technology will bring and the jobs it obliterates are an unavoidable part of the future. A new capitalism must allow for the fact that there will be less work for humans but that, at the same time, goods will be cheaper, making a higher standard of living possible. The United States should accept this natural course of deflation and abundance rather than raising debt levels or printing money to cling to a defunct economic model of inflation and growth.
+About the Author
+Jeff Booth is a co-founder of BuildDirect and a technology adviser. In 2016, Goldman Sachs named him among its 100 most intriguing entrepreneurs.
+Did you like this summary? Buy book or audiobook http://getab.li/40011
+This document is restricted to the personal use of Jason Davis (jason.s.davis@accenture.com) getAbstract maintains complete editorial responsibility for all parts of this review. All rights reserved. No part of this review may be reproduced or transmitted in any form or by any means ­ electronic, photocopying or otherwise ­ without prior written permission of getAbstract AG (Switzerland).
+6 of 6
+BatchLoginContext[cu=5482345,asp=3498,subs=0,free=0,lo=en,co=US] 2020-09-04 11:43:59 CEST
+
+
