@@ -186,6 +186,13 @@ work documents/presentations, and KJV duplicates
 *Moby Dick*, Bernays *Propaganda*, Oliver *History of Initiation*, Newton *The Builders*); the rest
 are owned-copyright (devotional, product-management, motivation/self-help, and comparative/esoteric).
 
+**Later add (2026-07-23):** Earl Nightingale, *Lead the Field* (Nightingale-Conant; complete
+transcript of the 12-message audio program + exercises), extracted from the owner's text-layer PDF
+to `owned-library/lead-the-field/reading/lead-the-field.md`. Owned-copyright, tradition
+`new-thought`. A strong twentieth-century witness for the *modern-edge* drift traced in the
+research briefs (attitude/goals/"we become what we think about," and the "Let's Talk About Money"
+message) — a direct descendant of the New Thought line (Allen → Nightingale → the modern shelf).
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.

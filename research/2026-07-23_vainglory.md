@@ -76,6 +76,39 @@ principal *logismoi*, and structurally unique — the hinge between the "fleshly
   away the thought of vainglory with humility"* directly (line 323), not merely with its opposite
   vice.
 
+- **— Update 2026-07-23 — Gregory the Great, *Moralia in Job*, Book XXXI** (c. 590–595;
+  `patristics/gregory-the-great/reading/moralia-book-31.md:281,283,285,287`): the hinge between
+  Cassian/Evagrius's eight thoughts and Aquinas's seven capital vices, and the point where the
+  vainglory/pride relationship gets **inverted** from Cassian's version. Cassian made vainglory the
+  *parent* of pride ("superfluity of vainglory produces an incentive to pride," Conference 5:69,
+  above). Gregory instead enthrones **pride as the root**, with vainglory as pride's first daughter:
+  *"pride is the root of all evil... But seven principal vices, as its first progeny, spring doubtless
+  from this poisonous root, namely, vain glory, envy, anger, melancholy, avarice, gluttony, lust"*
+  (line 281). He is explicit that the seven form a generative chain, not equal siblings: *"the first
+  offspring of pride is vain glory, and this, when it hath corrupted the oppressed mind, presently
+  begets envy"* (line 285) — envy begets anger, anger begets melancholy, and so on down to gluttony
+  and lust. Gregory also gives vainglory its own daughters, in wording Aquinas will later reuse almost
+  verbatim: *"from vain glory there arise disobedience, boasting, hypocrisy, contentions,
+  obstinacies, discords, and the presumptions of novelties"* (line 283) — compare Aquinas's "daughters
+  of vainglory" above (disobedience, boastfulness, hypocrisy, contention, obstinacy, discord, love of
+  novelties, Summa IIa-IIae Q.132 A.5): Aquinas's list is a direct descendant of Gregory's, not an
+  independent formulation. And Gregory personifies vainglory's own rationalizing inner voice, the same
+  counterfeit-virtue move Evagrius and Cassian diagnose above: *"vain glory is wont to exhort the
+  conquered heart, as if with reason, when it says, Thou oughtest to aim at greater things, that, as
+  thou hast been able to surpass many in power, thou mayest be able to benefit many also"* (line 287)
+  — glory disguised as expanded service.
+
+  **The vainglory/pride hinge, reconciled.** Cassian and Gregory describe the same two-vice pair from
+  opposite ends: Cassian, writing for beginners climbing the eight thoughts rung by rung, watches
+  vainglory feed *upward* into pride as the worst thought reached from below (Conference 5:69).
+  Gregory, writing systematic moral theology two centuries later, starts from pride already enthroned
+  as "queen of sins" ("pride, the queen of sins," line 281 immediately above) and asks what she
+  generates once installed — vainglory is named first among her seven "generals." This is exactly the
+  *reordering* this brief's opening paragraph anticipated: Gregory folds vainglory toward pride
+  structurally, subordinating it as pride's first daughter rather than treating it as pride's
+  parent-and-peer — the seed of the later Western sevenfold "deadly sins" tradition in which vainglory
+  is eventually absorbed into pride/vanity and drops out as its own independent heading.
+
 - **Aquinas, *Summa Theologica* IIa-IIae Q.132, "Of Vainglory"** (c. 1270;
   `patristics/thomas-aquinas/reading/summa-theologica-complete.md:154620`): the corpus's most
   systematic definition (158 total hits on `vainglor*`, the densest concentration in the library).
@@ -211,6 +244,53 @@ currency to be won by "putting evidence" of oneself before others. Vainglory's o
 against God, since it steals for men the glory owed to Him) survives only as "ego," "reputation
 management," or in Veblen's coinage, "conspicuous" display — descriptive, not confessional.
 
+**— Update 2026-07-23 — the drift completes: "executive presence" and the personal-brand economy.**
+Marden, Wattles, and Veblen (above) are the 1890s–1910s hinge; the corpus's business-career
+*summaries* show the identical drift continuing, unbroken, into 21st-century management literature.
+These are third-party digests of the source books (each file's own header states: *"third-party book
+summary... NOT the book's own words — use to locate themes/positions, never quote as the author"*),
+so what follows is cited and paraphrased as the *summary's* language, not the underlying authors'.
+
+- **Harrison Monarth, *Executive Presence*** — summarized in
+  `owned-library/summaries/execsummaries-executivepresence/reading/execsummaries-executivepresence.md`
+  (SUMMARY, per the file's own header, line 3): the summary states the book's whole thesis is that
+  career success "can be summed up in two words: executive presence" (line 14), attained by people who
+  "use these skills to establish how they are perceived by others and to manage their reputation
+  throughout the organization... through careful image management" (line 15) — kenodoxia's core
+  mechanism (Cassian: doing what "would render us remarkable among the others, and for which credit
+  would be gained among men," Institutes XI:117, above) restated as a trainable executive competency
+  rather than a temptation to be refused. The summary's own table of contents names a section "Why
+  Self-Branding is No Longer a Choice" (line 33), and reports that publishing something worthwhile
+  means "your reputation and executive presence will grow" (line 229) — reputation as a cultivable
+  asset, Marden's 1894 "your reputation is your capital" (quoted above) in management-consulting
+  dress. The summary even reproduces, approvingly, a line it attributes to *Wired* magazine: *"Google
+  is not a search engine. It's a reputation management system. Online your rep is quantifiable,
+  findable and totally unavoidable"* (lines 234–235) — Christ's "praise of men" (John 5:44) now
+  literally quantified as a search-result count, to be optimized rather than renounced.
+- **John C. Maxwell, *Winning With People*** — summarized in
+  `owned-library/summaries/execsummaries-winningwithpeople/reading/execsummaries-winningwithpeople.md`
+  (SUMMARY, per the file's own header, line 3): mostly a relational-skills digest, but its "Business
+  Reputation" principle states the same equation in flatly economic terms, with the summary quoting
+  consultant Howard Hodgson: *"Whatever business you are in, you are in a business of relationships.
+  That's why your reputation is your greatest asset"* (line 391) — reputation again recast as capital
+  to accumulate, not glory to refuse or refer to God. The same summary preserves one fragment of the
+  old ascetic instinct, fully de-theologized: its "Big Picture Principle" advises readers to "check
+  your ego at the door" because "if your focus is always on yourself, you'll never be able to build
+  positive relationships" (line 106) — an echo of Cassian's warning against seeking to be "remarkable
+  among the others" (Institutes XI:117), retained only because self-focus is bad networking, not
+  because it steals glory owed to God.
+
+The pattern: *kenodoxia* — literally "empty glory," craving the praise of men — never appears by
+name in either summary; the word has fully evacuated the career vocabulary. The structure survives
+de-moralized: "executive presence," "personal brand," and "reputation is your greatest asset" are
+the same craving Cassian diagnosed as feeding on virtue itself (Institutes XI:41, above), now offered
+without any of the tradition's warnings that it counterfeits the very virtues it borrows (Evagrius,
+Praktikos:197, above) or that it must be referred to a "due end, such as God's honor" (Aquinas, Summa
+IIa-IIae Q.132, above). Reputation has gone from a thing to be feared and mortified to a thing to be
+professionally engineered — Marden's and Veblen's 1890s vocabulary continues, per these later
+career-summary witnesses, straight through to today's "personal brand" and "executive presence"
+literature without a break.
+
 ---
 
 ## Why this matters for ChainBreaker
@@ -232,6 +312,16 @@ management," or in Veblen's coinage, "conspicuous" display — descriptive, not 
    to God.
 4. **Every claim is checkable.** Each citation points to a local file and line; the OCR-sourced
    Sibbes and Wattles passages are flagged; nothing here rests on memory.
+5. **— Update 2026-07-23 —** Gregory the Great's *Moralia* (Book XXXI) supplies the missing
+   structural link between Cassian's eight thoughts and Aquinas's seven capital vices: Gregory is
+   where pride is first crowned "root of all evil" with vainglory installed as its own first
+   daughter, and his "daughters of vainglory" list (disobedience, boasting, hypocrisy, contention,
+   obstinacy, discord, novelties) is the direct textual ancestor of Aquinas's near-identical list —
+   the chapter can now *show*, not just assert, the medieval hinge between the vainglory and pride
+   chapters. Separately, the corpus's business-summary literature (Monarth's *Executive Presence*,
+   Maxwell's *Winning With People*) extends the modern-drift argument all the way to the present
+   idiom: "personal brand" and "executive presence" are kenodoxia's current names, still fully
+   evacuated of any reference to God.
 
 ## Gaps flagged for this theme
 - **Chrysostom's *On Vainglory and the Right Way to Bring Up Children*** — the single most directly
