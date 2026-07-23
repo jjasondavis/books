@@ -2,6 +2,13 @@
 
 Captured 2026-07-21; expanded 2026-07-22 (Phase A acquisition, Priorities 1-5).
 
+> **Externalized scans (2026-07-23):** the large image-scan PDFs listed below (Philokalia
+> 1782, Climacus PG 88, Budge vols 1-2, Brooks scans) were **moved out of this git repo** to
+> keep it pure text. They now live at `D:\repos\scans\<same relative path>` — not in git,
+> backed up by the Axcient BDR (local + cloud), integrity verifiable via
+> `D:\repos\scans\CHECKSUMS.sha256`. The `raw/.../*.pdf` paths in the rows below describe the
+> mirrored location under `D:\repos\scans`. All quotable material is the clean text captures.
+
 | Collection | Source URL | Local material | Edition and reuse note |
 |---|---|---|---|
 | Cassian, *Institutes* I-V, VII-XII | https://www.newadvent.org/fathers/3507.htm | `patristics/john-cassian/raw/new-advent/` | C. S. Gibson, NPNF 2.11 (1894), public-domain translation. Saved page presentation belongs to its host. Book VI was omitted by the NPNF editors (captured separately via Dysinger, below). Books I-IV added 2026-07-22. |
