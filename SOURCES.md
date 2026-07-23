@@ -37,8 +37,28 @@ Captured 2026-07-21; expanded 2026-07-22 (Phase A acquisition, Priorities 1-5).
 | John Climacus, *Ladder of Divine Ascent* / *Scala Paradisi* — Greek base text | https://www.documentacatholicaomnia.eu/04z/z_0525-0606__Joannes_Climacus__Scala_Paradisi_(MPG_088_0631_1163)__GM.pdf.html | `patristics/john-climacus/raw/documenta-catholica-omnia/scala-paradisi-greek-migne-pg88-0631-1163.pdf` | Migne, Patrologia Graeca 88, cols 631-1163 (Rader's Greek, 1860), public domain. Captured as a **base text** because no public-domain English translation exists (Moore 1959 and Luibheid/Russell 1982 are copyrighted — English access is research-only). Raw-only (image PDF, ~70 MB). |
 | The *Philokalia of the Neptic Fathers* (Φιλοκαλία τῶν ἱερῶν νηπτικῶν) — Greek base text, 1782 Venice first edition | https://commons.wikimedia.org/wiki/File:%CE%A6%CE%99%CE%9B%CE%9F%CE%9A%CE%91%CE%9B%CE%99%CE%91_%CE%A4%CE%A9%CE%9D_%CE%99%CE%95%CE%A1%CE%A9%CE%9D_%CE%9D%CE%97%CE%A0%CE%A4%CE%99%CE%9A%CE%A9%CE%9D.pdf | `patristics/philokalia/raw/wikimedia/philokalia-ton-hieron-neptikon-1782-venice-wikimedia.pdf` | The original Greek anthology compiled by Nikodimos the Hagiorite and Makarios of Corinth, Venice 1782; public domain. Full-resolution scan hosted on Wikimedia Commons. Captured as a **Greek base text**; the modern English (Palmer/Sherrard/Ware, Faber) is copyrighted and is NOT captured. Raw-only (image PDF, ~193 MB; stored via Git LFS). |
 
+## Added 2026-07-23 (pre-Nicene / Nicene public-domain expansion)
+
+Roots and parallels for the eight-thoughts / spiritual-combat tradition. All public
+domain (ANF = Ante-Nicene Fathers, Roberts-Donaldson 1885; NPNF = Nicene and
+Post-Nicene Fathers). New Advent page presentation belongs to its host.
+
+| Collection | Source | Local material | Edition and reuse note |
+|---|---|---|---|
+| Apostolic Fathers — *Shepherd of Hermas* (Visions/Commands/Similitudes), *Didache*, *Epistle of Barnabas* | New Advent /fathers/02011-02013, 0714, 0124 | `patristics/apostolic-fathers/raw/new-advent/` + reading | ANF Vol. 1-2, public domain. Hermas = proto-discernment-of-thoughts. |
+| Clement of Alexandria — *The Instructor (Paedagogus)*, Books I-III | New Advent /fathers/02091-02093 | `patristics/clement-of-alexandria/raw/new-advent/` + reading | Trans. William Wilson, ANF Vol. 2 (1885), public domain. On the bodily passions. |
+| Tertullian — *Of Patience*, *On Repentance*, *On Prayer*, *On Fasting*, *On Modesty* | New Advent /fathers/0325, 0320, 0322, 0408, 0407 | `patristics/tertullian/raw/new-advent/` + reading | ANF Vol. 3-4, public domain. |
+| Cyprian — *On the Lord's Prayer* (Tr. 4), *On Works and Alms* (Tr. 8), *On Jealousy and Envy* (Tr. 10) | New Advent /fathers/050704, 050708, 050710 | `patristics/cyprian/raw/new-advent/` + reading | ANF Vol. 5, public domain. |
+| Lactantius — *On the Anger of God* | New Advent /fathers/0703 | `patristics/lactantius/raw/new-advent/` + reading | ANF Vol. 7, public domain. |
+| Methodius — *The Banquet of the Ten Virgins* (Introduction + 11 Discourses) | New Advent /fathers/062300-062311 | `patristics/methodius/raw/new-advent/` + reading | ANF Vol. 6, public domain. On chastity. |
+| Gregory of Nyssa — *On Virginity* | New Advent /fathers/2907 | `patristics/gregory-of-nyssa/raw/new-advent/` + reading | NPNF 2.5, public domain. |
+| Ambrose — *Concerning Repentance*, Books I-II | New Advent /fathers/34061-34062 | `patristics/ambrose/raw/new-advent/` + reading | NPNF 2.10, public domain. |
+| Origen — *On Prayer* | https://ccel.org/ccel/origen/prayer/prayer | `patristics/origen/raw/ccel/on-prayer-curtis-ccel.txt` + reading | Trans. William A. Curtis; CCEL plain-text; public domain. (On Prayer is not in ANF.) |
+| Gregory the Great — *Moralia in Job* (Morals on the Book of Job), Books I-XXXV | https://www.lectionarycentral.com/gregorymoraliaindex.html | `patristics/gregory-the-great/raw/lectionarycentral/` | *Library of the Fathers* translation (Bliss/Marriott, Oxford, 1844-50), public domain. The bridge text from Cassian's eight thoughts to the Western seven deadly sins (Book XXXI). Raw-only this pass (Word-exported HTML; searchable; reading copies deferred). |
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
 - **The Philokalia — English** (Priority 5) — the Palmer/Sherrard/Ware (Faber) English translation is copyrighted and is NOT captured; research-only. The public-domain **Greek** 1782 first edition WAS captured as a base text (see the Philokalia row above).
 - **John Climacus, English translation** — no public-domain English exists; the Greek PG 88 base text was captured instead (above). English wording must come from a future working translation or a rights-checked source.
+- **Basil of Caesarea — homilies *Against Anger*, *On Envy*, *On Humility*, *On Fasting*** (2026-07-23) — NOT captured. These per-passion homilies survive in English only in copyrighted modern translations (Fathers of the Church, *Ascetical Works* / *On Social Justice*); NPNF 2.8 Basil contains the Hexaemeron, *On the Spirit*, and Letters, but not these homilies. No public-domain English witness found. Recorded gap.

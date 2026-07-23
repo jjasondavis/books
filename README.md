@@ -27,6 +27,13 @@ per-item URLs, editions, and reuse notes.
   complete *Homilies on the Statues* (21 homilies), NPNF First Series Vol. 9.
 - **John Climacus** — the Greek *Scala Paradisi* (Migne PG 88) as a base text; no
   public-domain English translation exists.
+- **Pre-Nicene & Nicene roots** (added 2026-07-23) — the Apostolic Fathers (*Shepherd of
+  Hermas*, *Didache*, *Barnabas*); Clement of Alexandria's *Instructor*; Tertullian
+  (*Patience, Repentance, Prayer, Fasting, Modesty*); Cyprian (*Lord's Prayer, Works and
+  Alms, Jealousy and Envy*); Lactantius (*On the Anger of God*); Methodius (*Banquet*);
+  Gregory of Nyssa (*On Virginity*); Ambrose (*Concerning Repentance*); Origen (*On
+  Prayer*); and Gregory the Great's *Moralia in Job* — the bridge from the desert eight
+  thoughts to the Western seven deadly sins. All public domain (ANF/NPNF/Library of the Fathers).
 - **Apophthegmata** — Budge, *The Paradise of the Holy Fathers* (1907, Chatto & Windus),
   vols. 1-2, searchable scans.
 - **Augustine** — *Confessions* (Pusey translation, Project Gutenberg).
