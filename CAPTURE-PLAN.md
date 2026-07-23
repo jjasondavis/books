@@ -156,6 +156,46 @@ path: `<division>/<author-slug>/raw/<source>/…` and matching `reading/`.
   John of Damascus, Eusebius) → CCEL/New Advent
 - Anselm; Bernard; Bonaventure; *The Cloud of Unknowing* ⚠; Julian of Norwich ⚠; Dante → Gutenberg/CCEL
 
+### Phase 8 — Classical antiquity (Greeks & Romans)
+- Plato — complete dialogues (Jowett tr.) → Gutenberg
+- Aristotle — *Nicomachean Ethics*; *Politics*; *Rhetoric* → Gutenberg
+- Plutarch — *Lives* (Dryden/Clough); *Moralia* → Gutenberg
+- Xenophon — *Memorabilia*; *Cyropaedia*; *Anabasis* → Gutenberg
+- Cicero — *On Duties (De Officiis)*; *On Friendship*; *On Old Age*; *Tusculan Disputations* → Gutenberg
+- Diogenes Laertius — *Lives of the Eminent Philosophers* → Gutenberg
+- (Stoics — Marcus Aurelius, Epictetus, Seneca — already in Phase 5)
+- Herodotus; Thucydides; Homer — history/epic (optional, literary) → Gutenberg
+- Aesop — *Fables* → Gutenberg
+
+### Phase 9 — Jewish history & the Second-Temple world  ★ (run right after Phase 1)
+The "what did the Jews know" angle: primary Jewish history + the cultural/daily-life,
+customary, and idiomatic background a 2026 reader lacks. All public domain (text only).
+- ★ **Josephus** — *Complete Works* (William Whiston tr., 1737): *Antiquities of the Jews*,
+  *The Wars of the Jews*, *Against Apion*, *The Life of Flavius Josephus* → Gutenberg
+- **Philo of Alexandria** — *The Works of Philo* (C. D. Yonge tr., 1854) → Gutenberg/earlychristianwritings
+- ★ **Alfred Edersheim** — *The Life and Times of Jesus the Messiah*; *Sketches of Jewish
+  Social Life*; *The Temple: Its Ministry and Services*; *Bible History: Old Testament* → CCEL/Gutenberg
+- **Emil Schürer** — *A History of the Jewish People in the Time of Jesus Christ* (PD English tr.) → archive text
+- **R. H. Charles** — *The Apocrypha and Pseudepigrapha of the Old Testament* (1913, 2 vols) → archive text/sacred-texts
+- **The Apocrypha / Deuterocanon** (KJV 1611; RV 1895) → Gutenberg
+- **Babylonian Talmud** — Rodkinson tr. (1903, PD; ⚠ Soncino is copyrighted) → sacred-texts
+- **The Targums** — J. W. Etheridge tr. (1862) → sacred-texts
+- **The Mishnah** — ⚠ Danby 1933 is copyrighted; use only a confirmed PD older partial (e.g., Barclay 1878) or skip
+- **George Foot Moore** — *Judaism in the First Centuries of the Christian Era* (1927, PD) → archive text
+- **The Jewish Encyclopedia (1901–1906)** — massive PD reference on Jewish law, custom, daily
+  life, idiom; ideal for the "cultural references someone in 2026 won't know" goal → jewishencyclopedia.com / archive text
+
+## Run order & mandate
+
+- **Mandate:** capture aggressively — local storage is abundant and cheap relative to the value
+  of the material and of time; token costs may rise, so build the corpus now. **Text only**
+  (no image scans). Keep going phase to phase without stopping for confirmation between phases.
+- **Run order:** Phase 1 (Puritan/Reformed) → **Phase 9 (Jewish/Second-Temple, elevated)** →
+  Phase 2 → 3 → 4 → 5 → 6 → 8 → 7. Adjust as sources dictate; log deviations.
+- **Execution:** Sonnet worker agents per author-cluster write only their own author
+  directories and return a manifest; the orchestrator (Opus) consolidates `SOURCES.md`,
+  `CHECKSUMS.sha256`, and `CATALOG.tsv`, spot-checks, and commits per phase.
+
 ---
 
 ## Research agenda this corpus enables (the *why*)
