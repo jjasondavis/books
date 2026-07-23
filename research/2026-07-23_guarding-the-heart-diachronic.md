@@ -70,6 +70,20 @@ Then, c. 1900, the *language* survives but the *logic* flips.
   moulder of character, and the maker and shaper of condition, environment, and destiny."*
 - Wattles, Haanel, Trine, Shinn extend it: right thinking now shapes **outward circumstance,
   health, and wealth**.
+- **Earl Nightingale, *Lead the Field*** (1972; owned-copyright, `owned-library/lead-the-field/reading/lead-the-field.md`)
+  — *added 2026-07-23* — is the mid-century mass-market bridge from Allen to the modern self-help
+  shelf (the audio program sold to "hundreds of thousands"). Nightingale distills the whole New
+  Thought line into a single slogan he repeats like a refrain — *"We become what we think about"*
+  (`:231`, `:286`, `:288`) — and, tellingly, **keeps the desert/Puritan discipline of thought-control
+  while inverting its object**: *"you can control your thoughts. You can decide upon what you wish to
+  concentrate, upon what you think about from this point forward. And you will become that. You will
+  realize that goal…"* (`:289`). The watch is still daily and deliberate — he prescribes a **"goal
+  card"** to be read *"every morning and night and as many times during the day as you conveniently
+  can… See yourself as having already attained your goal"* (`:304`) — a de-theologized examen /
+  *lectio*: the exact ascetic *form* (repeated meditative attention to a single object) repurposed to
+  install a wealth-or-status goal into "your remarkable subconscious," not to guard the heart for God.
+  This is the strongest single witness in the vault that the drift is not that the discipline was
+  abandoned but that it was **kept and re-aimed**.
 
 **The inversion, stated plainly:** in Prov 4:23 → Cassian → Flavel, you guard the heart *defensively*
 because sin and death **issue out of it** — the watch protects against corruption. In Allen → New
@@ -83,7 +97,8 @@ opposite payload. The desert watched the heart to *keep it clean for God*; New T
 ## Why this matters for ChainBreaker
 
 1. **A ready-made framing device.** The book can show a modern reader that the wildly popular "you
-   become what you think" (Allen, and every descendant self-help book) is a **hijacked fragment** of
+   become what you think" (Allen's *As a Man Thinketh*, Earl Nightingale's endlessly-repeated *"we
+   become what we think about,"* and every descendant self-help book) is a **hijacked fragment** of
    a far older, deeper discipline — one that was about guarding the heart *for God against sin*, not
    engineering outcomes. That reframing is provocative and true, and it's fully documented here.
 2. **The corrective is in-hand.** The desert/Puritan witnesses (Cassian's *purity of heart*, Flavel's
