@@ -76,6 +76,45 @@ All public-domain English text (no scans). Division: `jewish/`.
 | Pseudepigrapha — *The Book of Enoch*; Charles's *Apocrypha & Pseudepigrapha* vol. 2 | sacred-texts.com; archive.org (Charles, Oxford 1913) | `jewish/pseudepigrapha/` | public domain; the APOT vol. 2 file is archive.org **OCR — verify before quoting** |
 | The Targums of Onkelos & Jonathan (Pentateuch) | archive.org (Etheridge 1862) | `jewish/targums/` | public domain; archive.org **OCR — verify before quoting** |
 
+## Added 2026-07-23 (Phases 4-10 — devotional, medieval, self-improvement, business, classical, world religions)
+
+All public-domain English text (no scans). Archive.org OCR items are flagged `OCR — verify`.
+Divisions: `tradition/`, `patristics/`, `self-improvement/`, `business/`, `classical/`, `world-religions/`.
+
+**Catholic & Orthodox devotional** (`tradition/`): Francis de Sales (*Introduction to the Devout
+Life*, *Treatise on the Love of God* — CCEL); Teresa of Ávila (*Interior Castle* [Stanbrook], *Life*
+[Lewis, Gutenberg], *Way of Perfection* [archive OCR]); John of the Cross (*Dark Night*, *Ascent of
+Mount Carmel* [Lewis, archive OCR]); Ignatius (*Spiritual Exercises* [Mullan 1914, CCEL]); Brother
+Lawrence (*Practice of the Presence*); Scupoli (*Spiritual Combat* [Wikisource]); de Caussade
+(*Abandonment*); Chesterton (*Orthodoxy*, *The Everlasting Man*, *Heretics*).
+
+**Medieval / patristic completion** (`patristics/`, `tradition/`): Aquinas (*Summa Theologica*,
+complete — CCEL); Augustine (*City of God* [Dods], *Enchiridion* [Shaw], *On Christian Doctrine*);
+Anselm (*Proslogium*, *Cur Deus Homo*); Bernard (*On Loving God*); Dante (*Divine Comedy* [Longfellow]).
+
+**Self-improvement** (`self-improvement/`): James Allen (*Way of Peace*; *From Poverty to Power*,
+*Mastery of Destiny* [archive OCR]); Wattles (*Science of Getting Rich*, *…Being Well*); Marden
+(*Pushing to the Front*); Haanel (*Master Key System* [OCR]); Napoleon Hill (*Law of Success*, 1928
+[OCR; verify scope]); Shinn (*Game of Life*); *Kybalion*; Conwell (*Acres of Diamonds*); Trine (*In
+Tune with the Infinite*); Smiles (*Self-Help*, *Character*, *Thrift*); Emerson (*Essays* I & II);
+Franklin (*Autobiography*); William James (*Varieties of Religious Experience*). All Gutenberg unless noted.
+
+**Business & economics** (`business/`): Adam Smith (*Wealth of Nations*, *Moral Sentiments*);
+Carnegie (*Autobiography*; *Gospel of Wealth* [OCR]); Barnum (*Art of Money Getting*); Sun Tzu (*Art
+of War* [Giles]); Machiavelli (*The Prince* [Marriott]); Mill (*Principles* [abridged], *On Liberty*);
+Ricardo (*Principles*); Alfred Marshall (*Principles of Economics* [OCR]); Veblen (*Leisure Class*).
+
+**Classical antiquity** (`classical/`): Marcus Aurelius (*Meditations* [Long]); Epictetus
+(*Enchiridion*, *Discourses* [selection]); Seneca (*On the Shortness of Life*; *Moral Letters to
+Lucilius* [Gummere, OCR]); Plato (*Republic*, *Apology*, *Phaedo* [Jowett]); Aristotle (*Ethics*,
+*Politics*); Plutarch (*Lives*, 4 vols); Xenophon (*Memorabilia*); Cicero (*On Old Age/Friendship*,
+*On Duties*); Diogenes Laertius (*Lives of Eminent Philosophers*). All Gutenberg unless noted.
+
+**World religions** (`world-religions/`, apologetics reference): Qur'an (Rodwell; Sale — Gutenberg);
+Bhagavad Gita (Arnold [Gutenberg]; Telang SBE8 [sacred-texts]); Upanishads (Müller SBE1 & SBE15
+[sacred-texts]); Mahabharata (Ganguli, 4 vols [Gutenberg]); Dhammapada (Müller); Buddhist Suttas
+(Rhys Davids SBE11 [sacred-texts]); Gospel of Buddha (Carus); Analects & Tao Teh King (Legge).
+
 ## Added 2026-07-23 (Phase 3 — Bibles & reference)
 
 All public-domain English text (no scans). Divisions: `scripture/`, `reference/`.
@@ -112,6 +151,12 @@ All public-domain English text (no scans). Division: `tradition/`.
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
 - **The Philokalia — English** (Priority 5) — the Palmer/Sherrard/Ware (Faber) English translation is copyrighted and is NOT captured; research-only. The public-domain **Greek** 1782 first edition WAS captured as a base text (see the Philokalia row above).
 - **John Climacus, English translation** — no public-domain English exists; the Greek PG 88 base text was captured instead (above). English wording must come from a future working translation or a rights-checked source.
+- **Phases 4-10 — deferred items** (2026-07-23, all PD, no reachable clean text yet): James Allen
+  *Eight Pillars of Prosperity* & *Above Life's Turmoil*, Wattles *Science of Being Great* (no
+  archive text layer); *The Way of a Pilgrim* (R. M. French 1930, now US-PD, but no text-layer copy);
+  the *Ramayana* (Griffith — only a rough sacred-texts OCR); Plutarch's *Moralia*; the complete
+  *Discourses* of Epictetus (only a selection is on Gutenberg). Verify-scope: Hill's *Law of Success*
+  and Seneca's *Letters to Lucilius* (archive OCR captures may be a single volume of a multi-volume set).
 - **Additional PD Bibles — deferred** (2026-07-23): the ASV 1901, Young's Literal, Darby,
   Webster's, and Geneva 1599 are all public domain but NOT on Project Gutenberg; capture them
   in a dedicated Bible-translations pass from eBible.org / gratis-bible (clean digital text).
