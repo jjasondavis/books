@@ -292,9 +292,12 @@ inversion applied to the *heart* rather than the *word*.
   *Complete Works* vol. I, 1652 text; PD, OCR-verify). It is the structurally closest English analogue
   to the *Antirrhetikos* — Brooks lays out Satan's "devices" each paired with numbered "remedies" —
   and **§3 (Puritan) should be enriched from it** rather than leaning on Owen/Gurnall alone.
-- **No primary CBT text is in the vault** (the modern-secular leg leans on *Emotional Intelligence 2.0*
-  + Somov, both popularizations). A primary — David Burns's *Feeling Good*, or A. T. Beck — would let
-  the book cite the "thought record"/cognitive-restructuring drill directly. On the buy-list.
+- ~~**No primary CBT text is in the vault**...~~ **— RESOLVED, Update 2026-07-24 —**
+  **Aaron T. Beck, *Cognitive Therapy and the Emotional Disorders*** (1976), the clinical source of the
+  method, is now in the vault (`self-improvement/cognitive-therapy-and-the-emotional-disorders/`,
+  owned-copyright). **§5 should be upgraded from it** — Beck's "automatic thoughts" and the patient's
+  trained answering of them is the direct clinical analogue to *antirrhesis*; the leg no longer needs to
+  rest on the *EI 2.0* popularization. (Burns's popular *Feeling Good* remains optional.)
 - **— Update 2026-07-24 — The DSM-5 is now in the vault** (`reference/dsm-5/reading/dsm-5.md`; APA
   2013, owned-copyright + OCR). It is not an antirrhetic-method source but it is the key witness for the
   *medicalization* endpoint — what the tradition called a *thought/passion* to talk back to, modern

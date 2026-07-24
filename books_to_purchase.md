@@ -103,8 +103,8 @@ OCR) — the medicalization endpoint (vice → diagnosis).
 
 *Worth buying — verify DRM-Free:*
 
-21. **★ David D. Burns, *Feeling Good: The New Mood Therapy*** — the most-used popular CBT primary; gives
-    the actual "thought record" / cognitive-restructuring drill to set beside the desert *antirrhesis*
-    (the antirrhetic-method brief currently leans on *EI 2.0* + Somov, both popularizations).
-22. **Aaron T. Beck, *Cognitive Therapy and the Emotional Disorders*** — the clinical source of the
-    method, if a scholarly citation is wanted over Burns's popular one.
+21. **✓ ACQUIRED — Aaron T. Beck, *Cognitive Therapy and the Emotional Disorders*** (1976) — the clinical
+    *source* of CBT; now in the vault (`self-improvement/cognitive-therapy-and-the-emotional-disorders/`).
+    "Automatic thoughts" + trained answering = the direct clinical analogue to desert *antirrhesis*.
+22. **David D. Burns, *Feeling Good: The New Mood Therapy*** — the popular CBT primary (the "thought
+    record" drill in plain form); *optional* now that Beck is in — buy only if you want the popular voice.
