@@ -357,6 +357,19 @@ ingested, or an intentional dupe/skip). Highlights:
 Skipped 2 further dupes: `B0143Y8C8K_EBOK` (identical to the Cassian *Conferences* edition already added)
 and *Fox's Book of Martyrs* (already in `tradition/john-foxe/`).
 
+## books_to_process — acedia + Ladder mini-batch (added 2026-07-24)
+
+Five more EPUBs; vault **628 works**. Themed: an **acedia** cluster (rich material for the acedia brief's
+modern edge) plus the English *Ladder*.
+- **John Climacus, *The Ladder of Divine Ascent*** (Nun Christina trans., 2024, owned-copyright) →
+  `patristics/john-climacus/reading/ladder-of-divine-ascent-english.md`. Complete 30 steps incl. Step 13
+  "On Acedia"; closes the *reading* gap (vault previously had only Greek PG 88). Buy-list #7 updated:
+  a **public-domain** Ladder is still wanted for free quotation.
+- **Acedia cluster** → mostly `tradition/`: Kammenn *Acedia: Skipping the Metaphysical Rent* (2025);
+  Fortis *Overcoming Laziness and Procrastination: The Catholic Battle Against Acedia* (2026); Hütter
+  *Pornography and Acedia* (2012); Somov *The Sixth Battle of Acedia* (2017, secular psychology →
+  `self-improvement/`). Strong candidates to enrich `research/2026-07-23_acedia.md` later.
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.

@@ -39,8 +39,13 @@ are flagged where DRM status is known; verify per-page, since publishers change 
    omitted" for these two, so **no PD English exists** — the vault now holds only the Latin
    (`collatio-12-latin.md`, `collatio-22-latin.md`). Buy DRM-Free if possible (your Kindle Topaz copy is
    DRM-locked and unreadable by current tools).
-7. **John Climacus, *The Ladder of Divine Ascent* (Luibheid / Russell)** — English *Ladder* (vault has the
-   Greek PG 88 only).
+7. **~ PARTLY CLOSED — John Climacus, *The Ladder of Divine Ascent*** — a complete **English** *Ladder*
+   (Nun Christina translation, 2024) is now in the vault at
+   `patristics/john-climacus/reading/ladder-of-divine-ascent-english.md` (all 30 steps, incl. Step 13
+   "On Acedia"). It is **owned-copyright**, so it closes the *reading/search* gap but is not
+   PD-quotable. A **public-domain** *Ladder* (e.g. an older Lazarus Moore / pre-1930 translation) is
+   still worth acquiring if the book needs to quote it freely; the Luibheid/Russell edition remains a
+   clean paid option.
 8. **The Sayings of the Desert Fathers (trans. Benedicta Ward)** — the standard English *apophthegmata*
    (vault has only Budge's 1907 OCR).
 9. **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** — the *vainglory* brief's flagged
