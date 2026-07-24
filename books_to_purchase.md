@@ -10,12 +10,14 @@ are flagged where DRM status is known; verify per-page, since publishers change 
 
 ## Tier 1 — closes the biggest gaps the briefs named
 
-1. **★ The Philokalia, complete (Palmer / Sherrard / Ware), 5 vols** — the #1 gap. Every brief flagged
-   that the hesychast watchfulness (*nēpsis*) tradition is Greek-only in the vault; this is the missing
-   spine of *guarding-the-heart* and the interior-thought material.
-   **⚠ DRM-PROTECTED on ebooks.com** (Faber & Faber; confirmed on the Vol 5 page — "EPUB, DRM Protected").
-   Buying it will **not** close the vault gap — I can't read a DRM-locked EPUB. It's a personal-reading
-   purchase only. (No public-domain English exists; the vault holds the 1782 Greek first edition as base text.)
+1. **✓ GAP CLOSED — The Philokalia, complete (Palmer / Sherrard / Ware)** — was the #1 gap
+   (hesychast *nēpsis*/watchfulness, previously Greek-only). *Now in the vault:* the complete **English**
+   text (634k words, all volumes) at `patristics/philokalia/reading/philokalia-english-complete.md`,
+   ingested 2026-07-24 from an Internet-Archive OCR PDF. Fully searchable and closed the gap.
+   **Caveats:** it is **OCR** (verify before verbatim quotation) and the copyrighted Faber translation
+   (owned-copyright). **No need to buy** for the vault — the only reason to buy the Faber ebook would be
+   *cleaner* (non-OCR) text for personal reading, and it's **DRM-protected on ebooks.com** so it still
+   couldn't be ingested. (The 1782 Greek first edition also remains in the vault as base text.)
    [Vol 5 listing](https://www.ebooks.com/en-us/book/210534131/the-philokalia-vol-5/g-e-h-palmer/)
 2. **✓ ACQUIRED — Rebecca DeYoung, *Glittering Vices*** — the best modern scholarly treatment of the seven deadly
    sins / eight thoughts; a direct peer and foil for the whole project.
