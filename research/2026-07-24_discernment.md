@@ -123,7 +123,8 @@ supreme virtue outright, three times, in three different voices:
 > "Discrimination is not only called light; it truly is light... discrimination is light; and the
 > spiritual insight it generates is more necessary than all other gifts. For what is more necessary
 > than to perceive the wiles of the demons and with the help of God's grace to protect one's soul?"
-> (`philokalia-english-complete.md:9697,9699`)
+> (`philokalia-english-complete.md:9697,9699`, line-wrap join "ismore" corrected to "is more" for
+> readability, verified against source)
 
 The Philokalia also preserves the negative case-history form — extended narratives of monks
 destroyed specifically by the *absence* of discrimination, deceived by visions and voices they

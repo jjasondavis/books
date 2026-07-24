@@ -76,6 +76,42 @@ principal *logismoi*, and structurally unique — the hinge between the "fleshly
   away the thought of vainglory with humility"* directly (line 323), not merely with its opposite
   vice.
 
+- **— Update 2026-07-24 — Evagrius, *Talking Back (Antirrhetikos)*, Book Seven, "Against the
+  Thoughts from the Demon of Vainglory"** (c. 375–399, tr. Brakke;
+  `patristics/talking-back-antirrhetikos/reading/talking-back-antirrhetikos.md:2508-2728`): the
+  practical companion to the *Praktikos* diagnosis just above — instead of analyzing vainglory, this
+  work arms the monk with Scripture to answer it verse-for-verse (43 numbered rebuttals in this book
+  alone, out of 498 across the whole *Talking Back*, one book per each of the eight thoughts). Against
+  the thought that urges leaving solitude to instruct others, "on the pretext that we might instruct
+  the brothers and sisters" (entry 1, line 2512), the rebuttal is Lot's own flight from Sodom: *"Save
+  your own soul... Escape to the mountain, lest perhaps you be overtaken"* (Gen. 19:17, line 2514) —
+  vainglory's missionary disguise answered with a command to flee, not perform. Against "the thoughts
+  of vainglory that seek the world and depict its glory before our eyes" (entry 43, line 2724), the
+  rebuttal is 1 John 2:15: *"Do not love the world or the things in the world. The love of the Father
+  is not in those who love the world"* (line 2726). The book's closing line doubles as its own
+  resolution: *"Blessed is our Lord Jesus Christ, who has given us the victory over the thoughts of
+  the demon of vainglory!"* (line 2728).
+
+- **— Update 2026-07-24 — The Philokalia (English)**, compiled 4th–15th c., tr. Palmer/Sherrard/Ware
+  (`patristics/philokalia/reading/philokalia-english-complete.md`): a translation-vocabulary finding
+  as much as a content one. The standard English Philokalia renders *kenodoxia* overwhelmingly as
+  **"self-esteem" (143 occurrences)** rather than **"vainglory" (only 9)** — both words translate the
+  same Greek term across these authors, which is why a vainglory-only search under-samples this
+  collection; the RESOLVED gap below explains why this text had not yet been checked. Where the
+  translators do render it "vainglory" directly: Nikitas Stithatos's warning against "the witchcraft
+  of Jezebel... Her most powerful spells are thoughts of delusion and vainglory" (line 3333), and
+  Peter of Damaskos's programmatic distinction, "not glory, but the love of glory and — what is
+  worse — vainglory" (line 9669). But the single sharpest, most citable definition in the whole
+  collection uses the "self-esteem" translation: **St Maximos the Confessor**, *Various Texts on
+  Theology, the Divine Economy, and Virtue and Vice*, Third Century: *"Self-esteem is the replacing
+  of a purpose which accords with God by another purpose which is contrary to the divine. For a man
+  full of self-esteem pursues virtue not for God's glory but for his own, and so purchases with his
+  labors the worthless praise of men"* (line 6367) — Maximos's "worthless praise of men" is the same
+  Johannine indictment (John 5:44, §0 above) the whole tradition keeps returning to. The Philokalia
+  also contains Nikodimos's Greek abridgment of Cassian's *On the Eight Vices*, confirming the same
+  eightfold list translated here as ending "...self-esteem and pride" (line 685) — the identical
+  ordering already documented above from the Latin *Institutes*/*Conferences*.
+
 - **— Update 2026-07-23 — Gregory the Great, *Moralia in Job*, Book XXXI** (c. 590–595;
   `patristics/gregory-the-great/reading/moralia-book-31.md:281,283,285,287`): the hinge between
   Cassian/Evagrius's eight thoughts and Aquinas's seven capital vices, and the point where the
@@ -108,6 +144,27 @@ principal *logismoi*, and structurally unique — the hinge between the "fleshly
   structurally, subordinating it as pride's first daughter rather than treating it as pride's
   parent-and-peer — the seed of the later Western sevenfold "deadly sins" tradition in which vainglory
   is eventually absorbed into pride/vanity and drops out as its own independent heading.
+
+- **— Update 2026-07-24 — John Climacus, *Ladder of Divine Ascent*, Step 22, "On the Many Forms of
+  Vanity"** (c. 600–649; `patristics/john-climacus/reading/ladder-of-divine-ascent-english.md:631-671`):
+  the tradition's most literary treatment, and its most vivid personification. Climacus opens by
+  taking a side in the very eight-vs-seven debate this brief already traces (Cassian/Evagrius's eight
+  vs. Gregory's seven, above) — he sides with Gregory: *"theologian Gregory and others have reduced
+  these to seven, and I am inclined to agree with them. For who has ever conquered vanity and still
+  possesses pride?"* (line 633) — then defines vanity in the same paradoxical, self-multiplying terms
+  as Evagrius: *"I fast, and vanity boasts. I break my fast in secret, and vanity boasts again as being
+  wise... I speak, and vanity defeats me. I remain silent, and vanity defeats me again"* (line 637).
+  Most strikingly, Climacus stages vainglory and pride as literally speaking in their own voices:
+  *"the demons of vanity and pride came and sat beside me, one on each side. One touched my side with
+  his vain finger, urging me to speak about some insight... When I shook him off... the one on my left
+  quickly whispered in my ear, 'Well done, well done! You have become great by overcoming my most
+  impudent mother'"* (line 657) — vainglory personified, naming pride as her own son, tempting the monk
+  with the very act of resisting vainglory (Evagrius's paradox above, Praktikos:197, turned into
+  dialogue). Asked directly "how vanity is the mother of pride," the answer given is: *"Praise exalts
+  and inflates. When the soul is exalted, pride takes it up to the heavens and brings it down to the
+  depths"* (line 659) — and Climacus closes the step with the image that gives the vice its place at
+  the bottom rung of the whole ascent: *"vanity, when fully grown, gives birth to pride, the beginning
+  and the end of all evils"* (line 669).
 
 - **Aquinas, *Summa Theologica* IIa-IIae Q.132, "Of Vainglory"** (c. 1270;
   `patristics/thomas-aquinas/reading/summa-theologica-complete.md:154620`): the corpus's most
