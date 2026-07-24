@@ -248,8 +248,138 @@ theological question is not answered differently, it disappears from the frame.
   "dejection" and modern "melancholy," and the single most natural missing witness for this exact
   theme) **is not in the vault** — a real gap, since it sits chronologically and thematically
   between Watson/Bunyan and James and would likely show the drift already starting in 1621.
-- The **hesychast/Philokalia Greek vocabulary for *lypē*** (parallel to the gap noted in the
-  "guarding the heart" brief for *nēpsis*) has no public-domain English witness in this vault.
+- ~~The **hesychast/Philokalia Greek vocabulary for *lypē*** (parallel to the gap noted in the
+  "guarding the heart" brief for *nēpsis*) has no public-domain English witness in this vault.~~
+  **RESOLVED — Update 2026-07-24.** The Philokalia (Palmer/Sherrard/Ware English translation) is
+  now available in the vault and supplies exactly this witness, including a glossary entry that
+  formally defines the Greek term for godly grief (*katanyxis*, "compunction") as distinct from the
+  passion of dejection. See §6 below.
+
+---
+
+## — Update 2026-07-24 — §6. The Philokalia, Climacus, and Evagrius's own rebuttals: the fork confirmed in its home vocabulary
+
+Newly available source material closes the Philokalia gap noted above and adds two more primary
+witnesses (Climacus's *Ladder* and Evagrius's *Talking Back*) plus one modern scholarly foil
+(DeYoung). All four keep the same fork this brief has traced from 2 Cor 7:10 onward: the **demon of
+dejection** (a passion to be resisted, fought, and expelled) is never confused, in any of these
+texts, with **godly grief / joy-bearing mourning** (*penthos*, compunction — a gift to be
+cultivated). The vocabulary differs from Cassian's Latin *tristitia* but the diagnostic is
+identical.
+
+### 6a. The passion of dejection, in the Philokalia's own words
+- **St John Cassian, "On the Eight Vices: On Dejection"** (Philokalia English translation,
+  `patristics/philokalia/reading/philokalia-english-complete.md:816`): "Our fifth struggle is
+  against **the demon of dejection**, who obscures the soul's capacity for spiritual contemplation
+  and keeps it from all good works... he leaves it senseless and paralyzed, tied and bound by its
+  despairing thoughts." The same text supplies the fork explicitly, in language close to but
+  independent of the Institutes IX rendering already quoted in §2: "It was this demon that did not
+  allow Cain to repent after he had killed his brother, or Judas after he had betrayed his Master.
+  **The only form of dejection we should cultivate is the sorrow which goes with repentance for sin
+  and is accompanied by hope in God**... this 'godly sorrow' nourishes the soul through the hope
+  engendered by repentance, and it is **mingled with joy**... But from the other kind of dejection
+  we come to know the fruits of the evil spirit: listlessness, impatience, anger, hatred,
+  contentiousness, despair, sluggishness in praying" (`philokalia-english-complete.md:826`). Note
+  the Philokalia's version already anticipates the joy/gladness language Climacus develops fully
+  below — godly sorrow is not merely tolerable, it is "mingled with joy."
+- **St Nikitas Stithatos, *On the Practice of the Virtues: One Hundred Texts*, §60**
+  (`philokalia-english-complete.md:12496`): the sharpest single-sentence statement of the fork in
+  the entire corpus so far: "**Dejection is a passion that corrupts soul and body, affecting even
+  the marrow of one's bones** — I mean that cosmic dejection induced by the transitoriness of
+  things and often resulting in death. **The sorrow prompted by God, however, is extremely
+  salutary**." One sentence, two clauses, the whole brief in miniature.
+- **Glossary, "COMPUNCTION" (*katanyxis*)** (`philokalia-english-complete.md:16087`): the
+  Philokalia's editors define the positive term formally: "The state of one who is 'pricked to the
+  heart,' becoming conscious both of his own sinfulness and of the forgiveness extended to him by
+  God; **a mingled feeling of sorrow, tenderness and joy**, springing from sincere repentance." This
+  is the closest thing in the corpus to a technical Greek-vocabulary confirmation that the
+  tradition's positive term for grief is definitionally joy-bearing, not merely joy-adjacent.
+- **St Nikitas Stithatos §70** (`philokalia-english-complete.md:12523`) draws a further internal
+  distinction worth preserving for nuance: "**Tears of repentance are one thing, tears that flow
+  because of divine compunction another.** The first are like a river in spate that sweeps away all
+  the bastions of sin; the second are to the soul like rain or snow to a field, making it yield a
+  bountiful crop of spiritual knowledge" — i.e., even within the "good" side of the fork, the
+  tradition further distinguishes penitential grief (cleansing) from compunction proper (fructifying).
+
+### 6b. Climacus, *Ladder of Divine Ascent*, Step 7, "On Mourning Which Causes Joy" — the fork made into a whole step
+Climacus (7th c.) devotes an entire step of the *Ladder* to *penthos*, and its title alone —
+"mourning which causes joy" — states the paradox the whole brief has been tracing since 2 Cor 7:10.
+(`patristics/john-climacus/reading/ladder-of-divine-ascent-english.md:349`, heading; text runs to
+line 381).
+
+- **Opening definition**: "**Godly mourning** is the somberness of the soul and the disposition of
+  a heart in pain, always fervently seeking that which it thirsts for and, in failing to attain it,
+  relentlessly pursuing it with effort, while sorrowfully lamenting its loss" (`:351`). Mourning here
+  is framed from the first sentence as desire-for-God frustrated, not free-floating low mood.
+- **The fork made explicit, in Climacus's own terms — dejection and despair named as counterfeits
+  of true mourning, not the same thing wearing a different name**: "it is not given to some, who
+  torment and condemn themselves in seeking it, with **sighs, dejection, sorrow of the soul, deep
+  somberness, and despair**, all of which naturally fill the place of tears without risk, even
+  though they consider it to be of no benefit to them... I am astonished even when considering the
+  nature of contrition, how sorrow and so-called grief contain within them **joy and gladness,
+  interwoven like honeycomb**. What do we learn from this? That such contrition is truly **a gift
+  from the Lord**. There is no joyless pleasure in the soul when God secretly comforts those who are
+  broken hearted" (`:371`). This is the passage that most sharply keeps Climacus's *penthos* apart
+  from Cassian/Evagrius's *lypē*: dejection, sorrow of soul, and despair are explicitly the
+  fruitless, joyless counterfeit that "fills the place of tears" without being tears — real
+  compunction is recognized precisely by the joy woven through it.
+- **The positive fruit, stated as a rule**: "**Whoever continues in godly mourning will never cease
+  to celebrate daily. But whoever continually celebrates in the flesh will be succeeded by eternal
+  sorrow**" (`:367`) — Climacus's own version of the "two sorrows, two harvests" logic already
+  documented in Cassian, Watson, and Barnes.
+
+### 6c. Evagrius, *Talking Back (Antirrhetikos)* — verse-rebuttals against the demon of sadness, capped by 2 Cor 7:10 itself
+Book IV, "Concerning the Thoughts of the Demon of Sadness"
+(`patristics/talking-back-antirrhetikos/reading/talking-back-antirrhetikos.md:1498`), is Evagrius's
+own prescribed combat-technique against this thought: a scripture verse to speak back at the demon
+for each specific lie it tells.
+
+- **Against despair of being heard**: "1. Against the soul that, due to the sadness that comes upon
+  it, thinks that the Lord has not heard its groaning: *The children of Israel groaned because of
+  their tasks, and cried, and their cry because of their tasks went up to God. And God heard their
+  groanings* (Exod 2:23–24)" (`:1502–1504`).
+- **The final rebuttal of the whole book is 2 Cor 7:10 itself**: "74. Against the thoughts of
+  sadness that come to us concerning transitory affairs, sinking the intellect into great affliction
+  and killing it: *For godly grief produces a repentance that leads to salvation and brings no
+  regret, but worldly grief produces death* (2 Cor 7:10)" (`:1840–1842`), closing with the doxology
+  "Blessed is our Lord God and Savior Jesus Christ, who has given us the victory over the demon of
+  sadness!" (`:1856`). Evagrius's own translator's footnote confirms the point directly: "Evagrius
+  discusses these two types of sadness ('godly grief' and 'worldly grief') in *To Eulogios* 7; see
+  also *Eight Thoughts* 5.19" (`:1878`, n. 21). This closes a loop the brief only inferred before:
+  Evagrius — the source of the whole eight-*logismoi* scheme — used the *identical* Pauline
+  proof-text as his own weapon of choice against the very thought he named first among the eight,
+  a full generation before Cassian systematized it for the Latin West.
+
+### 6d. DeYoung, *Glittering Vices* — modern scholarly framing, offered as peer/foil
+DeYoung folds this theme under her sloth/acedia chapter rather than treating it as a separate
+vice (Aquinas's list absorbed *tristitia* into *acedia*/sloth; Gregory the Great's list did the
+reverse and folded sloth into sadness) — she narrates the swap explicitly: "Aquinas's list includes
+sloth, not sadness; however, he defines sloth as a kind of 'sorrow'"
+(`owned-library/glittering-vices/reading/glittering-vices.md:2275`, n. 47). Her own definition of
+the ascetic term, given as a footnote gloss on Gregory's *Moralia*, independently corroborates this
+brief's central claim that the patristic passion is not the modern clinical category: "**Sadness or
+dejection (*tristitia* in Gregory's Moralia) was a technical term for the sorrow that followed
+incomplete interior relinquishment of a monk's or nun's former worldly life and all its pleasures
+and treasures. It should not be confused with what is now called clinical depression, or with grief
+or sadness in general**" (`glittering-vices.md:2244`, n. 19). A contemporary philosopher, writing
+for a general Christian audience and with no stake in the ascetic tradition's own apologetic,
+reaches the same conclusion as §5's reading of James: the ancient category and the modern clinical
+one are not the same thing wearing different names, and collapsing them is a scholarly error, not
+just a rhetorical one.
+
+### What this update changes in the brief's argument
+Nothing in §§0–5 is overturned; this update **confirms and deepens** point 1 in "Why this matters
+for ChainBreaker." The fork Paul states in 2 Cor 7:10 is now attested as load-bearing at every
+level of the tradition this brief has vaulted access to: Evagrius uses it as his own final weapon
+against the thought he named (§6c); the Philokalia's compilers preserve Cassian's version of it and
+add Nikitas Stithatos's one-sentence summary and a formal glossary definition of the positive term
+(§6a); Climacus builds an entire step of the *Ladder* around it, adding the sharpest available
+statement that dejection/despair are *counterfeits* of mourning rather than the same thing under
+another name (§6b); and a 21st-century philosopher restates the clinical-category caution
+independently (§6d). The chapter now has, in addition to the Institutes IX/Watson/Barnes material
+already documented, a **Greek-vocabulary anchor** (*penthos*/*katanyxis* vs. *lypē*) to put next to
+the Latin one (*tristitia* godly vs. worldly) — useful if the book wants a moment of "the church
+has never had just one word for this, and it never confused the two things either."
 
 ---
 
@@ -258,3 +388,7 @@ theological question is not answered differently, it disappears from the frame.
 for having its fork (godly vs. worldly sorrow) built into the founding proof-text itself — the
 drift here is not inversion of a single logic (as with "guarding the heart") but *replacement of a
 two-branch moral fork with a one-axis clinical scale*.*
+
+*Update 2026-07-24: added Philokalia (English), Climacus Ladder Step 7, Evagrius Talking Back
+Book IV, and DeYoung Glittering Vices per newly available source material; see §6 above. The
+Philokalia/Greek-vocabulary gap flagged at first writing is resolved.*
