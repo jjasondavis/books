@@ -218,6 +218,40 @@ Already in the vault and directly relevant to this theme: **Finney, *Lectures on
 **Ryle**, **Bonar**. Modern in-copyright treatments (Murray, Wells, Horton, C. Smith, Marsden, Noll,
 Bonhoeffer's "cheap grace") are listed as buy candidates in `books_to_purchase.md` Tier 4.
 
+## books_to_process batch (added 2026-07-24)
+
+Ingested from `D:\repos\books_to_process` — the owner's purchased ebooks (EPUBs with DRM removed for
+personal use) plus one Internet-Archive OCR PDF. EPUB text extracted via `scratchpad/epub2txt.py`
+(spine-ordered XHTML → text). All owned-copyright items tagged as such in `CATALOG.tsv` and their
+reading-copy headers (**personal use, do not distribute**).
+
+**Gap-closers (primary sources, placed in their natural homes, owned-copyright):**
+- **The Philokalia: The Complete Text (English)**, trans. Palmer/Sherrard/Ware (Faber, 1979–95),
+  IA ABBYY OCR → `patristics/philokalia/reading/philokalia-english-complete.md`. **This closes the
+  #1 gap named in every brief** (the hesychast *nēpsis*/watchfulness tradition, previously Greek-only).
+  Owned-copyright translation **and** OCR — tagged `owned-copyright; OCR-verify`.
+- **The Complete Works of John Chrysostom (36 Books)** (Grapevine Books ed., ©2025) →
+  `patristics/john-chrysostom/reading/complete-works-grapevine.md`.
+- **The Holy Standards** — Eastern Orthodox creeds/confessions/catechisms (ed. Schooping, ©2020, on
+  older PD translations) → `tradition/orthodox-confessions/reading/the-holy-standards.md`.
+
+**Modern trade books → `owned-library/` (owned-copyright):** DeYoung, *Glittering Vices* (the buy-list
+Tier-1 peer/foil for the whole project); Colson & Pearcey, *How Now Shall We Live?*; Adler & Van Doren,
+*How to Read a Book*; Lewis, *The Great Divorce*; Houston/Floyd/Carnicero, *Get the Truth*;
+*Fight Back Like A Monk* (Kingdom Keys, 2024). *The Business of Writing* (Drew) was already present —
+reading copy refreshed, no new catalog row.
+
+**Skipped:** *As a Man Thinketh: 21st Century Edition* — the PD core text is already in the vault
+(`tradition/james-allen/`); this edition adds only light modern framing.
+
+**Could NOT process — DRM-blocked:** *John Cassian, The Conferences* (ACW No. 57, Ramsey trans.),
+supplied as a Kindle **Topaz** `.azw1`. The file is still DRM-protected; its account key lives in this
+machine's `.kinf2024` (Kindle for PC's newest format), which no current open-source tool
+(apprenticeharper *or* noDRM DeDRM) can read. KindleUnpack has no Topaz support. Genuine attempt made
+and documented; blocker is the DRM key format, not tooling. **Better path noted:** fill the Cassian
+*Conferences* gap from the public-domain **Gibson NPNF** translation (all 24 conferences) instead of the
+copyrighted Topaz copy.
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.
