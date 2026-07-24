@@ -31,8 +31,12 @@ are flagged where DRM status is known; verify per-page, since publishers change 
 
 5. **William Harmless, *Desert Christians* (Oxford)** — the standard scholarly grounding for the whole
    patristic layer. *(Search ebooks.com; verify DRM-Free.)*
-6. **Cassian, *The Conferences* (trans. Boniface Ramsey)** — fills the Conferences XII & XXII English gap
-   (still Latin-only in the vault — the *lust* brief flagged it).
+6. **★ Cassian, *The Conferences* (trans. Boniface Ramsey, ACW 57; or Luibheid)** — the **only** way to get
+   Conferences **XII (On Chastity)** and **XXII (On Nocturnal Illusions)** in English. *Confirmed
+   2026-07-24:* the public-domain Gibson/NPNF translation prints "Not translated" / "This Conference is
+   omitted" for these two, so **no PD English exists** — the vault now holds only the Latin
+   (`collatio-12-latin.md`, `collatio-22-latin.md`). Buy DRM-Free if possible (your Kindle Topaz copy is
+   DRM-locked and unreadable by current tools).
 7. **John Climacus, *The Ladder of Divine Ascent* (Luibheid / Russell)** — English *Ladder* (vault has the
    Greek PG 88 only).
 8. **The Sayings of the Desert Fathers (trans. Benedicta Ward)** — the standard English *apophthegmata*

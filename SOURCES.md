@@ -248,9 +248,17 @@ reading copy refreshed, no new catalog row.
 supplied as a Kindle **Topaz** `.azw1`. The file is still DRM-protected; its account key lives in this
 machine's `.kinf2024` (Kindle for PC's newest format), which no current open-source tool
 (apprenticeharper *or* noDRM DeDRM) can read. KindleUnpack has no Topaz support. Genuine attempt made
-and documented; blocker is the DRM key format, not tooling. **Better path noted:** fill the Cassian
-*Conferences* gap from the public-domain **Gibson NPNF** translation (all 24 conferences) instead of the
-copyrighted Topaz copy.
+and documented; blocker is the DRM key format, not tooling.
+
+**Follow-up (2026-07-24) — the PD "Gibson NPNF" fallback does NOT work for these two.** Verified against
+the NPNF vol. 11 scan (`selectlibraryofn11schauoft`) that Gibson **omits both** the missing conferences:
+Conf 12 ("On Chastity") is marked **"Not translated"** and Conf 22 ("On Nocturnal Illusions") **"This
+Conference is omitted"** — Victorian squeamishness about their subject matter. New Advent likewise does
+not host either (its `/fathers/350812` and `350822` redirect to home). So **no public-domain English of
+Conferences 12 & 22 exists anywhere.** What we *can* hold — and now do — is the **complete Latin
+original**, converted from the existing Latin-Wikisource raw into proper reading copies:
+`patristics/john-cassian/reading/collatio-12-latin.md` and `collatio-22-latin.md`. English requires the
+copyrighted Ramsey (ACW 57) or Luibheid translation → added to `books_to_purchase.md`.
 
 ## Gaps and research-only (2026-07-22)
 
