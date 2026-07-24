@@ -185,3 +185,5 @@ opposite payload. The desert watched the heart to *keep it clean for God*; New T
 *First entry in `research/`. Method is reusable: pick a theme → corpus-wide search → cite local
 witnesses per era → name the continuity and the drift. Candidate next themes: acedia (the "noonday
 demon" → sloth → modern burnout), anger, or contentment.*
+
+**Related briefs:** [the antirrhetic method](2026-07-24_antirrhetic-method.md), [discernment](2026-07-24_discernment.md), [logos (the Word)](2026-07-24_logos.md), [repentance](2026-07-24_repentance.md), and the [research/README.md](README.md) map.

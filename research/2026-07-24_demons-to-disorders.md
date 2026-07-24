@@ -229,7 +229,7 @@ place where the standard critique of early nouthetic counseling applies most dir
 which must be excluded in most cases" (`competent-to-counsel.md:455`) is a claim that, taken as a
 blanket rule rather than a corrective emphasis, under-weights genuine biological and psychiatric
 illness — a correction the later biblical-counseling movement is generally credited with supplying,
-moderating Adams's totalizing language into something closer to Cassian's own both/and (§4 below).
+moderating Adams's totalizing language into something closer to Cassian's own both/and (see “The balance” section below).
 
 ### 5. The bifurcation named from inside modern Christianity
 The spiritual-warfare brief documents at length the modern split between literal deliverance ministry
@@ -416,3 +416,5 @@ Method follows both companion briefs: named witnesses read in full or by targete
 verified `path:line`, continuity and drift named explicitly, with the same non-reductive balance
 discipline this theme requires given how directly it touches real illness, real treatment, and real
 readers who may be standing outside a psychiatrist's door while reading this book.*
+
+**Related briefs:** [sin as sickness](2026-07-24_sin-as-sickness.md), [spiritual warfare](2026-07-24_spiritual-warfare.md), [the antirrhetic method](2026-07-24_antirrhetic-method.md), and the [research/README.md](README.md) map.

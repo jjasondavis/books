@@ -392,3 +392,5 @@ two-branch moral fork with a one-axis clinical scale*.*
 *Update 2026-07-24: added Philokalia (English), Climacus Ladder Step 7, Evagrius Talking Back
 Book IV, and DeYoung Glittering Vices per newly available source material; see §6 above. The
 Philokalia/Greek-vocabulary gap flagged at first writing is resolved.*
+
+**Related briefs:** [anger](2026-07-23_anger.md), [acedia](2026-07-23_acedia.md), [sin as sickness](2026-07-24_sin-as-sickness.md), and the [research/README.md](README.md) map.

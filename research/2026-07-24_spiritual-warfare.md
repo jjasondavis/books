@@ -331,7 +331,7 @@ picture, and each pays a real price for the half it drops.
   specific modern development is undocumented here.
 - **Byzantine/hesychast demonology** (Philokalia material specifically on demons rather than passions
   generally) was not re-examined for this brief; the guarding-the-heart brief already flags the same
-  gap (no public-domain English *nēpsis* material) and it likely holds relevant demonological content
+  gap — now RESOLVED, since the owned-copyright English Philokalia is in the vault — and it likely holds relevant demonological content
   the owned-copyright Philokalia extraction could supply on a focused pass.
 - **No primary source from the secular-dismissal side beyond the DSM-5 and Beck** (already covered in
   the sin-as-sickness brief) was consulted here — e.g., no Freudian account of "demonic possession" as
@@ -347,3 +347,5 @@ follows the guarding-the-heart brief: named witnesses read in full → quoted sh
 → continuity and drift named explicitly, with an added fairness discipline (per the ChainBreaker
 brief) since this theme, like sin-as-sickness, touches live and contested belief directly enough that
 descriptive balance has to be argued for, not merely assumed.*
+
+**Related briefs:** [sin as sickness](2026-07-24_sin-as-sickness.md), [from demons to disorders](2026-07-24_demons-to-disorders.md), [discernment](2026-07-24_discernment.md), and the [research/README.md](README.md) map.

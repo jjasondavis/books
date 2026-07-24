@@ -12,7 +12,7 @@ a different, inverted descendant that keeps the *word* but relocates it from a r
 a self-assertion.
 
 **Method.** Corpus-wide search of the local library (`D:\repos\books`). The technical vocabulary is
-genuinely rare: `antirrhe-` (antirrhesis/antirrhetikos) returns only **15 occurrences across 4
+genuinely rare: `antirrhe-` (antirrhesis/antirrhetikos) returns only **20 occurrences across 4
 `reading/` files**, and one of those four is a false lead — a footnote in Schaff's church history
 citing an *unrelated* anti-Apollinarian polemical genre also titled "Antirrhetikos"
 (`reference/schaff/reading/hcc3.md:30441`), which is worth flagging precisely because it shows how
@@ -121,7 +121,7 @@ half up as explicit, teachable moral technology rather than desert aphorism.
 > the first attempts of Satan, and all ways whereby he hath made his approaches to us, be they
 > never so harmless in themselves?" (`tradition/john-owen/reading/of-temptation.md:2972-2975`)
 
-**William Gurnall**, *The Christian in Complete Armour* (1662-65), supplies the answer half with a
+**William Gurnall**, *The Christian in Complete Armour* (1655–1662), supplies the answer half with a
 worked biblical example — precisely Evagrius's move, name a specific temptation, deploy a specific
 scriptural line, done — pointing the reader to Joseph's flight from Potiphar's wife as the case
 study:
@@ -380,3 +380,5 @@ Together: watch for the thought, discern its origin, answer it with the Logos, a
 specific, repeatable procedure — 1,600 years old, rediscovered independently by modern clinical
 psychology, and already being re-marketed to contemporary evangelical readers under Evagrius's own
 name.*
+
+**Related briefs:** [logos (the Word)](2026-07-24_logos.md), [guarding the heart](2026-07-23_guarding-the-heart-diachronic.md), [discernment](2026-07-24_discernment.md), [from demons to disorders](2026-07-24_demons-to-disorders.md), and the [research/README.md](README.md) map.

@@ -287,7 +287,7 @@ summaries have to keep re-qualifying even as they use it.
 - The Byzantine hesychast vocabulary for the *positive*, God-given side of discernment (νῆψις
   paired with διάκρισις) is richest in the Philokalia, which is present only in a single
   OCR-sourced English edition in the vault — no clean public-domain transcription exists locally;
-  the same gap the guarding-the-heart brief already flagged for *nēpsis*.
+  the same OCR/owned-copyright limitation the guarding-the-heart brief notes — that brief's broader “no English *nēpsis* material” gap is now RESOLVED (the English Philokalia is in the vault); what remains is only the wish for a *clean public-domain* transcription.
 - Gregory the Great's *Moralia* (books 17 and 28) and Aquinas's *Summa* both surfaced in the
   phrase-level search for "discerning of spirits" but were not opened for this brief — likely hold
   a scholastic systematization of the gift worth a follow-up pass.
@@ -312,3 +312,5 @@ summaries have to keep re-qualifying even as they use it.
 a thought) and `research/2026-07-24_antirrhetic-method.md` (the drill that answers one once caught).
 Together the sequence is: discern the thought's origin, watch for its return, answer it — and the
 modern "be true to yourself" ethic quietly cancels the first and hardest step of the three.*
+
+**Related briefs:** [guarding the heart](2026-07-23_guarding-the-heart-diachronic.md), [the antirrhetic method](2026-07-24_antirrhetic-method.md), [spiritual warfare](2026-07-24_spiritual-warfare.md), and the [research/README.md](README.md) map.

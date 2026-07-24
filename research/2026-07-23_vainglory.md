@@ -217,7 +217,7 @@ principal *logismoi*, and structurally unique — the hinge between the "fleshly
   esteem.
 
 ### 4. The Puritan peak
-- **William Gurnall, *The Christian in Complete Armour*** (1662–1665, vol. 2;
+- **William Gurnall, *The Christian in Complete Armour*** (1655–1662, vol. 2;
   `tradition/william-gurnall/reading/christian-in-complete-armour-vol2.md:22395`): brief but martial
   — prays that in spiritual duties "no wind of vainglory comes in" (line 22395), and elsewhere warns
   of those who pray "not [wanting others] to pray for them, but **vaingloriously — to gain a
@@ -446,3 +446,5 @@ in §6 abandoned — a countercurrent worth naming alongside the secularization 
 
 *Companion to `research/2026-07-23_guarding-the-heart-diachronic.md`. Same method: corpus-wide
 search → cite local witnesses per era → name the continuity and the drift.*
+
+**Related briefs:** [pride](2026-07-23_pride.md), [humility](2026-07-24_humility.md), [avarice](2026-07-23_avarice.md), and the [research/README.md](README.md) map.

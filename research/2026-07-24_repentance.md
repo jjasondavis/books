@@ -293,3 +293,5 @@ just optimization.
 *Companion to `research/2026-07-23_guarding-the-heart-diachronic.md` — read together, the two briefs
 give ChainBreaker its before/after pair: watch the heart before a thought lodges, repent to expel it
 once it has.*
+
+**Related briefs:** [guarding the heart](2026-07-23_guarding-the-heart-diachronic.md), [logos (the Word)](2026-07-24_logos.md), [humility](2026-07-24_humility.md), and the [research/README.md](README.md) map.

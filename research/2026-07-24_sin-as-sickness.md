@@ -384,7 +384,7 @@ repentance named in the same breath, neither displacing the other.
   not searched exhaustively; the acedia brief's Gregory work (`patristics/gregory-the-great/reading/moralia-book-31.md`)
   focuses on the 8→7 merger, not the medical vocabulary. A focused pass might turn up additional
   physician-of-souls material tying Gregory more tightly into this brief's chain.
-- **Cassian's *Institutes* Book VI** (fornication) remains absent from the vault, as already noted in
+- **Cassian's *Institutes* Book VI** (fornication) remains absent from the standard NPNF *reading/* set (though the Latin and a Dysinger PD-English recovery are in the vault — see the lust brief), as also noted in
   the acedia and antirrhetic-method briefs — a numbering gap, not specific to this theme, but it
   removes one plausible disease/remedy chapter from the set searched here.
 - **No primary Freudian or classical-psychoanalytic text is in the vault.** Beck's book (1976)
@@ -415,3 +415,5 @@ corpus-wide term search → cite local witnesses per era → name the continuity
 explicitly — with an added, explicitly non-reductive balance section, since this theme (unlike
 guarding-the-heart or acedia) touches real illness and real treatment directly enough that fairness
 has to be argued for, not merely assumed.*
+
+**Related briefs:** [from demons to disorders](2026-07-24_demons-to-disorders.md), [the antirrhetic method](2026-07-24_antirrhetic-method.md), [acedia](2026-07-23_acedia.md), and the [research/README.md](README.md) map.
