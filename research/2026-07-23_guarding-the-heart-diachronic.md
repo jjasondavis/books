@@ -34,9 +34,73 @@ The desert tradition makes the inner watch the whole game.
   spiritual meditation and **watchfulness over the thoughts**."
 
 Here the frame is **spiritual warfare**: thoughts (*logismoi*) are sifted, resisted, and discerned
-(is this thought from God, self, or the enemy?). The heart is a contested gate. *(The Byzantine
+(is this thought from God, self, or the enemy?). The heart is a contested gate. ~~*(The Byzantine
 hesychast vocabulary for this — nēpsis, "watchfulness" — is present in the vault only in the Greek
-Philokalia and Climacus; no public-domain English exists, a noted gap.)*
+Philokalia and Climacus; no public-domain English exists, a noted gap.)*~~ **RESOLVED — Update
+2026-07-24:** the complete English Philokalia and a full English Climacus are now in the vault
+(owned-copyright acquisitions, OCR-verified before quotation). See §1a immediately below for the
+nēpsis material itself, in its own words — the very thing this brief said it lacked.
+
+#### 1a. Update 2026-07-24 — the gap closed: nēpsis in its own words
+This brief's single biggest flagged gap is now closed. The complete English Philokalia
+(Palmer/Sherrard/Ware translation, Faber & Faber, 1979-1995; owned copyright, Internet Archive
+ABBYY OCR, verified against source before any verbatim quotation below) is in the vault at
+`patristics/philokalia/reading/philokalia-english-complete.md`, alongside a full English Climacus
+(2024 Nun Christina translation; owned copyright) at
+`patristics/john-climacus/reading/ladder-of-divine-ascent-english.md`. Together they supply the
+Byzantine hesychast vocabulary for guarding the heart — *nēpsis*, "watchfulness" — as its own
+authors state it, not merely as a name-checked absence.
+
+**Hesychios the Priest** (Sinai, ?8th–9th c.), *On Watchfulness and Holiness*, gives the classic
+definition and makes it synonymous with guarding the intellect: *"It is the heart's stillness and,
+when free from mental images, it is the guarding of the intellect"*
+(`patristics/philokalia/reading/philokalia-english-complete.md:1897`). He locates the watch at a
+precise point — the doorway of the heart — the same place Cassian's *logismoi* doctrine had already
+staked out three centuries earlier: *"Watchfulness is a continual fixing and halting of thought at
+the entrance to the heart"* (`:1902`; the OCR renders this "fixing and. halting," a stray period —
+sense is unambiguous from context). And he gives the hesychast tradition's fullest anatomy of how a
+temptation develops in stages — provocation, engagement, assent, act — the same structure later
+systematized as the doctrine of the *logismoi*: *"The provocation comes first, then our coupling
+with it… Fourth comes the concrete action – that is, the sin itself. If, however, the intellect is
+attentive and watchful, and at once repulses the provocation… its consequences remain inoperative"*
+(`:1986-1987`; OCR has "inteUect" for "intellect," corrected here).
+
+**Philotheos of Sinai** (?9th–10th c.), *Forty Texts on Watchfulness*, treats watchfulness,
+attentiveness, and guarding the intellect as, in the translators' words, "virtually synonymous"
+names for one discipline (`:8179`), and states its precondition plainly: *"Guarding the intellect
+with the Lord's help requires much humility, first in relation to God and then in relation to
+men"* (`:8220`). Tellingly, he grounds himself in the same verse this brief opens on: *"Guard your
+heart with all diligence, for on this depends the outcome of life"* (Prov. 4:23), he writes,
+quoting it directly (`:8211`) — the hesychasts read their own watchfulness as continuous with §0's
+anchor text, not a separate invention.
+
+**Nikiphoros the Monk** (Mount Athos, 13th c.) frames the whole discipline as custody of an inward
+treasure: *"…let us seek the treasure within our hearts. And when we have found it let us hold fast
+to it with all our might, both cultivating and guarding it…"* (`:13484`). The Philokalia's own
+editors elsewhere name **Mark the Ascetic** alongside Hesychios and Philotheos as a fellow
+guarding-the-heart author (`:12280`), confirming this is a coherent school of teaching, not one
+isolated voice.
+
+**John Climacus** (Sinai, c. 600) — a source both Hesychios and Philotheos explicitly draw on — is
+the bridge from the desert to the Philokalia proper. His *Ladder*, Step 26 ("On the Discernment of
+Thoughts"), distinguishes levels of the watch in a way that anticipates the antirrhetic method (see
+the cross-reference below): *"The guarding of thoughts is one thing, and the keeping of the mind is
+another… Praying against thoughts is one thing, but responding to them is another; to despise them
+and rise above them is yet another"*
+(`patristics/john-climacus/reading/ladder-of-divine-ascent-english.md:833`). Step 27 ("On Holy
+Solitude of Body and Soul") gives stillness (*hesychia*) the identical sentry-at-the-gate image
+Hesychios later uses for the heart: *"Quietude of the soul is the mastery of thoughts and a state
+of unshaken contemplation. A friend of quietude is a brave and resolute thought, standing
+steadfastly at the door of the heart, either killing or driving away those who approach"* (`:935`).
+
+*Cross-reference, not duplication:* the operational mechanics of this watch — catching a thought at
+the door and **talking back** to it — is Evagrius's method in *Talking Back* (*Antirrhetikos*),
+covered fully in the antirrhetic-method brief
+(`patristics/talking-back-antirrhetikos/reading/talking-back-antirrhetikos.md`). Guarding the heart
+and talking back are two descriptions of one act: the hesychasts supply the *why* and the *where*
+(purity of heart; the doorway of the heart); Evagrius supplies the *how* (answer the thought with a
+counter-word, verse by verse). Climacus's Step 26 distinction above — praying against a thought
+versus *responding* to it versus rising above it — is this same seam, named from the hesychast side.
 
 ### 2. Medieval interiority
 The desert watch becomes monastic *custody*: à Kempis's *Imitation* and Aquinas's *Summa* carry
@@ -108,8 +172,12 @@ opposite payload. The desert watched the heart to *keep it clean for God*; New T
    witnesses are clean text; the few OCR items are flagged. Nothing here rests on memory.
 
 ## Gaps flagged for this theme
-- The Byzantine **hesychast *nēpsis*** material (Philokalia, Climacus) is Greek-only in the vault —
-  the single richest vein on "watchfulness" has no public-domain English witness.
+- ~~The Byzantine **hesychast *nēpsis*** material (Philokalia, Climacus) is Greek-only in the vault —
+  the single richest vein on "watchfulness" has no public-domain English witness.~~
+  **RESOLVED — Update 2026-07-24:** the complete English Philokalia (owned-copyright,
+  Palmer/Sherrard/Ware, OCR-verified) and a full English Climacus (owned-copyright, Nun Christina
+  translation) are now in the vault. See §1a above for the nēpsis material in its own words —
+  Hesychios the Priest, Philotheos of Sinai, Nikiphoros the Monk, and Climacus Steps 26–27.
 - Basil's on-theme homilies remain a no-PD-English gap.
 
 ---

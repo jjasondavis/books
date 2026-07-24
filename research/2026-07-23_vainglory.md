@@ -97,8 +97,8 @@ principal *logismoi*, and structurally unique — the hinge between the "fleshly
   as much as a content one. The standard English Philokalia renders *kenodoxia* overwhelmingly as
   **"self-esteem" (143 occurrences)** rather than **"vainglory" (only 9)** — both words translate the
   same Greek term across these authors, which is why a vainglory-only search under-samples this
-  collection; the RESOLVED gap below explains why this text had not yet been checked. Where the
-  translators do render it "vainglory" directly: Nikitas Stithatos's warning against "the witchcraft
+  collection — this text simply had not been checked before this pass (see the Gaps note below).
+  Where the translators do render it "vainglory" directly: Nikitas Stithatos's warning against "the witchcraft
   of Jezebel... Her most powerful spells are thoughts of delusion and vainglory" (line 3333), and
   Peter of Damaskos's programmatic distinction, "not glory, but the love of glory and — what is
   worse — vainglory" (line 9669). But the single sharpest, most citable definition in the whole
