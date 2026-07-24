@@ -1,0 +1,451 @@
+section-0_1_c17d4692e5d9ad7_62e
+
+section-0_1_baf72a573f52a684_645
+
+Analysis of the SAP Super User
+
+Rebirth of a popular model
+
+Kemah Bay Marketing LLC.
+
+© 2012 Kemah Bay Marketing LLC.
+
+All rights reserved.
+
+SAP is a registered trademark of SAP AG in Germany and several other countries
+
+section-0_1_5d47ca41c78f2c77_646
+
+Contents
+
+SUMMARY 
+
+HISTORICAL BACKGROUND 
+
+SECTION ONE: THE MODEL 
+
+Model Considerations 
+
+SECTION TWO: IMPLEMENTATION OF THE MODEL 
+
+Where does a company begin? 
+
+The Human Element 
+
+The Analytical Element 
+
+What is a Super User’s responsibility? 
+
+Ratios 
+
+Putting it all together 
+
+1. Get them early 
+
+2. Train them well 
+
+3. Give them support 
+
+SECTION THREE: SUSTAINING THE MODEL 
+
+Fears 
+
+RE-INTEGRATING THE SUPER USER 
+
+Phase One: Documentation Management 
+
+The Sustainers and the Trainers 
+
+The role of the Super User and support systems 
+
+FUTURE TRENDS AND THE SUPER USER 
+
+Social Networking and the Super User 
+
+Performance Monitoring and the Super User 
+
+Where’s the value? 
+
+The Trend in Monitoring Tools 
+
+SECTION FOUR: CONCLUSION
+
+section-0_1_b93ca037775212eb_647
+
+Summary
+
+The status of the global economy has re-focused many organizations on a primary component of successful business – Employee Performance. The emphasis on “doing more with less” eventually leads management to examine how well their employees execute their daily tasks while using ERP systems or other IT assets.
+
+While the focus of this paper is on SAP, the information within could be applied to practically any ERP system.
+
+Starting in the 1980’s, the implementation, and eventual dependency, of using SAP to “run the business” bred a powerful individual, the SAP Super User. These non-IT employees have a level of SAP knowledge beyond the average user. This advantage was normally obtained due to involvement with the initial implementation and design of the ERP system. They often are asked to go beyond the role of their day-to-day jobs to deliver or assist in documentation, training, and support. This often involves engaging users and providing a personal touch to increase the efficiency of employees using SAP system(s).
+
+This paper explores the SAP Super User model, the implementation of the theory, sustaining the model, and potential improvements.
+
+The data within was compiled using:
+
+- Results of a 10-question survey answered by 100 SAP users
+
+- Interviews with three training professionals at Fortune 5,000 corporations
+
+For the past few years, the Super User model was thought to be obsolete. Web based technologies, designed to replace the human effort, became popular during the mid-2000’s.
+
+On many fronts, these technologies have not provide the promised solution for their corporate customers. This has resulted in a paradigm shift from underutilized software based training systems to the Super User Model being reborn at numerous SAP customers.
+
+The practice of using the Super User model is re-gaining popularity with many firms. If this trend continues, it may again become the primary method of training and support for ERP workers.
+
+section-0_1_270b2987431f6695_648
+
+Historical Background
+
+The Super User model was born of necessity. In the late 1980’s, when SAP was first introduced into the North American market, a subtle and unexpected cultural difference was uncovered that surprised SAP’s management. American corporate culture viewed IT systems and resources differently than their European counterparts.
+
+“In Germany, our customers change how the business operates to match our product. In the U.S., the product is changed to fit the business. We do not experience so many changes to SAP in Europe.” – Hasso Plattner, SAPPHIRE 1996
+
+At the time, the common solution for employee training and support involved paper manuals and classroom training. The manuals and materials were “off the shelf” for any sort of packaged software. The fact that SAP could be, and was, heavily customized lead to a new problem – how do you train the user community on a system that is a hybrid of off-the-shelf and in-house customized software?
+
+In these pre-LMS (Learning Management Systems) and pre-EPSS (Employee Performance Support Systems) times, the initial attempts were to replicate historical solutions. Manuals were created, distributed, and utilized as the foundation of all training and support. This effort failed in many ways. Prior to SAP, IT systems were typically limited to a department, plant, or specific function of the business. This meant that the number of individuals to be trained was small. The cost associated with creating training courses and manuals was limited by the diminutive scope as well.
+
+SAP changed all of this. For the first time, an IT system was being implemented at corporate or divisional levels. The number of employees being impacted was beyond anything experienced to that point. Not only were the sheer numbers of workers to be trained higher, their entire interaction with the company IT system was being replaced. Up until that time, only a limited slice of their keyboard-based activity was affected by any new system.
+
+The other significant outcome of those early SAP implementations involved system changes. SAP is easily and quickly modified. This capability is a major selling point of the software. Early adopters found that before the ink was dry on their expensive training manuals, the system had changed.
+
+Based on these facts, the concept of the Super User was born of necessity. Early methodologies for new SAP implementations involved bringing in business subject matter experts to work with IT and outside consultants. When the training phase of the implementation began to falter, these subject matter experts inevitably were pressed to shore up the educational efforts.
+
+The growth of the Super User’s role in training and support was not a perfect solution. The constant internal strife over resource utilization was common on almost every SAP implementation. Managers did not want to surrender their best employees to the SAP project, especially when considering the extended period of time that their most productive workers would be away from the primary roles in the business. SAP projects were longer in calendar duration than traditional systems implementations.
+
+The explosive growth of SAP’s R/3, client server solution took everyone in the industry by surprise in the early 1990’s. The same issues experienced by larger corporations with the mainframe based R/2, were now occurring at smaller, mid-sized firms who did not have the budget, manpower or internal expertise to deal with the problem. Again, the Super User model was really the only viable resolution.
+
+In the late 1990’s, two new technologies were developed that held strong promise of providing trained information workers without compromising the primary business of the corporation.
+
+The first involved automated capture, or recording of SAP transactions. These recordings were then easily translated into learning materials. This shortened the cycle of creation and allowed for manuals to be updated quickly, enabling trainers to “keep up” with the changes being made to the SAP system.
+
+The second technology was computer based learning (or training). The eventual acronym was LMS, or Learning Management System. SAP was quick to realize the value of these technologies and offered “On Demand” from Global Knowledge as early as the late 1990’s. At that time, the press criticized SAP heavily for being difficult to implement as well as end users having debilitating issues with the learning curve and usability of the interface. SAP attempted to address these concerns with technology.
+
+Both of these solutions still required extensive materials creation and thus a noticeable level of investment. Common wisdom at the time was to budget 14-16% of the project budget for education.
+
+The internet, internal networks, and even email were new to the corporate world at that time. Training had traditionally been done with an instructor and a classroom. Attending a course was often as much of a social event as an opportunity to expand skill sets. Within many corporate cultures at that time, a new computer system was viewed as intrusive and required tolerance on the part of employees. Many instructors will recall that they and the system were evaluated after the class – not the students. The acceptance of computer-based training was yet another layer of change being applied to the workforce. Both LMS and capture based products struggled.
+
+Many firms adopted a hybrid model. The usage of Super Users was combined with some level of learning and support technologies. This hybrid solution still exists today in thousands of firms around the world.
+
+Many experts agree this model is innately flawed. A vast majority of employees will never take the time to access a computer-based support system when a co-worker is available. Given email, texting and the common use of cell phones, accessing another human to get support is even faster than ever.
+
+section-0_1_6af91778eb83d057_649
+
+Section One: The Model
+
+The Super User model, sometimes called the Power User or Champion User, is based on the concept of bringing talented employees into positions of leadership within the SAP infrastructure. The intentions are:
+
+(1) Enable engaged, productive users of the SAP system by presenting a human, personal “face” to what many employees consider a significant change to their daily role.
+
+(2) A significant time and cost balance as companies limit hiring new or temporary resources for the sake of documentation, training, and support.
+
+(3) Verification of the SAP investment from a user perspective, with usability, coverage of business processes and a predetermination of acceptance being key indicators.
+
+Simplified Super User Model
+
+Model Considerations
+
+In order to implement the Super User model, the following must be considered:
+
+- How the Super Users will be identified.
+
+- How much time the Super User will spend in this role.
+
+- What this role will encompass (scope).
+
+- How many SAP workers (users) the Super User will coach.
+
+The considerations of the project itself will further refine the model. In the various interviews conducted while researching this document, we found example companies on opposite ends of SAP experience, but sharing the same common goals. These case studies involved large and small, mature and new implementations. Geographic concentration of the users, language differences and overall management structure was found to have very little impact as to the overall approach and perspective of the Super User model. A background and synopsis follows as each speaks to the pros and cons of having this as a primary education model:
+
+The Long-Term Client: Company-Oil (Oil Giant, Forbes 100)
+
+Company-Oil has been utilizing SAP for over 15 years. The ERP system has been implemented in a series of divisional or geographic rollouts over that period of time. A continuous cycle of upgrades and expansion has been generated as well. Their assets and resulting liabilities earned during the sustaining of a mature SAP cycle include:
+
+Understanding the Employee Base: Company-Oil has been utilizing SAP for several years, creating a healthy cache of information regarding how their workers interact with SAP. This knowledge enables them to more easily identify desired Super User candidates.
+
+Understanding the Super User Ratios: Due to their experience with both local as well as global projects, they are more competent in estimating the amount of time a Super User will spend in that role and also how many users the Super User will need to coach.
+
+Project-by-Project Scoping: The greatest problem of a long-term client occurs because over time project resources are allocated differently. Some projects are meticulously planned, staged, and delivered. In other instances, business needs dictate speedier implementations with few resources dedicated to employee education. Differences in the pace of a project as well as dedicated manpower can lead to a loss in standardization of documentation, training, and support instance from project to project.
+
+The New Client: Company-MF (Manufacture, Forbes 200)
+
+Company-MF was in their second year with SAP as this study was conducted. Their project involved a global rollout to an eventual 22,000 SAP end users and was considered the second largest in-progress SAP rollout at that time. Company-MF retained experts having over 33 combined years of education experience in corporate and adult learning, have the benefit of long-term SAP projects to use as their base. Since the project was in its early stages, they were in a position to create a model that should sustain and be more solid company-wide. Their advantages and disadvantages as they approach the project:
+
+The Benefit of Hindsight: The acquired staff’s experience with many past SAP implementations, refined education models, and adult learning research provided a base of knowledge for them to build a solid foundation. As they have a clean slate to work with, this allows them the chance to create a cohesive plan that can be enforced globally.
+
+Establishment of Standards: As they were going into this implementation with a set of rules, they set the parameters for time, money, and resources. The unification of how a company educates its workers globally has a much better chance of succeeding if put in place at the start.
+
+Employee and Ratio Scoping: As Company-MF was new to SAP; they could spend more time creating a better scope for the type of Super User they wished to promote. Ratios of time spent in the role and the role definition will go through several changes as they mature with the system.
+
+The Geographically Disbursed Client: Company-Util (Multi-Billion Dollar Energy Producer and Electrical Utility Company on 4 continents)
+
+Company-Util employs a business model revolving around acquisition of various energy providers worldwide. This business prototype has resulted in a complex adult learning environment due to the variances in time zones, language, and governing regulations. With 28,000 SAP licenses, Company-Util has averaged one significant acquisition per year since going live with SAP. A de-centralized learning model resulted in a unique Super User methodology:
+
+Upon acquisition of a new company, IT systems are left in place while key personnel are re-located to central U.S. operations for training. These employees eventually become the SAP Super Users when the SAP implementation is begun at their “home” company.
+
+Language and business knowledge are a significant part of the selection process, with an overriding principle that it is easier to teach someone business processes and SAP than a new language.
+
+Super Users are informed upfront about the expectations of their role and responsibilities. They are encouraged to maintain relationships, attend staff meetings, and participate in ongoing business activities at their home location, even while they are temporarily away in the U.S. on assignment.
+
+section-0_1_656c98f2c7db6507_64a
+
+Section Two: Implementation of the Model
+
+A blind survey was conducted by emailing a database of 12,000 SAP Users and posted to active forums in training and support at ASUG (www.asug.com.) Participants were invited to answer a series of 10 questions about the Super User in SAP. One hundred individuals responded, including the four in-depth interviews used as a basis for this white paper. A detailed analysis of the results was conducted by three independent industry professionals.  
+
+Where does a company begin?
+
+Of the 100 respondents, 72.7% currently utilize a form of the Super User model. The question is, how are Super Users identified? Over 88% of the respondents reported that they have a clear idea of where their Super Users come from.
+
+            
+
+Much of the work in finding a Super User involves knowing who to talk to and what to ask for. Company-Oil and Company-MF both have refined lists of criteria and specific questions that they take to managers or functional teams. In short, they manually seek out the Super User who fits a profile
+
+.
+
+Company-Util uses recommendations of existing management and HR profiles of language capability.
+
+The survey respondents pointed to ‘knowing who to use’ and ‘finding the ones who care’ as part of the overall profile of a Super User. Smaller firms seemed to have no problem in identifying candidates. Larger firms may have to result to using more advanced techniques, such as profiling. If was clear from the survey that the sophistication of the selection process was in direct correlation to the size of the project.
+
+The Human Element
+
+While SAP is constantly looking for ways to improve its usability and function, the most difficult measurement or any ERP system is that of the “human response” to it. If a person does not like the system and circumvents the technology, then the technology will inevitably become an obstacle to productivity. The human element is not a standard that can be measured from company to company, and varies even within the company from department to department. Personality, intelligence, and social skills all come into play when a Super User is being identified. The human element is extremely important, as they, the Super Users, will be an important representation of the company’s SAP implementation. This topic will be expanded upon in later sections.
+
+The Analytical Element
+
+The pressure to meet company goals, such as ROI (Return on Investment) and KPI (Key Performance Indicators) has spawned an age of reporting. While human factors are crucial in the determination of Super Users, there is a very real need for analytical studies of how people perform in the company’s SAP environment. Only an 8.9% of the survey respondents indicated that their company used any type of computer generated monitoring capability. Even within that small percentage, this issue is being metered through change requests, help desk calls, and audits or analysis of the SAP system. During the interviewing process, all three companies had identified the need for some level of automation in regard to measuring employee productivity. This point will be fully analyzed in later sections, but it should be noted that this trend, if developed and embraced properly, should be able to take substantial burden off certain users and empower the entire SAP user base.
+
+What is a Super User’s responsibility?
+
+Once the Super Users have been identified, the question becomes how much time they will spend in this role, and what will they be doing. 81.8% of the survey respondents said education, with individual training (also known to some as first tier support) being the most common task for the Super Users. Ranking the tasks that follow this were train-the-trainer, classroom training, and lab or specialized group training initiatives.
+
+Not addressed in the survey, but mentioned in both interviews with Company-Oil and Company-MF were time and user management ratios. Here the answers varied, and the political ramifications that occur when developing a Super User base were acknowledged as a critical factor in the success of this model. After all, once these talented users are identified, how can it be ensured that they will remain balanced between their actual job and the new role they are assigned? And how can it be done without burning out the Super User or causing issues with their direct superiors who need their most productive workers in the primary business of the corporation?
+
+Company-Util had dedicated roles for the Super User ongoing, so time management was not a consideration.
+
+section-0_1_76672c1f77767681_64b
+
+The Sliding Time Scale
+
+Company-MF has put together a sliding scale of how much time a Super User should give to a project, which is comparable to Company-Oil’s logic. In it, they perceive a Super User should be found and put in place during the Testing Phase, and should experience the bulk of their work in this role during Go Live.
+
+These are the most precarious phases of any SAP project, in which special care should be made while users adapt to the system. This, however, is a tough sell to managers, as asking them to ‘borrow’ their prized employees for up to 50% of their work week can become problematic. 
+
+Both interviews reported that any contribution of time beyond 10% per week was difficult to justify to management ongoing. Once the system was stabilized, this was noted as an obtainable goal.
+
+Again, Company-Util does not experience this issue as their Super Users are reassigned to full-time roles.
+
+Ratios
+
+How many users should a Super User ‘coach?’ Again, while not part of the survey, all three interviews addressed this question. This is often assessed on a project-by-project basis, and can include many variables. From our interviews, we were able assimilate the following common considerations:
+
+-> How stable is your SAP system?
+
+- Very complex or small projects utilize a ratio of approximately 1:10.
+
+- A large project with moderate management yields 1:40.
+
+- A ratio of 1:100 (or higher) is likely for long-running, consistently stable systems.
+
+-> How many End Users are in your SAP system?
+
+- Smaller projects are more likely to maintain a 1:10 ratio regardless of other factors.
+
+- Moderate sized systems (fewer than 10,000 users) maintain at a ratio of 1:40 or 1:100.
+
+- Large, global systems (over 10,000 users) receive the most inconsistent numbers, and so no final ratio can be averaged.
+
+-> What kind of support are you providing a Super User?
+
+- Online access for support.
+
+- Help desk size and availability.
+
+- Exterior support – functional team, training team, competency center availability.
+
+Putting it all together
+
+Once a company identifies, establishes duties, and determines ratios, the Super User is ready for action. But how does this work in the real world? Our survey results, along with our interviews, provide the following points for proper implementation:
+
+1. Get them early
+
+All interviews yielded a strong commitment in identifying a Super User very early in the process. The pervasive philosophy behind all this: the earlier Super Users are identified and trained, the earlier the overall buy-in to the new SAP system.
+
+2. Train them well
+
+Company-Oil utilizes a core team that moves from project-to-project to find, train, and release Super Users into the system. This team follows specific guidelines; identifying, training, and releasing Super Users into the system in a systematic process. This is done project-by-project, with evaluations of needs made prior to commencement.
+
+Company-MF has a tiered approach to finding the Super Users. They are divided into those who can teach, and those who support training. Cultivated Super Users who are selected to fulfill training positions retain a different set of functions over those cultivated to function as an onsite support system.  Those individuals may instead be recruited to assist in documentation and one-to-one training.
+
+Company-Util has a dedicated program with full time management shared by IT and Finance to manage the Super User integration process. The average Super User receives as much training as a core team member.
+
+3. Give them support
+
+While this can vary from project-to-project, Company-Oil has a six-week guaranteed commitment, post go-live, to support the Super User. This means that all core players are on-call to assist the Super Users and their teams. They have also in the past set up online support systems integrated with SAP that are managed by each project team. As Company-MF is new to SAP, it plans to maintain a core team and provide consistent online support. This will be grown and released in phases alongside their rollout.
+
+section-0_1_e0e1c57c2dba18f1_64c
+
+Section Three: Sustaining the Model
+
+Once up and running, the task becomes to maintain consistency. It is often after a project has been live for some time that people will notice deterioration or skills erosion. One of the first indications that employee skill levels are falling is an attempt to “pull” the Super Users back into an informal educational role. In other words, they gradually begin to field more questions from users who are struggling with SAP over a period of time. This situation is stressful on the Super User, management and the company as a whole. When SAP users need help, it is only human nature for them to seek out the person or system that helped them before.
+
+This factor was part of the justification for a full time Super User position at Company-Util. Another key measurement is the amount of obsolete materials within any training or support system. While the trend toward utilization of EPSS (Employee Performance Support Systems) has been down in the last few years, some of these systems still exist. A high percentage of outdated materials in any on-line support system indicate the model is not being sustained and in addition, contributes to end users trying to reacquire their Super User for support.
+
+Company-Util has used the elimination of the on-going maintenance for the company’s EPSS system to offset the expense of full time Super User roles. The cost of maintaining EPSS and LMS (Learning Management System) content was compared to the actual usage by employees and could not be justified. This problem was acknowledged in all three interviews, and has direct ramifications with the education model implemented at go-live.
+
+Fears
+
+The vast majority of SAP project budget is spent prior to go-live when there are countless internal and external resources working day and night to meet a deadline. Once that deadline has passed, there is a period of approximately six weeks where resources and management are focused on insuring the stability of the new system. However, many of the major problems don’t always happen in the six weeks after launch. Down the road, little problems can crop up, putting stress levels higher on the SAP workers. Management may or may not be aware the situation.
+
+Communication was stressed in all interviews as a strong factor here, but may not always be properly executed.
+
+When conducting our interviews we found two main ‘fears.’
+
+(1) Despite all the prep work involved in finding and training up the Super User, there is a sense that the project core team is dumping information and running to the next project, not giving them the sustainment they need. 
+
+(2) Resources are sometimes depleted or redirected as projects expand.  
+
+One method gaining in popularity was the use of monitoring technology. Using a combination of tools delivered with SAP, such as ST03n basis transactions and third party performance monitoring software was noted on several survey responses as being in the future plans. One survey respondent called such reporting “Performance radar.”
+
+Company-Util was in the process of implementing such technology when the interview was conducted. Their plan was to measure employee proficiency in the system, allowing them to direct action to “shore-up” a given department or area before the Super Users were pulled away from their current assignments.
+
+section-0_1_e1cbe9470de7cd87_64d
+
+Re-integrating the Super User
+
+Most SAP projects roll out in phases or staged go-live events. In addition to the fears described above, all of the interviewees indicated a potential issue with the Super User model if the SAP implementation didn’t allow these valuable employees to re-integrate with their departments. There were specific concerns that SAP would develop a reputation of not releasing key employees back into their previous role, or “once a Super User, always a Super User.” Below are some of the items noted on the survey or addressed in the interviews to avoid these concerns:
+
+Phase One: Documentation Management   
+
+Often considered as an after-thought, the use of the Super User in the creation and maintenance of documentation was considered critical by two of the consultants being interviewed. Whether for training or support, if an online system of help or training manuals becomes out-of-date, Super Users are often first to be questioned about changes or inconsistencies in any materials. By involving them in the creation and update of materials, first tier support pressure can be relieved, as well as maintaining better material to update when the next upgrade arrives.
+
+The Sustainers and the Trainers
+
+When a Super User is more of a process guru than one who wishes to teach, the role can be split. This model involves a larger number of Super Users, but should not result in more man-hours. If proper documentation management is maintained, it should be simple to divide the roles. This way Super Users are empowered, and it is easier for them to return to their previous role. Trainers, on the other hand, are more visible, but again you play to their strengths. The key is to maintain communication between both roles, so that no one side takes on more burden than the other does.
+
+The role of the Super User and support systems
+
+In considering the future of any project, the human element must be considered as the inevitable changes to SAP continue. All of the experts interviewed noted that a consistent trend with the way employees interface with SAP. When people cannot readily understand a system, they seek help. If that help fails them, they will slowly abandon a system. To prevent this occurrence as well as to relieve pressure on both the user and the Super User, a management system of documentation must be put in place. The three case study corporations addressed this as follows:
+
+- Create a secure folder structure system for documentation, which can be managed through a hierarchy.
+
+- Enable a feedback system to exist from user to designated Super User, and then onto the functional Team and management.
+
+- Extend content control and authoring to the core team.
+
+- Allow for flexibility within the documentation and for the users to have some ability of control, such as being able to introduce personal notes into their help notes.
+
+- Allow history to exist within the documentation. This feature was most commonly used for company audit purposes but also helped save time in looking for outdated materials.
+
+The experience of the consultants being interviewed exposed a critical aspect of any support technology and the Super User Model. The two are counter-productive in several ways. By its very nature, the Super User’s role is meant to be the primary point of interaction between the company’s SAP knowledge base and the end users. The users are encouraged to approach, interact with, and seek out the Super User. Once the post go-live support period is over, the users are expected to switch gears and access the support system. This can be a difficult change, as the human factor is too important to disregard. To expect the user community to suddenly switch from a helpful, knowledgeable person to a computer system can be an unreasonable expectation in many corporate cultures.
+
+In addition, automated documentation and training technologies require a significant amount of input to be effective. As stated above, the Super User is often in a prime position to contribute to this effort. This extra duty, however, takes them away from their anticipated or defined roles, often during a critical phase of the project.
+
+Future Trends and the Super User
+
+Social Networking and the Super User
+
+One alternative that is being explored by Company-Util is using technology similar to that of public social networking. The intent of these efforts is to compound the effectiveness of the Super User.
+
+This concept revolves around two different types of social networking interfaces:
+
+- A forum or posting interface, which requires end users to seek information.
+
+- A broadcast interface, similar to Twitter, where the Super User “sends” information out to be digested by the user community.
+
+The underlying concept is that both of these interfaces allow for faster, more concise communications between the Super User and the end users they support. Tips, tricks, FAQ’s, and other knowledge can be accessed by the entire company using these types of systems.
+
+Both of these interfaces enable the same basic functionality as the document management system requirements noted in various sections above.
+
+The addition of a new system is easier to justify for large scale or global projects, as the need for automated communication to/from multiple sites justifies the expense. The usage of social media technologies to supplement competency or training centers will most likely be considered for future rollouts by all three of the companies interviewed. These technologies can even be hosted if necessary. This plan provides the ability to budget for per-project cost and saves time over attempting to approve a company-wide installation. Where already implemented, this model required less direct involvement of IT. Additionally, the hosted solution was said to remove the burden of IT bureaucracy (red tape).
+
+For smaller projects or those not requiring tight control and approvals over documentation, a simple wiki system may work. 
+
+One common concern was the control of the content. Language difference may mean creating multiple systems independently each time there is an expansion or upgrade. However, when the company is ready to move to an enterprise wide system there will exist a catalog of content in place, provided communication between projects remains active.
+
+Performance Monitoring and the Super User
+
+The participants relayed a concern that the human element, regarding the use of technology, is not taken seriously by management. So long as the technology works and contributes to profitability, change management is often viewed as a secondary priority. Balancing the reality of the ROI with needs of people on the ground can give rise to disputes.
+
+In order to prove the effectiveness of a Super User model, EPSS, LMS or any method of employee support, a means of measurement has to be implemented. Each of the companies interviewed relayed frustration with the lack of availability of this information. Other additional, add-on technologies, there is no known method that provides useful metrics to either the corporate office or the people on the ground.
+
+Where’s the value?
+
+In the survey, only 28.6% of respondents utilize a form of measuring satisfaction, competency, and proficiency in the SAP system, leaving 71.4% with nothing in place. Of those who do attempt to measure performance, 20.7% use a paper based survey system. Those who use certification, scientific means, or a combination make up the remaining 7.9%. 
+
+The Trend in Monitoring Tools
+
+This fairly new concept allows the Super User to focus on areas in the company that are struggling. Apparently, if the Super Users can identify where problems are occurring, they can utilize social networking tools to address the issues quickly. The resolution cycle is further enhanced by the ease of user feedback this model provides.
+
+What becomes important is balancing subjective and objective data when analyzing performance trends in various departments, business processes, or locations. Performance Monitoring allows for more broad approach thinking, and when coupled with the ability to see metrics for a process, user, or transaction code during a specific period of time.
+
+Performance Monitoring is becoming the new Super User radar. It is too early in the process to determine if the combination of the Super User, Social Networking interfaces, and Performance Monitoring will be the most powerful solution to date. However, survey results indicated a trend toward a combination of these solutions.
+
+section-0_1_3036d520b2494be6_64e
+
+Section Four: Conclusion
+
+The Super User Model, as quoted from one senior consultant, is “A model which has to work.” 
+
+One of the best ways to involve people with SAP, it is the most personal, and therefore more easily embraced by the human element. In order for it to work, proving its worth to the company, it must be valued both analytically and humanly. The balance between the two is paramount as the people involved are often extraordinary. Throughout the process, a consistent, ever improving system should be placed alongside these consistent, ever improving people. This hand-in-hand approach between the two should mean above-board involvement, and therefore superior use of a company’s SAP investment. Whether a small project or a major global rollout, the time Super Users give, the role they play, and support they provide are vital to the continued existence of a successful company.
+
+There is also an underlying urgency in making the model work. Companies are finding that their investments in technology designed to address human performance improvement simply are not being utilized.
+
+Lastly, social networking is invading the corporate world at a rapid pace. As the workforce becomes younger, employees are more attuned to this media and its methods of communication. Will on-line support systems be replaced by texting between users? Will tweets solve T-Code issues? Regardless of implementation of such applications, firms will have to seek individuals internally to administrate and guide this new functionality. ERP is not going away, and social networking is here to stay as well. The Super User may be the perfect candidate to integrate the two applications.
+
+section-0_1_9a165b574800c612_64f
+
+Table of Contents
+
+Summary
+
+Historical Background
+
+Section One: The Model
+
+Model Considerations
+
+Section Two: Implementation of the Model
+
+Where does a company begin?
+
+The Human Element
+
+The Analytical Element
+
+What is a Super User’s responsibility?
+
+Ratios
+
+Putting it all together
+
+1. Get them early
+
+2. Train them well
+
+3. Give them support
+
+Section Three: Sustaining the Model
+
+Fears
+
+Re-integrating the Super User
+
+Phase One: Documentation Management
+
+The Sustainers and the Trainers
+
+The role of the Super User and support systems
+
+Future Trends and the Super User
+
+Social Networking and the Super User
+
+Performance Monitoring and the Super User
+
+Where’s the value?
+
+The Trend in Monitoring Tools
+
+Section Four: Conclusion

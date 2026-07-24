@@ -1,0 +1,638 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB, DRM removed for personal use). -->
+Source file: Theosis_ The True Purpose of Human Life_nodrm.epub
+Title/Edition: Theosis: The True Purpose of Human Life; Archimandrite George of Grigoriou; 2006; owned copyright — personal use, do not distribute.
+
+c0
+
+c9
+
+THEOSIS
+
+THE TRUE PURPOSE OF HUMAN LIFE
+
+ARCHIMANDRITE GEORGE
+
+ABBOT OF THE HOLY MONASTERY
+
+OF ST. GREGORIOS ON MOUNT ATHOS
+
+cS
+
+The deifi cation as the purpose of man's life
+
+1st Edition 1992
+
+2nd Edition 1997
+
+3rd Edition 2001
+
+Theosis the true purpose of human life
+
+4th Edition 2006
+
+© 2006 HOLY MONASTERY OF SAINT GREGORIOS
+
+63087 MOUNT ATHOS - GREECE
+
+c18
+
+CONTENTS
+
+Translator’s Note
+
+Preface
+
+Theosis the true purpose of human life
+
+The Incarnation of God: The Cause of Man’s Theosis
+
+The Contribution of the Theotokos  to the Theosis of Man
+
+The Church: The Place of Man’s Theosis
+
+Theosis is possible through the uncreated energies of God
+
+Experiences of Theosis
+
+Failure of Many People to Reach Theosis
+
+Consequences of Guidance for Theosis
+
+Consequences of guidance that does not lead to Theosis
+
+GLOSSARY
+
+c1Y
+
+Translator’s Note
+
+The beauty of this book is its simplicity. In clearand simple terms it states the original purpose of the Christian life – namely Theosis.
+
+Its author Archimandrite George has been the Abbot of St. Gregorios Monastery since 1974. He is well known throughout the Orthodox world both as a theologian and spiritual father. He has written many books and articles on theology and the spiritual life. His works have been translated into many languages.
+
+The idea of Theosis will be unfamiliar to the Western mind, although it is not a new concept to Christianity. When Christ said, “Repent, for the Kingdom of Heaven is at hand,”[1] this is a call to a life of Theosis.
+
+Theosis is personal communion with God “face to face.”[2] To the Western mind, this idea may seem incomprehensible, even sacrilegious, but it derives unquestionably from Christ’s teachings. Jesus Christ was the fulfillment of the messianic dream of the Jewish race;[3] His mission to connect us with the Kingdom of God[4] – a Kingdom not of this world.[5] When Jesus said, “You are gods,”[6] “be perfect, just as your Father in Heaven is perfect,”[7] or “the righteous will shine like the sun in the Kingdom of their Father,”[8] this is to be taken literally. For those who are interested, further Biblical evidence for this can be found in Leviticus 11:44-45; 20:7-8; Deuteronomy 18:13; Psalms 82:1,6; Romans 6:22; 1 Corinthians 3:16-17; 2 Peter 1:2-4.
+
+The whole sacrificial tradition of Israel beginning with the sacrificial offering of Isaac reaches fulfillment in Jesus Christ. St. John the Baptist echoing Isaiah says, “Behold the Lamb of God who takes upon Himself the sins of the world.”[9] St. Paul has this in mind when he says, “If you are Christ’s, then you are descendants of Abraham, and heirs according to the promise,”[10] because “those who believe are children of Abraham.”[11] The name Israel, was given to Jacob by God as an expression of his fidelity. Later this name was inherited by his faithful descendants. This train of thought is expounded in the writings of St. Paul, where he blesses the Church as “the Israel of God;”[12] whilst elsewhere he wrestles with and is pained by his fellow Jews denial of their own Messiah, labeling them “Israel according to the flesh.”13
+
+That is why, the Church –“God’s very own People,”[13]– is also known as the “New Israel,” the “spiritual Israel,” striving to the Heavenly Kingdom. Those first
+
+Christians realised that the Kingdom of God was not simply equated with a Jewish state or a single people, but is intended for all humanity.[14] Through repentance we are all called to the true Exodus –to the New Jerusalem[15]– as Christ said, “Do not think that I am come to abolish the Law or the Prophets. I did not come to destroy but to fulfill.”[16]
+
+The Orthodox Church has retained this original message of Christ unchanged. It is for this reason that the Orthodox Church is both the “body of Christ” [17] and the “faithful bride”19 who has been true to her lover. It is this Sacred Tradition which guarantees our fidelity to Christ’s mission, and it is with this knowledge that He says “and lo, I am with you always, even to the end of the age.”[18]  Christ’s teachings could not be arrived at from the Holy Bible alone; we would simply project our modern concepts onto the early Church. Theosis stems from this tradition in which the early Church, Traditional Christianity, and Orthodoxy are identical.
+
+Traditional Christianity gave expression and definition to its Theology through the Church Synods; notable among these being the seven Œcumenical Synods, the Synod of St. Photios of 867 and the Palamite Synods of the fourteenth century. Please note: the Church Synods gave expression and definition to an existent Theology that was fully present within the Church from the day of Pentecost: the same Synods were also responsible for compiling and approving the various books which today are collectively known as the New Testament.
+
+The dual task of Orthodox Theology is to define and also to protect from human distortion the teachings of Jesus Christ. As can be seen, Theology is far more than knowledge about God acquired through academic study. Christianity is a living faith, founded on revelation born of the Holy Spirit,[19] giving those counted worthy intimate experience of the Triune God and of spiritual realities.[20] All attempts to understand Christ’s message from a purely rational standpoint will remain partial and incomplete.[21]
+
+We now live in an age where Western civilization lives and acts contrary to its Christian heritage, yet it still believes that it knows about Christ and His Church. The West fails to appreciate that over one thousand years separate it from this tradition. As a result, the West’s perception and understanding of Christ and His Church has become clouded. Although no longer perceived as such, Christ’s crowning achievement was also humanity’s crowning achievement, and this forms a watershed in human history. Christ’s message was so profound and revolutionary, that it can be said that humanity failed to grasp both its magnitude and its simplicity.
+
+As this book was originally intended for an Orthodox Greek-speaking audience, there was much common ground between the book and its audience. This translation has attempted to keep the simplicity present in the original, while continuing to convey the central message as faithfully as possible. Little explanation has been added to adapt it to Western thought, as this might misrepresent the true content of the book.
+
+In order to understand Christ’s central teaching, we will have to approach certain key words and concepts in a new way and not according to their current English usage. We will have to look at them with an open mind, as if seeing them for the first time. It will be necessary to go back to basics, and in this way see what Christ and the Way meant to the first Christians. Key biblical words such as “psyche,” “heart,” “repentance,” and “nous,” will have to be looked at as if we are seeing them for the first time. For this reason, it was decided to italicise key words and concepts when they first appear and to provide a glossary to define them.
+
+Theosis is the Pearl of Great Price alluded to by Christ.[22] It can become a present reality for those who are willing to tread the path, and so it is not exclusively an after-death experience. With Theosis death is transcended.[23][24] St. Paul alludes to this when he says, “it is no longer I who live, but Christ who lives in me.”[25] Again, while being stoned to death, St. Stephen the first martyr offered himself up to Christ and prayed to God for his persecutors to be forgiven.[26] The Easter chant, , “Christ is Risen from the dead, trampling down death, and bestowing life to those in the tombs” also bears witness to this.
+
+Christianity is victory over death. So may this small book help us all to strive for that one thing needful, that One thing which cannot be taken from us.
+
+c2X
+
+Preface
+
+It is very daring for someone to talk about Theosis without first having tasted it. But we have dared what is beyond our power because we have faith in the mercy of our great God and Saviour Jesus Christ.
+
+This is done so as not to hide from our Christian brothers the highest and ultimate purpose of our life; that for which we were created.
+
+This is done so that it will become clear that the only truly Orthodox form of pastoral guidance is that which is intended to lead to Theosis, and is not, as in Western Christianity, aimed at a moral perfection for man which does not depend on God’s Grace.
+
+This is done so that all may desire what is best and struggle for the highest. This is the only thing able to quench the depth of the psyche’s thirst for the Absolute, the Triune God.
+
+This is done so that we will overflow with gratitude towards our Maker and Creator for His great gift to us, Theosis by Grace.
+
+This is done so that we realise the irreplaceability of our Holy Church as the only community of Theosis on earth.
+
+This is done so that the magnificence and truth of our Orthodox Faith should be revealed as the only faith that teaches and provides Theosis to its members.
+
+This is done so that our psyches should be consoled, for regardless of the degree to which they have been poisoned and darkened by sin, they yearn for the light of Christ’s face.
+
+Merciful Lord, in Your boundless love, be pleased to make us worthy to enter the path of Theosis before we leave the present temporal world.
+
+Merciful Lord, in their quest for Theosis, guide those of our Orthodox brethren who do not rejoice because they are unaware of the magnificence of the fact that they are “called to be gods.”
+
+Merciful Lord, also guide the steps of heterodox Christians to become aware of Your Truth, so that they are not left outside Your Bridechamber, deprived of the Grace of Theosis.
+
+Merciful Lord, have mercy on us and on Your world! Amen.
+
+The Abbot of the Holy Monastery of St. Gregorios of the Holy Mountain Athos
+
+† Archimandrite George
+
+March 1997
+
+Note:
+
+The text that follows is based on an elaboration of talks which I have given at different times in various Greek cities at the request of the local Most Reverend Metropolitans.
+
+The style of the work is dependent on the fact that it is based on taped extracts of these talks.
+
+It should also be mentioned that I developed this subject when I would talk somewhere for the first time, since I consider this question as the most important for the spiritual life.
+
+c3Y
+
+Theosis the true purpose of human life
+
+The question of the destiny of our lives is very serious, as it concerns the most important question for man:* for what purpose are we placed on earth? If man takes a correct stance on this issue; if he finds his true destiny; then he will be able to take a correct viewpoint in relation to particular questions that arise in our daily life; in our relationships with our fellow men; in our studies, profession, marriage and the bearing and upbringing of children. If he does not relate correctly to this basic issue, then he will also fail in life’s particular purposes, for what meaning can a particular purpose have if human life as a whole has no meaning?
+
+Our life’s purpose is declared in the first chapter of the Holy Bible, when the Holy author tells us that God created man “in His image and likeness.” From this we discover the great love the Triune God has for man: He does not wish him simply to be a being with certain gifts, certain qualities, a certain superiority over the rest of creation, He wishes him to be a god by Grace.
+
+Externally, man seems to exist in a purely biological way, like the other living beings, the animals. Of course, he is an animal, but “an animal... which is in the process of Theosis* through its inclination towards God,”[27] as St. Gregory the Theologian says in his characteristic way. He is the only being that is distinguished from all else in creation, because he is the only one which can become a god.
+
+The phrase “in His image” describes the gifts which God gave only to man in order to complete him as an icon of God, and not to any of His other creatures. These gifts are: a logosrelated nous,* conscience, and individual sovereignty, i.e. freedom, creativity, eros, and the yearning for the absolute and for God, personal self-awareness, and anything else which puts man above all other living beings in creation and makes him a man and an individual. That is to say, everything that makes man a person. These are the charismata by which we are formed “in His image.”
+
+* See glossary
+
+Having been endowed “in His image,” man is called upon to be completed “in His likeness.” This is Theosis. The Creator, God by nature, calls man to become a god by Grace.
+
+The charismata that form us “in His image” were given to man by God in order that he may reach very high; so that through them he may attain a likeness to his God and Creator; so that he may have not only an external, moral relationship, but a personal union with his Creator.
+
+Perhaps it is very daring for us even to say or think that our life’s purpose is to become gods by Grace. However, neither the Holy Bible nor the Church Fathers have hidden this from us.
+
+Unfortunately, ignorance not only exists in people outside the Church, but also in many within the Church, because they assume that the purpose of our life is, at best, simply moral improvement to become better men; when we are told by the Gospel, by the Tradition of the Church, and by the holy Fathers, that the purpose of our life is not just that man should become better than he is, more moral, more just, more self-controlled, more mindful; all these must happen, but none of them are the great purpose, the ultimate purpose for which our Maker and Creator moulded man. What is this purpose? Theosis – for man to be united with God, not in an external or a sentimental manner but ontologically, in a real way. Man is placed so high in Orthodox anthropology that if we compare that with the anthropologies of all the philosophies or social and psychological systems we will very easily find out how poor these are, how little they correspond to man’s great yearning for something very great and true in his life.
+
+Since man is “called to be a god” (i.e. was created to become a god), as long as he does not find himself on the path of Theosis he feels an emptiness within himself... he feels that something is not going right, so he is not joyful even when he is trying to cover the emptiness with other activities. He may numb himself, create a glamorous world, or cage and imprison himself within this world, yet at the same time he remains poor, small, limited. He may organise his life in such a way that he is almost never at peace, never alone with himself. Surrounded by noise, tension, television, radio, continuous information about this and that, he may seek to forget with drugs; not to think, not to worry, not to remember that he is on the wrong path and has strayed from his purpose.
+
+In the end, wretched contemporary man finds no rest until he finds that “something else,” the highest thing; the thing which actually exists in his life which is truly beautiful and creative.
+
+Can man unite with God? Can he commune with Him? Can he become a god by Grace?
+
+c4P
+
+The Incarnation of God:
+The Cause of Man’s Theosis
+
+The Church Fathers say that God became man in order to make man a god. If God had not taken flesh, man would not be able to achieve Theosis.
+
+In the years before Christ, many wise and virtuous people had appeared. For example, the ancient Greeks had reached quite high standards of philosophy about the good and about God. Their philosophy, in fact, contained seeds of the truth, the so-called “spermaticos logos.” Moreover, they were very religious people, but of course they did not know the true God; they were idolaters, yet very pious and god-fearing people. They were not atheists, as certain ill-informed contemporaries of ours represent them; those who do not know enough about these things. For this reason, by attempting to remove its faith in God from the psyche* of our devout people even without their consent, educators, teachers, politicians and civil governors act in a way inconsistent to the memory of the Greek race, and so they commit “hybris”[28] in the ancient meaning of the word. In essence, they attempt to de-hellenise our people, because the Tradition of the Greeks (throughout our ancient, recent and modern history) is a Tradition of piety and respect for God. All the worldwide cultural contribution of Hellenism was and is based on this piety and respect for God.
+
+In the philosophy of the ancient Greeks we can perceive a certain yearning for the unknown God... for the experience of God. They were faithful and devout, but they did not have the true and completed knowledge of God, as they still lacked communion with Him, so that Theosis was not possible for them.
+
+In the Old Testament, we also find many just and virtuous people, but the full union with God, Theosis, only becomes possible –is only achieved– with the incarnation of the Divine Logos.*
+
+This is the purpose of the incarnation of God. If the purpose of man’s life was simply to become morally better, there would be no need for Christ to come into the world, or for all these events of divine Providence to happen; for the incarnation of God; the cross, the death and resurrection of the Lord, and all that we Christians believe to have happened through Christ. The human race could have been taught to become morally better by the philosophers, by the righteous men and teachers, or by the prophets.
+
+We know that Adam and Eve were beguiled by the devil and did not want to collaborate with God; they desired to become gods not through humility, obedience, or love; but through their own power, their own willfulness–egotistically and autonomously. That is to say that the essence of the fall is egotism. Thus, by adopting egotism and self-assertion they separated themselves from God, and instead of attaining Theosis, they attained exactly the opposite: spiritual death.
+
+As the Church Fathers say, God is life. So whoever separates himself from God separates himself from life. Therefore, death and spiritual necrosis (i.e. physical and spiritual death) are the outcome of the disobedience of the first-created.
+
+Falling away from Theosis We all know the consequences of the fall. Separation from God threw man into carnal, bestial and demonic life. The brilliant creation of God fell seriously ill, almost to death. What had been made “in His image” was darkened. Since the fall, man no longer has the qualifications he needs to proceed to Theosis, as he had before he sinned. In this situation of grave illness, almost lifeless, he can no longer re-orient himself towards God. Thus there is a need for a new root for humanity; a need for a new man, who will be healthy and able to redirect the freedom of man towards God.
+
+This new root, the new man, is the God-Man, Jesus Christ, the Son and Logos of God, who incarnates to become the new root, the new beginning, the new leaven of humanity.
+
+As St. Gregory Nazianzen, the Theologian, says in his theological writings, with the incarnation of the Logos, a second communion between God and humanity is realised. The first communion was in Paradise. This was broken. Man was separated from God. The all-good God then provided for another, a second communion which can no longer be severed, a union of God and men. This second communion of God and men happens in the person of Christ.
+
+The God-Man Christ, the Son and Logos of God the Father, has two perfect natures: divine and human. These two perfect natures are joined “without change, without confusion, without separation, and without division” in the one person of Christ, according to the famous definition of the Fourth Holy Œcumenical Synod at Chalcedon, given under the guidance of the Holy Spirit. To summarise, this definition forms the whole theological armoury of our Orthodox Church against Christological heresies of all kinds throughout all ages. So we have one Christ with two natures, divine and human.
+
+Now, because Christ is the eternal God-Man through the hypostatic union of the two natures in the person of Christ, human nature is irrevocably unified with the divine nature because Christ is eternally God-Man.
+
+As the God-Man, He ascended to heaven.
+
+As the God-Man, He sits on the right hand of the Father.
+
+As the God-Man, He will judge the world at the Second Coming.
+
+Consequently, human nature is now enthroned in the bosom of the Holy Trinity. No longer can anything cut human nature off from God. Now, after the incarnation of the Lord –no matter how much we as men sin,* no matter how much we separate ourselves from God– if, through repentance,* we wish to unite again with God, we can succeed. We can unite with Him and so become gods by Grace.
+
+c5F
+
+The Contribution of the Theotokos 
+to the Theosis of Man
+
+So, the Lord Jesus gives us this possibility to unite with God and return to the primary purpose which God ordained for man. Therefore He is described in Holy Scripture as the way, the door, the good shepherd, the life, the resurrection, the light. He is the new Adam who rights the wrong of the first Adam. The first Adam separated us from God with his disobedience and his egotism. With His love and His obedience to the Father, obedience unto death, to “death on the cross,” the second Adam, Christ, brings us back once more to God. Once again He orients our freedom towards God, so that by offering Him our freedom, we unite with Him.
+
+The work of the new Adam pre-supposes the work of the new Eve, the Panagia* who put right the wrong done by the old Eve. Eve drove Adam to disobedience. The new Eve, the Panagia, contributes to the incarnation of the new Adam who will guide the human race towards obedience to God. Therefore, as the first human person who achieved Theosis –in an exceptional and, of course unrepeatable, way– the Lady Theotokos* played a role in our salvation which was not only fundamental, but both necessary and irreplaceable.
+
+According to St. Nicholas Cabasilas, the great 14th century theologian,* if the Panagia, in her obedience, had not offered her freedom to God –had she not said “yes” to God– God would not have been able to incarnate. Once God had given freedom to man, He would not have been able to violate His gift, so He would not have been able to incarnate if there had not been such a pure, all-holy, immaculate psyche as the Theotokos, who would offer her freedom, her will, all of herself totally to God so as to draw Him towards herself and towards us.
+
+We owe so much to Panagia. This is why our Church honours and venerates the Theotokos so much, so that St. Gregory Palamas, summarising Patristic theology, says that our Panagia holds the second place after the Holy Trinity; that she is god after God, the boundary between the created and the uncreated. “She leads those being saved,” according to another fine expression by a theologian of our Church.  Recently St. Nicodemus of the Holy Mountain, the steadfast luminary and teacher of the Church, pointed out that the angelic ranks themselves are illumined by the light they receive from the Panagia.
+
+Therefore, she is praised by our Church as “more honourable than the Cherubim and incomparably more glorious than the Seraphim.”
+
+The incarnation of the Logos and the Theosis of man are the great mystery* of our Faith and Theology.
+
+Our Orthodox Church lives this every day with its Mysteries, with its hymns, with its icons, with its whole life. Even the architecture of an Orthodox Church witnesses to this. The great dome of the churches, on which the Pantocrator is painted, symbolises the descent of Heaven to earth; it tells us that the Lord “bent down the Heavens and descended.” The Evangelist St. John writes that God became man “and dwelt among us” (John 1:14).
+
+So, we represent the Theotokos in the apse of the altar to show that God comes to earth and to men through her, because He became man through the Theotokos.  She is “the bridge by which God descended,” and again, “she who conducts those of earth to Heaven,” the Platytera of the Heavens, the space of the uncontainable, who contained the uncontainable God within herself for our salvation.
+
+To continue, our Churches show deified men; those who became gods by Grace because God became man. In our Orthodox Churches we can picture not only the incarnate God, Christ, and His immaculate Mother the Lady Theotokos, but we also show the saints around and below the Pantocrator; on all the walls of the Church we paint the results of God’s incarnation: sainted and deified men.
+
+Thus, when we enter an Orthodox Church and see the beautiful holy icons, this is an immediate experience through which we learn what God’s plan is for man; what is the purpose of our life.
+
+Everything in the Church talks to us about the incarnation of God and the Theosis of man.
+
+c61
+
+The Church: The Place of Man’s Theosis
+
+Those who wish to unite with Jesus Christ, and, through Christ, with God the Father, recognise that this union is realised in the body of Christ, which is our Holy Orthodox Church. Of course, this Union is not with the Divine essence,* but with the deified human nature of Christ. But this union with Christ is not external, nor is it simply moral.
+
+We are not followers of Christ in the way that one might perhaps follow a philosopher or a teacher. We are members of Christ’s body, the Church. The Church is the body of Christ, the real body, not a moral one, as some mistaken theologians have written, not having looked deeply enough into the spirit of the Holy Church. Despite our unworthiness and sinfulness, Christ takes us Christians and incorporates us into His body. He makes us members of Himself. We become real members of Christ, not just followers of a code of morality. As the Apostle Paul puts it, “We are members of His body, of His flesh, and of His bones” (Ephesians 5:30).
+
+Certainly, depending on the spiritual state of Christians, they are sometimes living members of Christ’s body, at other times they are dead. Even as dead members, we still do not cease to be members of Christ’s body. For example, someone who is baptised has become a member of Christ’s body. If he does not confess, does not take Communion, does not live a spiritual life, he is a dead member of Christ’s body, but when he repents, he immediately receives divine life. This permeates him and he becomes a living member of Christ’s body. Someone like this does not need to be re-baptised. Someone who has never been baptised, however, is not a member of Christ’s body even if he lives a moral life according to human standards. In order to become a member of Christ’s body, in order to be incorporated into Christ, he needs to be baptised.
+
+Since we are members of Christ’s body, Christ’s life is offered to us and becomes our life. So we are enlivened, saved, and deified, yet we could not be deified if Christ did not make us members of His body; we could not be saved if the Holy Mysteries of the Church did not exist. These make us one body with Christ, and as, according to the Church Fathers, we share the same body and the same blood as Christ... we are in fact one body and one blood with Christ.
+
+Theosis and the Church
+
+What a great blessing that we commune through the immaculate Mysteries! Christ becomes ours; the life of Christ becomes ours; His blood becomes our blood. St. John Chrysostom says that God has nothing more to give man than what he gives him in Holy Communion. Man cannot ask anything more of God than what he receives from Christ in Holy Communion.
+
+So, being baptised, chrismated, confessing, we commune through the Body and Blood of the Lord, and we too become gods by Grace; we unite with God; we are no longer strangers, for we have become familiar with God.
+
+Inside the Church in which we unite with God, we live this new reality which Christ brought to the world: the new creation. This is the life of the Church, of Christ, which becomes ours as a gift from the Holy Spirit.
+
+Everything in the Church leads to Theosis; the Holy Liturgy, the Mysteries, divine Worship, the Gospel sermon, the fasting; all of these lead to this one thing. The Church alone is the place of Theosis.
+
+The Church is not a social, cultural, or historical organisation, and does not resemble other organisations in the world. It is not like the different establishments of the world. The world has fine institutions, fine organisations, fine establishments and other fine things, but our Orthodox Church is the unrepeatable, the sole place for the communion of God with man, for the Theosis of man. Only within the Church can man become a god, and nowhere else: not in universities; not in social services; not in any of the fine and good things that the world has. None of these are able to offer what the Church offers, however good they may be.
+
+No matter how much worldly institutions and systems progress, they can never replace the Church.
+
+It is possible that we weak and sinful men go through crises and difficulties from time to time within the Church. It is possible for scandals to happen in the bosom of the Church. All these happen in the Church because we are as yet on the way to Theosis, and it is very natural that human weaknesses still exist. We are becoming gods, but not yet. So no matter how often these things occur, we will not leave the Church, because within the Church we have the only possibility to unite with God.
+
+For example, when we go to Church to attend the service, we may meet people there who do not pay attention to the holy service; who hold conversations and distract our attention. Then along comes a seemingly reasonable thought which says: “What do you gain by coming to Church? Might it not be better to sit at home and pray in greater peace and comfort?”
+
+However, we must contradict this evil thought with discretion: “Yes, perhaps I will have more outward peace at home, but I will not have God’s Grace to deify and sanctify me. I will not have Christ, Who is present in His Church. I will not have His Holy Body and His precious Blood, which are on the holy Altar in His holy Church. I will not partake in the Last Supper of the Holy Liturgy. I will be cut off from my fellow brethren in Christ, together with whom we form Christ’s body.”
+
+So, whatever may happen, we will not leave the Church, because only within it do we find the path to Theosis.
+
+c6S
+
+Theosis is possible through the uncreated energies of God
+
+According to the teachings of the Holy Bible and the Fathers of the Church, man is able to achieve Theosis because within the Orthodox Church of Christ the Grace of God is uncreated. God is not only essence, as the West thinks; He is also energy. If God was only essence, we could not unite with Him, could not commune with Him, because the essence of God is awesome and unapproachable for man, as was written: “Never will man see My face and live” (Exodus 33:20).
+
+Let us give a relevant example from things human. If we grasp a bare electric wire, we will die. However, if we connect a lamp to the same wire, we are illuminated. We see, enjoy, and are assisted by, the energy of electric current, but we are not able to grasp its essence. Let us say that something similar happens with the uncreated energy of God.
+
+If we were able to unite with the essence of God, we would become gods in essence. Then everything would become a god, and there would be confusion so that, essentially, nothing would be a god. In a few words, this is what they believe in the Oriental religions, e.g. in Hinduism, where the god is not a personal existence but an indistinct power dispersed through all the world, in men, in animals, and in objects (Pantheism).
+
+Again, if God had only the divine essence –of which we cannot partake– and did not have His energies, He would remain a self-sufficient god, closed within himself and unable to communicate with his creatures.
+
+God, according to the Orthodox theological view, is One in a Trinity and a Trinity in One. As St. Maximus the Confessor, St. Dionysius the Areopagite, and other holy Fathers repeatedly say, God is filled with a divine eros, a divine love for His creatures. Because of this infinite and ecstatic love of His, He comes out of Himself and seeks to unite with them. This is expressed and realised as His energy, or better, His energies.
+
+With these, His uncreated energies, God created the world and continues to preserve it. He gives essence and substance to our world through His essence-creating energies. He is present in nature and preserves the universe with His preserving energies; He illuminates man with His illuminating energies; He sanctifies him with His sanctifying energies. Finally, He deifies him with His deifying energies. Thus, through his uncreated energies, holy God enters nature, the world, history, and human life.
+
+The energies of God are divine energies. They too are God, but without being His essence. They are God, and therefore they can deify man. If the energies of God were not divine and uncreated, they would not be God and so they would be unable to deify us, to unite us with God. There would be an unbridgeable distance between God and men. But as God has the divine energies, and unites with us by these energies, we are able to commune with Him and to unite with His Grace without becoming identical with God, as would happen if we united with His essence.
+
+So we unite with God through His uncreated energies, and not through His essence. This is the mystery of our Orthodox faith and life.
+
+Western heretics cannot accept this. Being rationalists, they do not discern between the essence; and the energy of God, so they say that they cannot speak about man’s Theosis because God is only essence, for on this basis, how can man be deified when they do not accept that the divine energies are uncreated, but regard them as created? How can something created deify man, i.e. how can something outside God deify man?
+
+In order not to fall into pantheism, they do not talk about Theosis at all. What then, according to them, remains as the purpose of human life? Simply moral improvement. If man cannot be deified with divine Grace and divine energies, what purpose does his life have? Only that he becomes morally better. But moral perfection is not enough for man. It is not enough for us simply to become better than before, simply to perform moral deeds. We have as our final aim to unite with holy God Himself. This is the purpose of the creation of the universe. This is what we desire. This is our joy, our happiness, and our fulfillment.
+
+The psyche of man, who is created in the image and likeness of God, yearns for God and desires union with Him. No matter how moral, how good man may be, no matter how many good deeds he may perform, if he does not find God, if he does not unite with Him, he finds no rest. For holy God placed within him this holy thirst, the divine eros, the desire for union with Him, for Theosis, so he has in himself the erotic power, which he receives from his Creator, in order to love truly, strongly, selflessly... just as his holy Creator falls in love with His world, with His creatures. This is so that with this holy erotic impetus and loving power, he falls in love with God. If man did not have the image of God in himself, he would not be able to seek its prototype. Each of us is an image of God, and God is our prototype. The image seeks the prototype, and only when it finds it does it find rest.
+
+St. Gregory Palamas and the energies of God
+
+In the fourteenth century, there was a great upheaval in the Church which was provoked by a Western monk, Barlaam. He heard that Athonite monks talked about Theosis. He was informed that, after much struggle, cleansing of the passions, and much prayer, they became worthy to unite with God, to have experience of God, to see God. He heard that they saw the uncreated light which the holy Apostles had seen during the Transfiguration of our Saviour Christ on Mount Tabor.
+
+But Barlaam, having the Western, heretical, rationalistic spirit, was unable to perceive the authenticity of these divine experiences of the humble monks, so he began to accuse the Athonite monks as though it was they who were deluded, heretical; as though they were the idolaters. Because he knew nothing about the difference between the essence and the uncreated energy of God, he said that it is impossible for someone to see the Grace of God.
+
+Then, God’s Grace revealed a great and enlightened teacher of our Church, the Athonite St. Gregory Palamas, Archbishop of Thessaloniki. With much wisdom and enlightenment from God, but also from his personal experience, he said and wrote much which taught, in agreement with the holy Scriptures and the Holy Tradition of the Church, that the light of God’s Grace is uncreated; that it is a divine energy, so that in fact deified men see this light as the ultimate, the highest experience of Theosis; and they are seen within this light of God. This is the glory of God, His splendour, the light of Mount Tabor, the light of Christ’s Resurrection and of Pentecost, and the bright cloud of the Old Testament. It is the real uncreated light of God, and not symbolic, as Barlaam and others who thought like him believed in their delusion.
+
+To continue, in three great Synods at Constantinople the whole Church justified St. Gregory Palamas, declaring that life in Christ is not simply the moral edification of man, but his Theosis, and that this means participation in God’s glory, a vision of God, of His Grace and His uncreated light.
+
+We owe great gratitude to St. Gregory Palamas because, with the illumination he received from God, with his experience and his theology, he expressed the eternal experience of the Church, and so gave us the teaching concerning the Theosis of man. A Christian is not a Christian simply because he is able to talk about God. He is a Christian because he is able to have experience of God. And just as, when you really love someone and converse with him, you feel his presence, and you enjoy his presence, so it happens in man’s communion with God: there exists not a simple external relationship, but a mystical union of God and man in the Holy Spirit.
+
+Until now, Westerners have considered that divine Grace, or the energy of God, is something created. Unfortunately, this is one of the many differences which must be seriously taken into consideration in theological dialogues with the Roman Catholics. It is not only the filioque, the primacy of power, and the “infallibility” of the Pope which are basic differences between the Orthodox Church and the Papists. It is also the above. If the Roman Catholics do not accept that the Grace of God is uncreated, we cannot unite with them even if they accept all the other points. For who is able to effect Theosis if divine Grace is a creation and not an uncreated energy of the All-Holy Spirit?
+
+c7J
+
+Qualifications for Theosis
+
+The holy Fathers certainly say that within the Church we can attain Theosis. But at the same time they say Theosis is a gift from God, it is not something we can attain on our own. Of course, we must desire, struggle, and prepare ourselves so that we are worthy, capable, and receptive enough to accept and guard this great gift from God, since God does not wish to do anything to us without our freedom, but at the same time, Theosis is a gift of God; so therefore the holy Fathers say, on the one hand, that we undergo Theosis, and on the other hand, that God acts in Theosis.
+
+From this we discern certain qualifications that are necessary on the path of man to Theosis. These are:
+
+1) Humility
+
+According to the holy Fathers, the first necessary qualification is humility. Without blessed humility, man cannot be put on the right course for Theosis, cannot accept the divine Grace and so unite with God. Simply to acknowledge that Theosis is the purpose of our life demands humility, because without humility, how will you acknowledge that the purpose of your life is outside yourself; that it is in God?
+
+So long as man lives egocentrically, anthropocentrically, autonomously, he places himself at the centre and purpose of his own life. He believes that he can be perfected by his own efforts; defined by his own efforts; deified by his own efforts. This is the spirit of  contemporary civilisation, contemporary philosophy, contemporary politics: to create an even better world, even more just, but to do this autonomously, by oneself; to create a world which will have man at its centre with no reference to God; with no acknowledgement that God is the source of all good. This is the fault that Adam committed, believing that, with only his own powers, he could become God, could complete himself. The fault of Adam is one that all humanistic creeds make throughout all the ages. They do not consider that communion with God is indispensable for the completion of man.
+
+Everything Orthodox is theanthropically centred; its centre is the God-Man Christ. Everything that is not Orthodox has this common denominator: its centre is man, whether it is Protestantism, Papism, Freemasonry, Millenarianism (Jehovah’s Witness), atheism, or whatever else is outside Orthodoxy. For us, the centre is the God-Man Christ. This means it is easy for someone to become a heretic, a Millenarianist (Jehovah’s Witness), a Mason or whatever else, but it is difficult to become an Orthodox Christian. To become an Orthodox Christian, you must first accept that the centre of the world is not yourself but Christ.
+
+Thus, the beginning of the path towards Theosis is humility, i.e. that we acknowledge that the purpose of our life is outside us; that it is with our Father, our Maker and Creator.
+
+Humility is needed to see that we are sick, that we are full of weaknesses and passions.
+
+Again, to persist on this path, someone who begins the path of Theosis must have constant humility, for if he accepts the thought that he manages perfectly well just by using his own powers, then pride enters him; he loses what he has gained and must start again from the beginning; to become humble, to see his weakness, his human sickness, and learn not to rely on himself. In order to find himself continuously on the path of Theosis, he needs to depend on the Grace of God.
+
+c82
+
+Therefore, in the lives of the saints, their great humility impresses us. While they were near God, they shone within the light of God; they were miracle-workers; they gave off myrrh; yet at the same time they believed about themselves that they were very lowly, very far from God, that they were the worst of men. It was this humility of theirs that made them gods by Grace.
+
+2) Asceticism
+
+The holy Fathers also tell us that Theosis has stages. It begins from the lowest and progresses to the highest. Once we have humility, in order to become cleansed from the passions we start our asceticism by applying the holy commandments of Christ, beginning our daily struggle in Christ with repentance and much patience. The holy Fathers say that within His commandments God himself lies hidden. When a Christian observes them out of love and faith in Christ, then he unites with Him.
+
+According to the holy Fathers, this first stage of Theosis is also called “praxis.” This is practical guidance given at the start of the path Naturally, this is not at all easy, because the struggle to uproot the passions from within us is great. Much effort is required, so that gradually our inner wasteland is cleansed from the thorns and stones of the passions so that it can be cultivated spiritually, and so that the seed of God’s logos may fall and bear fruit. Great and continuous effort towards ourselves is necessary for all this. Therefore the Lord said that “the Kingdom of God* suffers violence, so the violent seize it” (Matthew 11:12). And again, the holy Fathers teach us: “give blood and receive Spirit,” i.e. you cannot receive the Holy Spirit if you do not give the blood of your heart* to the struggle to cleanse yourself from the passions, in order to repent really and in depth, and in order to acquire the virtues.
+
+All the virtues are aspects of the one great virtue, the virtue of love. When a Christian acquires love, he has all the virtues. It is love that expels the prime cause of all the evils and all the passions from the psyche of man. This cause, according to the holy Fathers, is selfishness. All the evils within us spring from selfishness, which is a diseased love for one’s own self. This is the reason why our Church has asceticism. Without asceticism, there is no spiritual life, no struggle, and no progress. We obey, fast, keep vigil, labour with prostrations, and stand upright, all so that we may be cleansed of our passions. If the Orthodox Church ceases to be ascetical, it ceases to be Orthodox, because then it ceases to help man rid himself of his passions in order to become gods by Grace.
+
+The Church Fathers developed a great and profound anthropological teaching on the psyche and the passions of man. According to them, in the psyche you can distinguish intelligent and passible parts. The passible, again, comprises passionate and desiring parts. The intelligent part contains the reasoning powers of the psyche; the thoughts and cognitive powers. The passionate parts are the positive and negative emotions; love and hate. The desiring part contains the good desires of the virtues and the bad desires for pleasure; for enjoyment, avarice, gluttony, the worship of the flesh and the carnal passions. Unless these three parts of the psyche, the intelligent, the passionate, and the desiring, are cleansed, man cannot receive the Grace of God within himself, and cannot be deified. The intelligent part is cleansed by watchfulness, which is the continuous guarding of the nous from thoughts, keeping the good thoughts and rejecting the bad. The passionate part, again, is cleansed by love. Finally, the desiring part is cleansed by self-control. All these parts are both cleansed and sanctified by prayer.
+
+3) The Holy Mysteries and Prayer
+
+Christ installs Himself in the heart of man through the Holy Mysteries: Holy Baptism, Chrismation, Holy Confession and the Divine Eucharist. Those Orthodox Christians who are in communion with Christ have God and His Grace within them, in their hearts, because they have been baptised, chrismated, have confessed and have received Holy Communion.
+
+The passions cover Divine Grace as ashes bury a spark. Through asceticism and prayer, the heart is cleansed of the passions, the spark of Divine Grace is rekindled, and the faithful Christian feels Christ in his heart; the centre of his existence.
+
+Every prayer of the Church helps to cleanse the heart, but the so-called prayer of a singlephrase, also known as noetic prayer or prayer of the heart, is particularly helpful: “Lord Jesus Christ, have mercy on me, a sinner.” This prayer, which has always been handed down on the Holy Mountain, has the following advantage: because it is only one sentence it helps us to concentrate our nous more easily. Concentrating our nous, we immerse it in our heart, and then pay attention to make sure it is not busy there with other things and ideas, good or bad; that it is busy only with God.
+
+The practice in this prayer of the heart, which with God’s Grace may in time become continuous, is a whole science, a holy art which the Saints of our Faith describe in detail in their holy writings, and also in a large collection of Patristic texts called the “Philokalia.”
+
+This prayer helps and gladdens man, and when the Christian progresses in this prayer and at the same time his life follows the holy commandments of Christ and His Church, then he is worthy to receive the experience of Divine Grace. He starts to taste the sweetness of communion with God, to know from experience “O taste and see that the Lord is good” (Psalm 34:8). For us Orthodox, God is not an idea, something that we think about, that we discuss or read about, but a Person with Whom we come into living and personal communion. It is something we live, and somebody from Whom we receive experience.
+
+Then we see what a great, unspeakable and inexpressible joy it is to have Christ within us and to be Orthodox Christians.
+
+Within their different concerns and every day occupations, it helps Christians who are in the world so much to find at least a few minutes of silence to exercise themselves in this prayer.
+
+Certainly, when fulfilled with humility and love, all labours and obligations directed to God sanctify us, but prayer is also required.
+
+In a quiet room (perhaps after some spiritual reading, or after lighting a small oil lamp in front of the icons and burning incense), as far as possible away from noise and activity, and after other considerations and thoughts have fallen quiet, they should sink their nous into the heart by saying the prayer: “Lord Jesus Christ, have mercy on me, a sinner.” How much peace and strength the psyches draw from the silence of God! How much this strengthens them during the day so that they can keep themselves peaceful without nervous tension and anxiety, but have all their forces united in harmony!
+
+Some people in other places seek silence of the psyche by using artificial means that are deluded and demonic, as in the so-called Oriental religions. They try to find a certain silence by using external exercises, meditation etc., to achieve a certain balance of psyche and body. The fault in all these is that properly speaking, even when man tries to forget the various considerations of the material world he does not have a dialogue with God, but only a monologue with himself, so that once again he ends up in anthropocentrism, and in this way he fails.
+
+c8S
+
+Experiences of Theosis
+
+Experiences of Theosis are proportional to the purity of man. The more someone is cleansed from the passions, the higher the experience he will receive from God; he sees God just as it was written: “Blessed are the pure in heart, for they shall see God” (Matthew 5:8).
+
+When man starts to repent, to confess, and to cry for his sins, he receives the first experiences of God’s Grace. Such experiences are first of all tears of repentance, which bring inexpressible joy to the psyche, and then the deep peace which follows this. For this reason, this mourning for our sins is called “gladsome mourning,” as the Lord also said in His Beatitudes: “Blessed are those who mourn, for they shall be comforted” (Matthew 5:4).
+
+Afterwards, we proceed to higher stages by divine illumination in which the nous is illumined and sees things, the world, and men with another grace.
+
+Then the Christian loves God more and new and different tears come, higher ones, which are tears of love for God, tears of divine eros. Then he no longer weeps for his sins, because he has the certainty that God has forgiven his sins. These new tears, which bring to the psyche a greater happiness, joy, and peace, are a higher experience of Theosis.
+
+Afterwards, man acquires dispassion: a life without deceitful passions and sinful weaknesses. Then he is peaceful and undisturbed from every external assault, having been delivered from pride, hatred, spitefulness, and desires of the flesh.
+
+This is the second stage of Theosis, called “theoria,” in the course of which man, having already been cleansed from the passions, is illumined by the Holy Spirit, is made luminous on the way to becoming deified. Theoria means vision. Theoria of God means a vision of God. To see God, he must be a deified man. Thus, theoria of God also means Theosis.
+
+Of course, when he has been thoroughly cleansed and has offered himself entirely to God, then he also receives the greatest experience of divine Grace available to men, which, according to the holy Fathers, is the vision of the uncreated light of God. Those who are very advanced in Theosis see this light, very few in each generation. God’s Saints see it and appear within it, and, incidentally, this is what the halos in the holy icons show us.
+
+For example, in the life of St. Basil the Great, it is said that when St. Basil was praying in his cell, those who were able to see him saw that he himself, and even his cell, were shining within this uncreated light of God, the light of divine Grace. In the lives of many of the New-Martyrs of our Faith we read that, after horrible tortures, when the Turks hung their bodies in the squares of the town to intimidate other Christians, on many nights a light appeared around them. It shone so clearly and brightly that, because in this way the truth of our Faith was so brilliantly revealed, the occupiers ordered them taken down so that they would not be ashamed before the Christians, who saw how God glorified His holy Martyrs.
+
+The Grace of Theosis preserves the bodies of the Saints incorruptible, and these are the holy relics which exude myrrh and work miracles. As St. Gregory Palamas says, the Grace of God, having first united with the psyches of the Saints, afterwards shrouds their holy bodies and fills these too with Grace: not only their bodies, but also their graves, their icons, and their Churches. Here is the reason why we venerate and kiss the icons, the holy relics, the graves, and the Churches of the Saints. Through Theosis, all these have something of the Grace of God which the Saint had in his psyche because of his union with God.
+
+Therefore, in the Church, we enjoy the Grace of Theosis not only with our psyche, but also with our body, because as the temple of the Holy Spirit Who dwells in it, and shares its struggles with the psyche, the body is surely glorified.
+
+The Grace springing from the holy Lord –the God-Man Christ– is poured out into our Panagia, into the Saints, and it also comes to those of us who are humble.
+
+It is certainly worth noting that the experiences of the Christian are not always experiences of Theosis and so spiritual. Many people have been deluded by demonic or psychological experiences. In order that there is no danger of delusion and no demonic influence, all of this must be humbly mentioned to the Spiritual Father, who, illumined by God, will discern whether these experiences are genuine or not, and he will give appropriate direction to the psyche who is confessing. Generally, our obedience to the Spiritual Father is one of the most basic points of our spiritual path. Through it we acquire an ecclesiastical spirit of discipleship in Christ by which the legitimacy of our exertion is confirmed in order to guide us towards union with God.
+
+Within the Church, a special domain of Theosis is monasticism, where the monks, having been sanctified, receive high experiences of union with God.
+
+Many of the monks who experience Theosis and sanctification also help the whole Church, for, as we Christians believe following the agelong holy Tradition of the Church, the struggle of the monks has a positive effect on the life of every struggling faithful in the world. In our Orthodoxy, the people of God have great reverence for Monasticism because of this.
+
+After all, in the Church we partake in the communion of the Saints, and experience the joy of union with Christ. By this we mean that within the Church we are not isolated members but a unity, a brotherhood, a fraternal community – not only among ourselves, but also with the Saints of God, those who are living on earth today and those who have passed away. Not even at death are Christians divided. Death is unable to separate Christians because they are all united in the resurrected body of Christ.
+
+Therefore, every Sunday and every time the Divine Liturgy is celebrated, we are all present in it together with all the Angels and all the Saints through all the ages. Even our departed relatives are present, if, of course, they are united with Christ. We are all there and communicate amongst ourselves mystically, not externally, but in Christ.
+
+This is evident during the Prothesis,* where the portions for the Panagia, the Saints, and the living and departed Christians, are all placed on the Holy Paten* around Christ the Lamb. After the sanctification of the Holy Oblation,* all these portions are immersed in the Blood of Christ.
+
+This is the great blessing of the Church, that we are her members and, as members of Christ’s body, can communicate not only with God but also between ourselves.
+
+The head of this body is Christ Himself. Life comes from the head to the body. The body certainly has living members, but it also has members which do not have the same vitality; not all the members have perfect health. This applies to the majority of us. Life comes from Christ Himself and his living members; the healthy blood also comes to other less healthy members, so that slowly, slowly, they also become healthy and strong. This is why we must be in the Church... in order to receive health and life, because outside the body of the Church there is no possibility that we can recover and become enlivened.
+
+All of this, of course, does not come about immediately. Throughout the whole of our life the Orthodox Christian must struggle, so that, slowly-slowly within the Church, with the Grace of God, with humility, repentance, prayer, and the holy Mysteries, he may be sanctified and deified.
+
+This, however, is the purpose of our lives; the great aim. It is not so important exactly how far we progress. Our struggle itself, which God blesses abundantly, has value both in the present age and in the age to come.
+
+c9K
+
+Failure of Many People to Reach Theosis
+
+So, while we have been called for this great purpose; to unite with God; to become Gods by Grace; and to enjoy this great blessing for which our Maker and Creator made us, we often live as if this great and noble aim does not exist for us. Because of this, our life is filled with failure.
+
+Our holy God moulded us for Theosis, so if we are not deified, our whole life is a failure.
+
+Let us mention some of the reasons for this:
+
+1) Attachment to the basic cares of life
+
+We may do good and beautiful things; we may study, have a profession, raise a family, acquire property or perform charitable deeds. When we see and use the world eucharistically, as a gift from God, then everything joins with Him and becomes a path to union with God. If, even then, we do not unite with God, we have failed, and it has all been useless.
+
+People usually fail because they are misled by the various secondary purposes of life. They do not place Theosis first and primary. They are absorbed by the beautiful things of the world and lose sight of the eternal. They give themselves completely to secondary purposes, and forget “the one thing necessary” (cf. Luke 10:42).
+
+Particularly today, people are constantly occupied, and we neglect our salvation for the sake of these everyday activities. Perhaps this is a scheme of the devil to delude even the chosen ones. For example, we now spend time learning, studying, reading; we have no time to pray, to go to Church, or to confess and take Holy Communion. Tomorrow we will have meetings and conferences, personal and social obligations; how will we find time for God? The day after tomorrow we will have weddings, family cares; it is impossible to engage in spiritual things. We, too, continually repeat to God: “I cannot come... I ask you to have me excused” (cf. Luke 14:19-20).
+
+So, all the beautiful and legitimate things lose their value.
+
+All these things have real and substantial value when undertaken with the Grace of God, for example, when we try to do everything for the glory of God; but only when we do not stop yearning and continue to pursue what is beyond studies, beyond profession, beyond family, beyond all the good and holy responsibilities and activities; only when we continue to desire Theosis as well, then all these find their real meaning in an eternal perspective. It is then that they are of benefit to us.
+
+The Lord said: “seek first the Kingdom of God, and all these things shall be added unto you” (Matthew 6:33). The Kingdom of God is Theosis, it is when we receive the Grace of the All-Holy Spirit. When divine Grace comes and reigns within man, that man is ruled by God, and through these deified men, the Grace of God comes to other men and to society. But as the Fathers teach, in the Lord’s Prayer, “Thy Kingdom come” means “the Grace of the Holy Spirit come.” When it arrives, it is this which deifies man.
+
+2) Moralism
+
+Unfortunately, the spirit of moralism which we mentioned earlier, i.e., basing the Christian life on moral improvement, has adversely influenced the piety and spirituality of Christians to a significant degree even here in our land. We often cease to pursue Theosis because of Western influences on our theology.
+
+Guidance that only aims for moral improvement is anthropocentric – it is centred on man, and in it, human effort dominates, and not the Grace of God. It then seems as if it is our own morality that saves us, and not the Grace of God. Life under these conditions does not give us genuine experiences of God, therefore the psyche is not truly satisfied because its thirst remains unquenched. This method of guidance has been tried, and it failed because it does not represent the genuine spirit of Christ’s Church. It is often responsible for atheism and for many people’s indifference towards the spiritual life, especially among the young.
+
+In our catechisms, sermons and everything said by parents, teachers, clergy and other workers of the Church, instead of talking about sterile improvements of mankind, let us educate Christians towards Theosis. This is the genuine spirit and experience of the Church. Otherwise, the virtues, regardless of how great they may be, do not, in fact, fulfill the purpose of the Christian life. They are simply ways and means which prepare us to accept Theosis, the Grace of the Holy Spirit, as St. Seraphim of Sarov taught so clearly.
+
+68
+
+3) Anthropocentric humanism
+
+This self-sufficient humanism is a socio-philosophical system which is separated from and made independent of God. It leads contemporary man to a civilization based on selfishness, and this has brought modern humanity to an impasse. In the name of the development and liberation of humanity it wishes to estrange us from our Orthodox Christian Faith.
+
+But is there any greater development possible for man than Theosis?
+
+cAE
+
+Consequences of Guidance for Theosis
+
+The guidance that our Orthodox Church offers, with the Holy Services, Patristic theology, Monasticism, is theanthropocentric guidance. Its centre is the God-Man Christ, and it leads to Theosis.
+
+This brings great joy into our life when we know what a great destiny we have, and what blessedness awaits us.
+
+To set our sights on Theosis sweetens the pain in every trial and all the worries of life.
+
+When we are struggling towards the aim of Theosis, that is to say, when we see one another as prospective gods, our attitude towards our fellow men changes for the better. How much deeper and more substantial will be the guidance which we will then give our children! In what a God-pleasing way a father and mother will then love and respect their children, feeling the responsibility and holy charge which they have towards them; how much will they then help them, by the Grace of God, to attain Theosis, the purpose for which they brought them into the world! And how will they naturally help them, if they themselves are not oriented towards that purpose, towards Theosis? How much more respect will we have for ourselves when we feel that we have been moulded for this great purpose; when we are without the egotism and pride which opposes God!
+
+Certainly, the Holy Fathers and great theologians of the Church say that it is in this way, by overcoming our self-love and the anthropocentric philosophy of egotism; that we become real people, true men. Then we will meet God with reverence and love, but also meet our fellow man with respect and true dignity not seeing him as a tool of pleasure and exploitation, but as an icon of God destined for Theosis.
+
+As long as we are closed within ourselves –within our ego– we are individuals but not persons. Once we exit from our closed individual existence and begin, in agreement with this guidance based on Theosis, with the Grace of God, but also with our own cooperation – to love, to offer ourselves all the more to Him and to our neighbour, we become true persons. This is to say that when our ego encounters the Thou of God, and the “you” of our brother, then we begin to find our lost self. For, within the communion in Theosis for which we were moulded, we are able to open up, to communicate, to really enjoy one another... and not only in a selfish way.
+
+This is the ethos of the Divine Liturgy, in which we learn to overcome the narrow, atomistic interest to which the devil, our sins, and our passions compel us, and instead learn to open up to a communion of sacrifice and love in Christ.
+
+An awareness of this great calling of his, i.e. of Theosis, comforts and really completes man.
+
+The Orthodox humanism of our Church is based on this great calling of man, and therefore it develops all his powers to the extreme.
+
+What other form of humanism, however progressive and liberal it may appear, is as revolutionary as that of the Church which is able to make man a god? Only the humanism of the Church reaches so high.
+
+Today especially, when so many attempt to deceive the people, and in particular the young, by projecting false humanisms which in effect maim man and do not complete him, the emphasis given in this guidance of the Church has great importance
+
+cB0
+
+Consequences of guidance that does not lead to Theosis
+
+Today, young people seek experiences. They are not content with a materialistic life; nor with the rationalistic society that we their elders hand down to them. Our children, being icons of God, “called to be gods,” seek something beyond the logical forms of the materialistic philosophy and atheistic education we offer to them. They seek experiences of true life. And, certainly, it is not sufficient for them to be told about God. They desire experience of Him, of His light, of His Grace. Many of them search in vain, resorting to many cheap substitutes to find something outside or beyond logic because they do not know that the Church has both the ability to comfort them and the experience they thirst for.
+
+Others are led to Oriental mysticisms such as yoga; yet others to occultism or gnosticism, and finally, unfortunately, even to outright satanism.
+
+Even in morality they do not know any boundary, for morality, once severed from its essence and deprived of its purpose, which is to unite them with holy God, ends up by having absolutely no meaning.
+
+Then tragic phenomena such as anarchy and terrorism become commonplace, so that many young people give themselves to every type of extremism and violence against their fellow men; deep down they wish to satisfy a dynamism which they have within themselves. This deep yearning of theirs is not fulfilled simply because they did not chance upon this guidance of Theosis.
+
+The majority of young people, and not only the young, squander the precious time of their lives, as well as the powers which God gave them for the purpose of achieving Theosis, in hunting for pleasure and carnal worship. Unfortunately, it is often with the tolerance of the state that these become their contemporary idols, their contemporary “gods,” thus causing great corrosion to their bodies and psyches.
+
+Living without any ideals whatsoever, others waste away in various purposeless, vapid, and harmful occupations; some feel pleasure in driving cars at excessive speeds on the roads –often with tragic results of injury and death– and others, again, after many explorations, surrender unconditionally to a demonic dependence on drugs, the new plague of our age.
+
+Finally, enough people, after a relatively short life full of failure and disappointment, consciously or unconsciously seek an end to the torment of their vain quest, unfortunately resorting to the extreme form of desperation, suicide.
+
+Not all the young people who resort to these irrational and tragic things are hooligans. They are young people, children of God, our children too, who, disappointed by the materialistic, selfseeking society which we bequeath to them, do not find that for which they were moulded; the true, the eternal. We did not give it to them, and so they do not know it. They do not know the great purpose of man’s life, Theosis. Then, not finding peace in anything else, they resort in desperation to the forms which we have mentioned.
+
+Today, out of selfless love, many Shepherds of our holy Church; bishops, priests, spiritual fathers, and lay brothers, devote themselves daily to the guidance to our youth towards the aim of Theosis. We are grateful to them for their sacrifice and offering: for this God-pleasing work of theirs, with which, by the Grace of God, psyches for whom Christ died are saved and sanctified.
+
+Humbly, the Holy Mountain helps and assists in this great distress of the Church. The Garden of our Panagia, being a special place of sanctity and silence dedicated to God, savours the blessing of Theosis, lives communion with God, and has intense and vivid experience of His Grace and His Light, so that many of our fellow men, the majority of them young, benefit from and are strengthened and reborn in Christ by a pilgrimage to Mount Athos, or by maintaining more specific connections with it. In this way, people enjoy God in their life, and begin to understand what Orthodoxy is, what Christian life is, what spiritual struggle is, and what joy and great meaning these things give to their existence. This is to say, they taste something of this great gift of God to man, Theosis.
+
+Let all of us, Shepherds of the Church; theologians; catechists; not forget about guidance for Theosis, by which the young people, with all we who are humble, with the Grace of God and within our daily struggle, the struggle of repentance and observance of His holy commandments, acquire the possibility of enjoying this blessing of God, this union with Him, to enjoy it very strongly in this life, but also to gain eternal happiness and blessedness.
+
+Let us continually thank the holy Lord for the gift of Theosis, which is a gift of His love. Let us reciprocate His love with our own love. The Lord wants and desires us to be deified. After all, for this purpose He became man and died upon the Cross so that He shines as the Sun amidst suns, and God amidst gods.
+
+cBK
+
+GLOSSARY
+
+Essence (οὐσία–ousia)
+
+God’s essence and His energies are pre-eternal and uncreated. God’s essence, that is His essential nature, is inaccessible and unknowable to us, and therefore will always remain a mystery.
+
+The distinction between God’s essence and His energies guarantees God’s ultimate unknowability whilst simultaneously giving us the possibility to achieve intimate and personal communion with Him through His energies, for these are accessible to us.
+
+Heart (καρδία–kardia)
+
+The heart is a biblical word little understood these days, yet it has a truly profound dimension. The heart is where union with God may be consummated; as such it has a spiritual dimension. More than an emotional centre or a physical organ, the heart is a receptacle for all good and evil. The heart is our psychosomatic centre, the deepest and most profound part of our being; it is our “inner man;” out of which the energies of the psyche issue forth.
+
+There is a close connection between the nous, the psyche, the heart, and the “inner man.”
+
+Holy Oblation
+
+The Holy Oblation occurs on the Holy Altar, it is the part of the Divine Liturgy during which the Eucharistic elements are offered to God, and so become His Blood and Body.
+
+Holy Paten
+
+The Holy Paten is a metal plate set on a solid base. It is on this plate that the pieces of bread, which later will become Christ’s Body, are carefully placed; so that they can be safely transferred to the Holy Table.
+
+Kingdom of God (Βασιλεία τοῦ Θεοῦ–Basileia tou Theou)
+
+The Kingdom of God means, the “Rule of God,” and also the “Ruling power of God;” although all pervading and ever-present, it is spiritual and beyond all sensible and intelligible categories. The Kingdom of God also refers to our participation in the divine life of the Holy Trinity, making the chosen person through Grace what God is by nature. The Kingdom of God and the Kingdom of Heaven are synonymous.
+
+St. Symeon the New Theologian describes it in the following way, “for those who become children of light and sons of the day to come, for those who always walk in the light, the Day of the Lord will never come, for they are already with God and in God.”
+
+Logos (Λόγος–Logos)
+
+The Greek word logos already had a long history before it was used by St. John. Its three principle meanings are: “think,” “reckon,” and “speak.” Like all things rational, logos at its most profound level conveys: “the meaning,” “the ordering,” and “reasonable content.” In time, this also came to be identified with “Universal Reason,” and “Creative Reason.”
+
+St. John completes the philosophical truths of the Ancient Greeks, by connecting them to the Jewish Tradition of his day. So when St. John’s Gospel tells us, “In the beginning was the Logos, and the Logos was with God, and the Logos was God. He was in the beginning with God. All things were made through Him, and without Him was not anything made that was made. In Him exists life, and the life was the light of men ... And the Logos became flesh and dwelt among us...” St. John clearly states that Jesus Christ is the Logos. The Logos, the second Person of the Holy Trinity, is also known as the Wisdom, Intellect and Providence of God. It is in the Logos that creation finds its reason, cause, and purpose.
+
+Man (ἄνθρωπος–anthropos)
+
+Along with the Holy Bible, theology frequently uses the word man in a generic sense for both man and woman, in other words ecclesiastical language is inclusive. Man is the only creature to be made in the “image and likeness” (Genesis 1:26) of God, and as such was God’s crowning achievement. God’s vision of humanity far exceeds our limited understanding, this can partly be seen in Christ’s saying, “For in the resurrection they neither marry nor are given in marriage, but are like angels of God in heaven” (Matthew 22:30).
+
+Mystery (μυστήριον–mysterion)
+
+The Greek word, mystery, originally meant “initiation,” “secret,” or “revelation of a secret.” Christianity inherited this meaning, and by extension it came to mean “revelation from God.”
+
+The Mysteries are both a symbol and a mystery. As long as the mystery remains “veiled,” the rituals remain on the symbolic and iconographic level; but when one is receptive and Grace acts, then the Mysteries reveal that which is behind the “veil” (cf. 2 Corinthians 3:16; 4:3). Mystery carries the duel connotation of something both hidden and revealed, both a riddle and a revelation together.
+
+There are seven main mysteries established by Christ himself, including Confession, Baptism and Holy Eucharist; but their number is potentially limitless, because in the Church all things work in a mysterious way to reveal the Kingdom of God.
+
+Nous (νοῦς–nous)
+
+The nous is our highest faculty. It has been called: the “eye of the psyche,” the “eye of the heart,” and also the “energy of the psyche.” When cleansed, the nous resides and operates from within the heart; it can perceive God and the spiritual principals that underlie creation; it is cognitive, visionary, and intuitive. The Metropolitan of Nafpaktos, Hierotheos said, “The nous is in the image of God. And in as much as God is light, the nous too has light mirrored in it by the Grace of God.”
+
+After man’s fall and the “fragmentation” of the psyche, the nous will invariably identify itself with the mind, the imagination, the senses, or even the body – losing sight of its pure unalloyed state.
+
+Panagia (Παναγία–Panagia)
+
+The Virgin Mary is known by many names that are both descriptive and honorific. One of the most popular of these is Panagia, which literally means the “All-Holy One.”
+
+Prothesis (πρόθεσις–prothesis)
+
+Prothesis describes both the place and the preparation of the bread and wine, which will become the Body and Blood of Christ. The prothesis is to the left of the Holy Altar, and in traditionally built Churches it is set in a small apse. The body of Christ means the whole Church, which includes the angelic hosts, the Panagia, the saints, and all the faithful both living and departed.
+
+Psyche (ψυχή–psyche)
+
+The most important and least understood of all Biblical words is the word psyche. The Orthodox understanding of psyche remains unified and unchanged. The psyche is a pure unalloyed essence which animates the body and gives it life; it is our immaterial nature, created yet eternal, comprising of our cognitive, conative, and affective aspects, including both the conscious and the unconscious. It naturally follows that psychic health precedes salvation.
+
+In order to encapsulate the full meaning of the word psyche as understood by traditional Christianity, we will have to combine the meanings of five English words: “soul,” “life,” “breath,” “psyche,” and “mind.”
+
+In the West, the soul has become a debased and ambiguous term; the psyche, its original biblical counterpart, has now constellated into two distinct conceptual fields. The words “soul,” “life” and “breath” form one field. The words “psyche” (as in modern psychology) and “mind” (as in the mind-body dichotomy) comprise the other field. As such, there is little or no connection between “psychic” health and the eternal animating principle known as “soul.” This dislocation is indicative of a deep spiritual malady in Western man.
+
+Repentance (μετάνοια–metanoia)
+
+Repentance means: a change of heart, a change of mind – its literal meaning is a change of nous (i.e. meta-nous). Repentance is more than regret or contrition; it requires a fundamental change of life.
+
+Christ tells us that the path for approaching the Kingdom of God is repentance. A more accurate translation of Matthew 4:17, is “Keep repenting for the Kingdom is at hand;” in other words, not once but continually. We must continually re-direct ourselves, until we achieve life’s objective –union with God– as such repentance is a mystery.
+
+Repentance is not legalistic; i.e. if a penance is given during confession by the spiritual confessor, this will be purely for therapeutic reasons, whose aim is to clear the nous and the heart from sin.
+
+Sin (ἁμαρτία–hamartia)
+
+In Christianity, hamartia means “estrangement from God,” or more accurately “failure to achieve one’s destiny,” correspondingly the verb harmartanein means “to fall short of ones destiny” – the original meaning was “to miss the mark.” These words were later translated as “sin,” “to sin.”
+
+The primary objective of human life is to unite with God; so any action or even thought that estranges us from God is a sin. As St. Paul tells us, “The sting of death is sin” (1 Corinthians 16:56); sin has no legalistic dimension, it is simply estrangement from Life.
+
+Theologian (θεολόγος–theologos)
+
+Theology deals with God, our participation in Him, and the underlying divine reality inherent in creation. It is far more than intellectual and scholarly discourse about God, and is not acquired through academic study.
+
+A real theologian is someone who has reached intimate communion with God and has perception of the spiritual world. To quote Evagrius, “If you are a theologian, you will pray truly; and if you truly pray, you are a theologian;” whilst St. Maximus the Confessor and St. Gregory Palamas says, “Our devotion lies not in words
+
+but in realities.”
+
+Theosis (θέωσις–Theosis)
+
+Theosis literally means to become gods by Grace. The Biblical words that are synonymous and descriptive of Theosis are: adoption, redemption, inheritance, glorification, holiness and perfection. Theosis is the acquisition of the Holy Spirit, whereby through Grace one becomes a participant in the Kingdom of God. Theosis is an act of the uncreated and infinite love of God. It begins here in time and space, but it is not static or complete, and is an openended progression uninterrupted through all eternity.
+
+Theotokos (Θεοτόκος–Theotokos)
+
+The title Theotokos given to the Virgin Mary means “Mother of God;” its literal translation is “God-birthgiver.” This title was affirmed by the third Œcumenical Synod (431 AD) to declare that Christ was truly and fully God even before His incarnation.
+
+[1] . Matthew 4:17
+[2] . Cf. Genesis 32:30
+[3] . Cf. Deuteronomy 18:15-19; Isaiah 53; Acts 1:6; 2:16-36; 1 Peter 2:6-8
+[4] . Mark 1:15
+[5] . Romans 14:17
+[6] . John 10:34
+[7] . Matthew 5:48
+[8] . Matthew 13:43; cf Exodus 34:29-35; Luke 9:28-36.
+[9] . John 1:29
+[10] . Galatians 3:29
+[11] . Galatians 3:7-9
+[12] . Galatians 6:15-16; also cf. John. 1:11-13; Romans 2:28-29; James 1:1 13. Romans 9-11; also cf. John. 8:37-40; 10:32-38
+[13] . 1 Peter 2:9; cf Colossians 2:11.
+[14] . Cf. Matthew 3:7-9; Acts 1:8; 11:1-18; 15:16-17; Galatians 3:14;28
+[15] . Revelation 21:2-3
+[16] . Matthew 5:17
+[17] . Colossians 1:18,24; Romans 12:5; 1 Corinthians 12:12-13. 19. 2 Corinthians 11:2; Revelation 18:23
+[18] . Matthew 28:20; cf John. 17:20-22.
+[19] . John 16:13; Romans 14:17; 1 Corinthians 2:10;13
+[20] . Cf. Acts 9:3-7
+[21] . 1 Corinthians 2:9
+
+[22] . Matthew 13:45-46
+
+[23] . Cf. Mark 9:1; John 4:14; 8:51; 11:25-26; Romans 5:21; 2 Timothy
+
+[24] :10
+
+[25] . Galatians 2:20
+
+[26] . Acts 7:59-60
+
+[27] Homily on the Epiphany, Migne Patrologia Graeca 36, 324, 13.
+[28] .  Hybris has the same root as hybrid. Hybris originally meant to go against nature. In ancient Greece, the whole of nature was intimately connected with the divine, so by transgressing nature divine harmony was severed. Its modern meaning of overweening pride is also implied in that classical context.

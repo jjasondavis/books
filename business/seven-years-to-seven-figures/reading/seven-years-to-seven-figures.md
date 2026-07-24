@@ -1,0 +1,1282 @@
+<!-- Text extracted from the owner's personal-library copy (PDF). -->
+Source file: PDF_seven-years-to-seven-figures.txt
+Title/Edition: Seven Years to Seven Figures; Michael Masterson; 2004; owned copyright — personal use, do not distribute.
+
+THE
+SEVEN YEARS
+TO
+SEVEN FIGURES SYSTEM:
+Six Steps to Automatic Wealth
+With
+MICHAEL MASTERSON
+Nightingale-Conant
+
+The Seven Years to Seven Figures System
+
+3
+
+IMPORTANT
+To begin — Please save this workbook to your desktop or in another location.
+
+4
+
+The Seven Years to Seven Figures System
+
+Table of Contents
+
+Introduction . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .5
+Session 1: Seven Years to Seven Figures . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .6
+Session 2: Step 1: Recognizing Reality . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .15
+Session 3: Step 2: Planning to Become Wealthy . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .26
+Session 4: Step 3: Developing Wealthy Habits . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .40
+Session 5: Step 4: Super Size Your Income! . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .50
+Session 6: Building a Business the Seven Years to Seven Figures Way . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .61
+Session 7: Secrets of Real Estate Investing the Seven Years to Seven Figures Way . . . . . . . . . . . . . . . .70
+Session 8: More Secrets of Real Estate Investing the Seven Years to Seven Figures Way . . . . . . . .76
+Session 9: Step 5: Getting Rich While You Sleep . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .81
+Session 10: Step 6: Planning to Retire Early . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .89
+Here’s Your Mastermind Group to Help You Achieve Seven Figures in Seven Years . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .100
+Enhance Your Wealth-Building Library with These Great Titles from Nightingale-Conant . . . . . . . . . . . . . . . . . . . . . . . . . .102
+
+The Seven Years to Seven Figures System
+
+5
+
+Introduction
+
+Congratulations on your purchase! Is it really possible to start making seven figures within seven years? Yes it is!
+In this amazing program, self-made millionaire Michael Masterson draws upon his own experience and that of experts in the fields of retirement, investing, and real estate to offer you a complete program on achieving financial independence in as short as seven years.
+Organized around six key principles, The Seven Years to Seven Figures System will show you how to develop your wealth-building skills and habits and turn yourself into an “automatic wealth-builder.” This proven program—one that incorporates nothing but strategies that have personally worked for Masterson as well as for the people he’s mentored—is broken down into six easy steps: recognizing reality, planning to become wealthy, developing wealthy habits, super sizing your income, getting rich while you sleep, and planning to retire early. This unforgettable program follows a well-conceived plan that focuses on building income and equity simultaneously.
+How to Use This Workbook
+How can you get the most out of this writeable PDF workbook? By using it in conjunction with the audio program. For each session, do the following:
+• Preview the section of the workbook that goes with the audio session. • Listen to the audio session at least once. • Complete the exercises in this workbook.
+By taking the time to preview the exercises before you listen to each session, you are priming your subconscious to listen and absorb the material. Then, when you are actually listening to each session, you’ll be able to absorb the information faster—and will see faster results. At the end of each session, you can write down any additional thoughts, ideas, or insights to further personalize the material. Remember, the more you apply this information, the more you’ll get out of it. Let’s get started.
+
+6
+
+The Seven Years to Seven Figures System
+
+Session 1: Seven Years to Seven Figures
+
+Michael Masterson
+
+People who acquire a good deal of wealth don’t generally get it over a long period of time. It comes to them rather quickly. Once things are set in place, the money comes relatively fast. Most often, it comes in seven years or less.
+The Power of Seven
+When economists look at business ups and downs over long periods of time, they often chart them in terms of cycles. Things go up and things go down. Seven years seems to be a very common trend. Financial cycles tend to follow business cycles, so it’s very common to also see the stock market or the precious metals market characterized in terms of periods of time that are more or less seven years, as well.
+There’s a natural force that takes place in the marketplace that is really all based on the natural development of a business. The first year of the business you’re struggling with the first big problem of the business, and that is creating the first efficient sale. All business depends on selling. And in the first year when you begin a business, you’re not quite sure exactly the right formula for selling the product. And you’ll try one thing and you’ll try another thing, and you’re spending money along the way. You’re also worrying about organizational things, legal things, financial things, administrative things; there are all kinds of conflicts that get in the way. So for the first year you’re very lucky if you discover that formula.
+In the second year of a business, if you discover it, you apply it, and the business starts to grow. But the second part of every business is the back end of the business. The back end of the business is where you sell bigger and/or more
+
+The Seven Years to Seven Figures System
+
+7
+
+expensive and/or more products to your existing customers. This is generally where in any business the profits are created. You can’t really generate a lot of profits from your front-end customers until you have enough of them. And you’ll never have enough of them in your first or second year. Generally, if the business is growing, you don’t get enough of them until the third year. That’s when the back end kicks in.
+It’s the third year that all of a sudden profits start coming in because you have a lot of front-end customers and you figured out your back end what kind of products people are willing to pay for on the back end. And then the fourth year and the fifth year things start to really move. That’s the cycle. It starts out a little bit slow, first two years are struggle, then the third year—somewhere around that third or fourth year—you get a hit, and then you have a very strong period of growth.
+
+Industry Growth
+There’s another thing that happens in terms of the seven-year cycle. Usually in business, you’re not operating alone—you’re operating within an industry. In that industry there are thousands of other people out there trying to figure out the business themselves, trying to figure out how to make the front end work, how to make the back end work, what new products to introduce, what’s hot, what’s not. And somebody, during this period of time when you’re building your business, will discover something that’s working really well. That person will come up with a title, a product, a pricing strategy, something that suddenly makes business go boom. If you’re in the industry and you’re paying attention and you’re involved, then you will recognize that this event has taken place. Then, if you’re smart, you’ll jump on it and you’ll integrate it into your own business. And then you’ll see your business grow quickly.
+
+Why Seven Figures?
+If you talk to financial planners about what constitutes enough income to live a comfortable life without actively working, they will tell you a number that’s generally between $150,000 and $300,000.
+
+8
+
+The Seven Years to Seven Figures System
+
+Now if you ask individuals how much you need to be wealthy, it’s interesting; they’ll all say the same thing. They’ll all say that financial independence is a number which is twice what they have. If you ask a person with the net worth of $1 million, he or she will say $2 million. If you ask somebody that has a $5 million net worth what they need, he or she will say $10 million and so on. So the term “seven figures” takes in everyone’s objectives.
+
+People believe that financial independence is twice whatever they currently have.
+
+The problem is going to come in stopping, in becoming truly financially independent and reorienting your life so that you can enjoy your wealth in a comfortable way, in the way that you want to enjoy it now. The problem you’re going to have is once you start earning money, it becomes easier and easier to keep earning it. It’s very easy to fall into the trap of suddenly focusing on numbers.
+You can spend the rest of your life going after something that you don’t need. Being wealthy is not always about money. Financial independence will allow you to choose your own lifestyle, to eliminate the worries associated with not having enough money, and it can give you the opportunity to work a lot, a little, or not at all if you want. However, all that money can mean very little without other important things in your life, such as quality relationships with loved ones, good health, time to pursue hobbies and leisure activities, a balanced mental state, and the opportunity to pursue your passions.
+If you can learn to be happy with a lower seven-figure number, not only will it be easier to obtain because you’ll get it more quickly, but there will be more years that you’ll be able to enjoy your life.
+
+The Seven Years to Seven Figures System
+
+9
+
+Exercise: What’s Your Number?
+What is the seven-figure number that you can be happy with? What will allow you to live comfortably, and yet enjoy your life? _8_,0_0_0_,0_0_0_______________________________
+
+What can you do to avoid falling into the trap of wanting “more”? _________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+Lessons from Mentors
+Lesson One: First, when a market is hot, jump into that market and imitate what’s working. In other words, if you’re in an industry and somebody starts doing something, and it’s working for that person or company, don’t wait to make sure that there are no problems with it. If things are starting to move, you’ve got to jump in. Jump in as early as you can to the beginning of a trend.
+If you’re already in a business market, you’re aware of when trends begin, because you’re talking to everybody in the business. You’re watching your competitors, you’re seeing their promotions, and you’re seeing what they’re repeating and what they’re not repeating. If they’re repeating something, it means it’s working. When you notice that something’s working, jump in and create your own version of it. Although knock-offs will work, if you just decide to do something very similar, it’s much better not to knock-off your competition but to figure out what they’re doing right and do it better.
+Lesson Two: When you have your own product that’s working very well, knock off your own product. This means create another product, similar to your other product, rather than wait for your competitors to jump in and knock you off.
+The secret to being successful in business is to find the easiest way to get into the cash stream.
+
+10
+
+The Seven Years to Seven Figures System
+
+In all businesses and all industries there’s a cash stream that’s flowing. And the cash stream follows the trend. It’s what people are buying. If you’re in the industry, the first thing you have to do is find out where that cash stream is. Again, outsiders don’t really know where it is. It’s invisible. But once you get in, you’ve got to find out where that is and then you’ve got to step in there. You’ve got to be in that stream. When you identify the stream, the best way, the fastest way, the easiest way to get in is to create products that are similar to what’s already working but that have your own unique spin on them.
+Why your own unique spin? Because you want your product to last. If your product is just a knock-off, it won’t last. It’ll work for a little while and then it’ll disappear. You’ve got to create your own unique selling proposition, and your product has to have its own unique personality.
+It is also important to constantly and consistently make small improvements to your products—tested first internally and then on customers—to upgrade its standing among competitors. These are small changes that will bring more benefits to the consumer, not large alterations that will render your product unrecognizable.
+
+Exercise: Knock it off!
+What is the most successful product in your industry? ____________________________
+How can you knock off that product? __________________________________________ __________________________________________________________________________
+What is your most successful product? _________________________________________ __________________________________________________________________________
+How can you knock off your own product? _____________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+Lesson Three: Money isn’t free. Money has a great value, and people with money are not going to give it away to you for free. You, as the business owner, must have something they will buy, otherwise your new career will be cut short.
+
+The Seven Years to Seven Figures System
+
+11
+
+This is why I recommend starting in a business you are familiar with instead of in an industry in which you have no experience. You will have the necessary knowledge of trends in that business, what customers need, and how to direct your marketing. You will also know how to make the products, what they should do for your target audience, and how to set your price. Most importantly, before you even get started, you can identify if there will be enough consumers receptive to your products to have a successful business.
+Lesson Four: When people start buying products, they don’t buy a sensible amount of products. What they do is they get into a buying frenzy. The very fact that they purchased the product creates an excitement about buying more product, more similar products of that kind. And they start buying more and more of them over a period of time. This happens with products that people want and have formed an emotional bond with, and because it is emotional, they do not apply logic to the transaction. Basic commodities that people need to survive, such as simple food, shelter, and clothing, are not subject to the frenzy. For example, a need could be a basic winter coat that keeps you warm, while a want could be a designer leather jacket with fur trim. The customer who buys the designer coat will not be satisfied with just one. That type of coat fulfills a mental picture they have of themselves, and projects an image they want others to see. Your marketing should focus on that core emotional need.
+This frenzy is like a bell curve that shoots up very high very quickly with the first purchase and then gradually tails off. The secret to maximizing your business is to recognize that your customers don’t want to buy just one product; they want to buy lots of products. And in fact, the people who will buy the most products are the people who already have enough of those products.
+
+The secret in maximizing your business is to recognize that your customers don’t want to buy just one product;
+they want to buy lots of products.
+
+12
+
+The Seven Years to Seven Figures System
+
+Lesson Five: There is power in the back end. The back end means the extra sales that you make to your existing customers.
+Your existing buyer will buy essentially the same type of product from you as many times as you offer it to him or her, and the secret of maximizing that relationship is to spend a lot of time thinking about how many ways you can repackage your existing product. Repackage it, reprice it, sell it in a CD form, a book form, a program form, a seminar form. There are so many different ways of repackaging an existing product. If you can do it and offer it to your customer, you’ll be amazed at how often he or she’ll buy it. The second, third, and fourth sales are always easier than the first, and this active and growing customer base will keep the money rolling in while you also work on bringing in new clients with front end sales.
+By doing this, you will increase the money you take in and boost your profit margin, the difference between the production cost and the price you charge. The same information in a book from which you would profit $5 per transaction can bring in hundreds of dollars when repackaged and sold instead as a course with study guide and audio portion. This concept is vital for new businesses that need plenty of cash flow to allow tweaking of their products and marketing efforts.
+
+Exercise: Tap into the Frenzy
+How many products do you currently offer?_____________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+What other products can you offer? ____________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+How can you repackage your products? ________________________________________ __________________________________________________________________________ __________________________________________________________________________.
+
+The Seven Years to Seven Figures System
+
+13
+
+Lesson Six: Any great marketing campaign has at its core a big idea. It’s an idea about what this product was supposed to deliver. The idea behind the big idea was that you don’t sell the product itself, but you sell something bigger about it, the core emotion, the core idea. Then, you can build product groups around these big ideas.
+The key to effective marketing is finding out that core emotional reason people buy your product, and using that knowledge. Maybe wearing that leather jacket I mentioned earlier makes a certain person feel sophisticated and elegant, and that person believes that it projects the image of a fashionable, successful jet setter. Everything about your marketing—the media you use, the layout of the ads, the illustrations, the written content—it all should be geared toward showing your clients how the product will meet their emotional need.
+An important element you have to consider to get the most out of your marketing is showing benefits instead of features. For example, a feature of that new video game system could be its high-quality graphics. The benefit that you would highlight to your customers is that your system will allow them, play games that are more richly illustrated than they’ve ever seen.
+You can also tap into the emotional root of buying your product by extending into deeper benefits, which get to that deep emotional desire people have for a product. Perhaps they believe that that game system will make them the star of their school or social group, with everyone clamoring for an invite to their home to play video games with them.
+
+Exercise: What’s the Big Idea?
+What is the big idea behind your product? What emotion are you selling? ___________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ How does your marketing campaign reflect that idea? ___________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+14
+
+The Seven Years to Seven Figures System
+
+Notes
+
+The Seven Years to Seven Figures System
+
+15
+
+Session 2: Step 1: Recognizing Reality
+
+Michael Masterson
+
+BIOGRAPHY: Michael Masterson (www.earlytorise.com)
+Michael Masterson has developed a loyal following through his writings in Early to Rise (ETR), an email newsletter that mentors more than 350,000 success-oriented individuals to achieve their financial goals. Masterson has been making money for himself or others for almost four decades. In that time, he’s taken only two breaks — each time for two years. The first was after a stint with the Peace Corps, where he came to appreciate relative values and the joy of teaching. The second came at age 39, when he retired from the $100 million-plus business that he and his partner built.
+Over the course of his remarkably successful business career, Michael has been involved in the development of dozens of successful businesses, including two that grew beyond $100 million.
+At one time or another, he’s owned and run companies that were public/private, onshore/overseas, local/international, service-oriented/product-oriented, retail/wholesale/direct mail, and even profit/not-for-profit.
+If you had $10,000 to invest right now, what kind of rate of return would you need to turn that $10,000 into a $1 million dollar nest egg seven years from now? The answer is 93%. In other words, you’d have to practically double that $10,000 every year to achieve $1 million net worth. Well, maybe that doesn’t seem so difficult. In fact, maybe it seems like a perfect way to do it. Start with $10,000, turn it into 20, then it becomes $40,000. It’s hard to believe that if you just double it, you get $1 million in seven years. But in fact that’s what happens. You can do the math yourself.
+But how possible is it really to get a 93% rate of return? Conventional wealthbuilding programs that focus on the stock market talk about getting higher yields. Some programs talk about getting extraordinary yields by going with futures and options and so on. But the truth is, historically, stock markets will
+
+16
+
+The Seven Years to Seven Figures System
+
+give you a 9% to 10% return. These are the numbers that we have from studying the stock market for more than 100 years. Bonds will give you less. Bonds will give you a 4% to 5% return. Precious metal will give you a 3% to 4% return. And real estate will give you a 4% to 6 % return, depending on what sources you go to for this kind of information, how they interpret the historical information.
+
+How Long Are You Willing to Wait?
+How long would it take at these numbers? With cash and bonds, if you started with $10,000, it would take you 94 years to reach $1 million. That’s assuming a 5% rate of return. If you put your money in an index fund, which basically tracks the stock market, at 10%, it would take you 48 years.
+There are systems for getting better than the 10% return that the stock market traditionally offers. There are some good systems that’ll give you a 2% or 3% edge. So instead of getting 10%, you’ll get 12% or 13%. This can bring the time it takes you to take $10,000 into $1 million down to 30 years or 35 years or so.
+If you do a basic, solid-value investing formula, which is basically investing in quality companies at below-market prices—and there have been some good programs out there that explain how this is done—you can get up to a 17% return on your money. But even at 17%, it’ll take you 29 years to turn $10,000 into a million.
+What about if you invest more than $10,000? What if you had $50,000 to invest? How long would it take you then? Well, at 5% it would take you 61 years. In other words, at 5% with a $10,000 investment, it took you more than 90 years. With a $50,000 investment, you put in five times as much, and it gets you down to 61 years. But 61 years is still an awfully long time. If you got a 10% rate of return at $50,000, it would take you 31 years. And if you got that magical 17% number—which is possible, certainly possible, if you’re very disciplined and you follow a sensible approach—it would still take you 19 years.
+
+The Seven Years to Seven Figures System
+
+17
+
+Are you willing to wait 98 years to get wealthy? What about 61 years? Fortyeight? Are you willing to wait 29 years? Surely you can wait 19 years.
+
+Ninety percent of people aren’t even willing to wait seven years to achieve wealth!
+
+The real problem with the investing in financial instruments in general is something that most people don’t talk about. The secret to being a good investor is twofold. You have to know what you’re investing in: You have to know the industry and you have to know the business. The better you know the industry, the better you know the business, the better your track record’s going to be. You also have to have a financial system, an investment system that works. And just as importantly, you have to follow that system.
+The reason that most financial advisers don’t even match the market is because either they don’t really know the businesses that they’re recommending, or they have a good system, but they don’t follow it. At some point they get emotional and they abandon it.
+We know we need a higher number to turn $10,000, let’s say, or even $50,000 into a $1 million or a multimillion-dollar fortune in seven years. So how do you get that?
+Well, first you need to determine your net worth.
+On the following worksheet, list the actual current net worth of your assets. Make sure to list what they are worth now, not what they might be worth some day, but what they would be worth right now if you had to liquidate them.
+
+18
+
+The Seven Years to Seven Figures System
+
+CATEGORY
+ASSETS: Cash in Savings Accounts Cash in Checking Accounts Certificates of Deposit (CDs) Cash on Hand Money Market Accounts Money Owed to Me (Rent Deposits, etc.) Cash Value of Life Insurance Savings Bonds (current value) Stocks Bonds Mutual Funds Vested Value of Stock Options Other Investments Individual Retirement Accounts (IRAs) Keogh Accounts 401(k) or 403(b) Accounts Other Retirement Plans Market Value of Your Home Market Value of Other Real Estate Blue Book Value of Cars/Trucks Boats, Planes, Other Vehicles Jewelry Collectibles Furnishings and Other Personal Property Other TOTAL ASSETS
+LIABILITIES: Mortgages Car Loans Bank Loans Student Loans Home Equity Loans Other Loans Credit Card Balances Real Estate Taxes Owed Income Taxes Owed Other Taxes Owed Other Debts TOTAL LIABILITIES
+NET WORTH
+(TOTAL ASSETS LESS TOTAL LIABILITIES)
+
+CURRENT VALUE
+________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________
+________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________ ________________________________________
+________________________________________
+
+The Seven Years to Seven Figures System
+
+19
+
+If you go through this exercise and find that you’re worth less than you thought you were, don’t despair. This program is built for people who have minimum net worth. In fact, you can start this program with as little as $10,000.
+
+The Rules of Investing
+First, you have to know the business. You have to know that business cold. Knowing a business means two things. You have to know how the business makes its first sale, how the business acquires customers efficiently. This is the first secret of every business. How do I go out into the marketplace with an advertisement and bring in the customer that is going to be a profitable longterm customers for me? And how do I find a vehicle for that advertisement that won’t break me? In other words, how do I start generating customers without going broke generating them?
+The first sale is paramount. You must know if the business is viable and has the ability to make sales. Those involved in the new business must be spending the vast majority of their time reaching those first sales and acquiring those first customers. This can be done through a narrowly targeted ad campaign that reaches the potential customers. If the calls don’t start coming in, look somewhere else.
+There are plenty of ways to generate customers, the trouble is most of them— 90% of them—will cost you more money than it’s worth. Every business needs to determine its cost of acquisition and determine whether it is cost-effective. The business must also make an effort to lower acquisition costs as time goes on. That’s what a businessman or woman who knows his or her business understands.
+The second thing you need to understand is how the back end works. How does a business take its customers and turn them into multiple buyers? Buyers of other products, and, in particular, more expensive products? So you have higher margins and a higher lifetime value of each customer. You need to know how that happens in every business, too. If you understand how a business brings in its first customer in a cost-efficient way, and then generates profits from that customer by back end sales, then you really understand the core of that business, you understand the business from an inside-out point of view.
+
+20
+
+The Seven Years to Seven Figures System
+
+Exercise: Strengthening the Core
+What businesses are you invested in now? How well do you know them?
+Business #1: ______________________________________________________________
+How does it get customers? __________________________________________________ __________________________________________________________________________ ___________________________________________________________________________ ___________________________________________________________________________
+How does the back end work? ________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+Business #2: ______________________________________________________________
+How does it get customers? __________________________________________________ __________________________________________________________________________ ___________________________________________________________________________ ___________________________________________________________________________
+How does the back end work? ________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+Business #3: ______________________________________________________________
+How does it get customers? __________________________________________________ __________________________________________________________________________ ___________________________________________________________________________ ___________________________________________________________________________
+How does the back end work? ________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+The Seven Years to Seven Figures System
+
+21
+
+You’ve got to know the business in a core way.
+
+The second thing that you want to do when you’re going to invest in a highyield/low-risk business is you want to actually control the business. You want to actually be able to influence the decisions, the key business decisions that are made. Business decisions like what products should we sell? Who shall run our business? Who are the key people that we’re going to have involved in the business? You want to be sure that the business understands that when it gets a product that’s working, it lets the product run. When something does not work, it cuts its losses and doesn’t invest more money in a losing product.
+Four Points of Control
+There are four points of control that you need to have influence over: 1. The selection of products/how they’re sold 2. The selection of key people 3. Marketing campaigns 4. The cutting of losses
+If you can have knowledge and control of a business, you reduce your risks enormously. You’re not going to invest in something that is not going to work, because if you understand the industry, you understand what kinds of businesses work and what kinds of businesses don’t.
+Case Study 1: Mama Anna’s House of Spaghetti
+For as long as she could remember, Mama Anna was told, “You make the BEST spaghetti. You should open a restaurant.” After hearing this for years, Mama Anna decided it would be fun.
+So, Mama Anna and her son Tony (the one with the good job selling cars) go and look for a location. They drive around and see a nice little building on a corner, and they go inside. Tony and Mama Anna make a deal with the owners and sign a lease. Mama Anna is proud of her son
+
+22
+
+The Seven Years to Seven Figures System
+
+Tony because he got the landlords to drop $500 a month off the lease. They have a $2,500-a-month lease, and a corner building.
+Mama Anna and Tony go home, and over a nice spaghetti dinner, they plan the restaurant. They decide on the theme of the restaurant (familystyle Italian food) and how the restaurant will look (just like Mama Anna’s kitchen). Next, Mama Anna and Tony call Tony’s cousin Joey. He’s a contractor. They tell Joey all their plans for the restaurant.
+Mama Anna and Tony work it out with the bank that they can get a loan of $200,000 to start the business. But, with permits and regulations, and remodeling the restaurant to fit their theme, by the time the business is ready to open, Mama Anna and Tony have spent $800,000.
+The problem is, Mama Anna and Tony have no idea how to run a restaurant. They don’t have any idea how the first sale is made. They don’t have any idea about the back end.
+In fact, they have spent a ton of money and they don’t know anything about the business. They don’t know how to get customers into the restaurant. They just assume that they’d open the door and people would kind of come in. Some people do walk in, but not enough. Within a year, Mama Anna’s House of Spaghetti is out of business.
+
+So, what do you really need to do if you want to run a restaurant?
+
+Case Study 2: Mama Anna’s House of Spaghetti
+For as long as she could remember, Mama Anna was told, “You make the BEST spaghetti. You should open a restaurant.” After hearing this for years, Mama Anna decided to check it out.
+To do some research, Mama Anna gets a job at Antonio’s, the local Italian eatery. She used to work in a restaurant before she met her husband
+
+The Seven Years to Seven Figures System
+
+23
+
+Roberto, and so she is hired on easily. After six months, Antonio promotes Mama Anna to manager.
+In this position, Mama Anna learns how restaurants really work. She learns what matters and what doesn’t. Mama Anna discovers how the pricing matters for her particular community.
+Antonio teaches Mama Anna that the key elements to running a restaurant are how your food is priced, what kind of cuisine you are serving, and who your chef is. Mama Anna learns that those are things that are much, much more important than what kind of décor that you put in. Or even finding a particular location.
+By the time Mama Anna opens her restaurant, she knows how to bring in the customers and how to get them to spend more money when they are there.
+
+The core of every business is selling.
+
+A former mentor and partner of mine always impressed me with his ability to make the right business decisions. For years I wondered how he did it. Then it finally dawned on me. He was a smart guy, but business decisions he handled very simply. Business was about profit. I considered profit, of course, but was also caught up in all the other concerns that come with a business: the staff, the product, personal feelings, etc. So when I made a decision, I had think about how it would impact those other areas. Not so with my former partner; it was clear to him that there were two roads, one leading to profit and the other not.
+
+24
+
+The Seven Years to Seven Figures System
+
+Increasing ROI
+Remember, we learned that investing more money doesn’t significantly reduce the amount of time it takes to generate wealth. Yes, increasing income is important—but it’s important to improving your lifestyle, not to freeing up more money to invest.
+To really make the difference, what you’ve got to do is you’ve got to improve your investment ROI (Return on Investment). You have to get above that 17%. You need to find ways to generate returns of 25% to 50% if you want to build that kind of wealth quickly. The rest of this program will show you how to do just that.
+
+The Seven Years to Seven Figures System
+
+25
+
+Notes
+
+26
+
+The Seven Years to Seven Figures System
+
+Session 3: Step 2: Planning to Become Wealthy
+
+Michael Masterson and Robert Ringer
+
+Let’s stop now and talk about the seven-figure goal. Seven figures, remember, starts at $1 million and it goes up to $9 million. So, let’s spend some time right now and figure out what you want to achieve.
+Set a Goal to Become Wealthy
+Why is it that you want to become wealthy? Are you interested because you realize that you’re getting on with your life, your kids are growing up, and you want to retire, but because of what’s happened with the stock market and in the real estate market, maybe you won’t be able to retire? Are you concerned because you think that Social Security won’t be there for you? You’ve got good reason to be concerned about that. Are you concerned because you’re worried about other governmental programs, like Medicare and other social programs that are supposedly there to safeguard people in their retirement? Are you young and just ambitious? Are you interested in achieving wealth just because it seems like the right thing to do?
+Making becoming wealthy as your number one goal can transform your life.
+But having wealth building as your number one goal is also a risk. It risks turning you into one of these stereotypical workaholic money makers who has no time for family, no time for friends, no time for other pursuits.
+You don’t need to have your number one goal exclude your other goals to be successful. Of all the types of goals that you could set for yourself, money—
+
+The Seven Years to Seven Figures System
+
+27
+
+becoming wealthy—is the easiest. You may find that hard to believe now, but when we get through this program, you may come to understand that it’s true.
+
+Exercise: What is your number one goal?
+What is your #1 goal? ________________________________________________
+What are some other areas where you have goals? __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+The Four Elements
+There are in any person’s life, I think, four elements that need to be respected. First, you do have your financial obligations. We’re all born into this world with the responsibility to take care of ourselves and our family. And that means financial responsibility. So this is an area of your life that you have to set goals for.
+We also have concerns about our health. We all are concerned that if we work too hard, we’re going to work ourselves sick. And that’s a legitimate concern. If you don’t have health, anything else you have is worth nothing. You can have $20 million in the bank, $100 million in the bank, and if you get a fatal illness, how much of that would you give away to live an extra year or two? I know what my answer would be. All of it! So health has to be one of your most important considerations.
+Another is your social life. The life that you have with your family, first of all, with your loved ones, and your extended family, and on into your community and outward.
+And then finally you have your personal life. The kinds of things that interest you as a person, your hobbies, the sports that you’re interested in, your diversions. These are an important part of your intellectual and emotional life.
+
+28
+
+The Seven Years to Seven Figures System
+
+Exercise: Four Goals
+Set goals in each of the four areas. Include what actions you’ll take to achieve these goals.
+Wealth Goal ______________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+Health Goal ______________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+Social Goal ______________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+Personal Goal ____________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+Set these four goals and keep these goals as your four top goals.
+
+The Seven Figures
+To help you choose your seven-figure goal, let’s narrow down your choices into four.
+1. $1 million 2. $3 million 3. $6 million 4. $9 million Let’s talk about how each of these levels will feel to you—what you’ll have, what basics you’ll have, and what extras you’ll have, so you can make the decision yourself as to which level you want to set as a goal.
+
+The Seven Years to Seven Figures System
+
+29
+
+Mark the Millionaire
+Mark has a net worth of $1 million. Here is his lifestyle.
+A million dollars earning 10% yields $100,000 in annual income. Take away $35,000 for federal, state, and local taxes (the tax you pay depends on where you live, of course, and what kind of deductions you have). Mark is incorporated, so he takes advantage of deductions that corporations allow, giving him a 35% tax on $100,000 income.
+This leaves Mark with $65,000 in annual after-tax income. That works out to about $5,417 a month.
+Mark pays $1,350 for rent, leaving him about $4,000 left over to pay for other expenses.
+He spends about $400 a month on utilities and other routine expenses. He’s married, so his monthly food expenses are $1,200. His car payment (on a Toyota) is $400 a month, and his wife has one too (a newer one, costing $600 a month). That’s $2,600 a month for basic living expenses for Mark and his wife.
+This leaves Mark the Millionaire only $1,400 a month for fun, discretionary, luxury, and lifestyle choices. These are travel, entertainment, dinners out, shopping, that kind of stuff.
+These expenses can vary greatly, all depending on your personality and your belief systems. If you can be happy with a good meal at a local restaurant, you may be able to budget your meals for two people at $80. If you prefer fancier places, you’ll have to figure on spending more than that, maybe two or three times as much. Do you think you can be happy with that lifestyle?
+
+30
+
+The Seven Years to Seven Figures System
+
+Terry the $3 Millionaire
+Terry has a net worth of $3 million. Again, assuming a 10% cash flow and a tax burden of 40%, she ends up with a disposable after tax-income of about $150,000 a year. Figuring again that 25% of that goes into housing, this means that Terry’s rent is $3,800 a month. Terry’s living expenses are the same as Mark’s (utilities and the like). So, subtracting the cost of housing, about $38,000 a year, and associated living expenses, another $30,000 a year, Terry is left with about $90,000 to spend on luxury and lifestyle.
+Terry likes a bit more of an upscale life than does her friend Mark. Every year, she and her husband take a 10-day vacation to Hawaii ($10,000) and one to Europe ($10,000). They belong to a yacht club, and spend $200 a week there in meals and the dues at $5,000 per year (that’s another $15 ,000). They love to eat out, so they go out to a local restaurant every weekend (at $100 for the two of them, which is $5,000 per year). Terry loves new cars, so she and her husband both lease Mercedes, adding another $15,000 to their annual budget.
+Once a year, they have a blowout anniversary party, and spend $8000 on that. The holidays are a time for spoiling the family, and so Terry and her husband spend at least $6,000 on gifts for each other, the kids, and the grandkids.
+Every Wednesday they have spa treatments ($5,000 a year). And of course they tithe 10% of their income to charity.
+Believe it or not, this is less than the $90,000 they have to live on each year!
+Does this sound like an appealing lifestyle to you? Or would you like more?
+
+The Seven Years to Seven Figures System
+
+31
+
+Steve the Six Million Dollar Man
+Steve is the real six million dollar man. A $6 million net worth returning 10% is of course $600,000. After paying about 40% on taxes, Steve has about $350,000. Deduct $80,000 for his housing expenses, another $30,000 for upkeep and utilities, and $25,000 for food, clothing, miscellaneous. This leaves Steve with more or less $200,000 a year to spend on discretionary items.
+Steve and his wife are tired of Hawaii and Europe. They take three vacations a year, to exotic destinations such as Istanbul ($15,000). Plus, to spice up the year, they are going to take two four-day New York City weekends. That’ll cost them $10,000. They get those weekly fancy meals at $400 apiece now, as they enjoy vintage wines. That’s $20,000. Even their once-a-week dinners cost $200, that’s another $10,000. Once a week they spend $100 buying dinner for the staff. That’ll be $10,000.
+Steve and his wife have a reputation to maintain, so they drive Bentleys; that’ll cost them another $15,000. They go overboard on their holiday party, and spend $15,000. They upgrade the gifts for each other, and spend $5,000 on that. In addition to the yacht club cost, they take a golf club membership for another $5,000. They spend $5,000 on their grandchildren or children. They still do the spa treatment. Steve and his wife tithe $25,000 a year. They spend $15,000 on a weekend in Atlantic City. Plus, they have Laker season seats (courtside), which cost $8,000. By the time all this is spent, all this fun is had, Steve and his wife still spend less than $200,000. There’s still another $10,000 or $15,000 left in their bank account.
+Does this lifestyle appeal to you? Now remember, every year this nest egg is generating more money. So you don’t really need to save anymore money, you just need to spend it. That’s your project now. You’re a multi-millionaire and you’re business is to spend your money. But as you can see, you can have an awful lot of fun, you can have an awful lot of distractions. It’s almost a full-time job now. Just for kicks, let’s look at the ultimate lifestyle.
+
+32
+
+The Seven Years to Seven Figures System
+
+Nina the $9 Millionaire
+Nina has $9 million of investable income. Nine million dollars, at 10% gives her an income of $900,000. Forty percent is spent on taxes, leaving Nina with $540,000 to spend on herself. She spends $135,000 per year on housing (her three-story loft on the beach). She spends $30,000 a year for upkeep, utilities, and another whopping $50,000 a year for clothing, (she buys only Italian designer goods in Milan). Why not? This leaves the well-dressed Nina with $335,000 a year to spend on luxury and lifestyle.
+Nina takes that 10-day Hawaiian vacation and a 10-day London vacation. She gets the trip to Istanbul, and two four-day New York weekends. She’s got 50 fancy meals, 50 semi-fancy meals, she’s got 100 meals at her local place. Her husband has four Bentleys and a garage full of exotic cars. That’s costing Nina another $20,000 or $30,000 a year. When Nina throws a party, she can easily spend $50,000 (those filet mignons, caviar, and champagne can really add up).
+For Christmas, Nina and her husband spend $10,000 on each other. They have three golf club memberships; that’s another $10,000 or $15,000. Of course they can’t go to all those golf courses, but they’ve got them. Nina spends more money on her kids and grandchildren for presents, $5,000 here, $10,000 here. Nina is trying her best to give the money away. She’s got not only herself going to spas, she’s bringing her best friends to spas and paying for them, too.
+Nina is so grateful for her lifestyle that she donates $50,000 to charity every year. She’s got the season tickets for the NBA, as well as season tickets for her local baseball team. That’s costing you another $25,000. Plus she’s got a timeshare in a private jet and yacht, and that’s costing her $50,000 a year.
+All that taken together still doesn’t reach $335,000.
+
+The Seven Years to Seven Figures System
+
+33
+
+For many of us, that is the first time we’ve ever actually put the numbers to the lifestyle. While these are rough estimates, it’s easy to see that one really doesn’t need a tremendous amount of money to live a very nice lifestyle.
+Here’s an important secret about getting wealthy that is good for you to know at this point. Once you hit a net worth level about $3 million or $4 million or $5 million, it becomes consecutively easier to acquire more wealth. That’s the thing about wealth.
+
+As long as you can keep your spending within reasonable limits, your net worth accumulates at an increasingly faster pace.
+
+This is why the rich really do keep on getting richer. Earning money and increasing your wealth become almost automatic.
+
+Six Steps to Seven Figures in Seven Years
+Because wealth does become easier to accumulate once you’ve hit a certain level, a good goal is $1 million or $3 million. It’s not necessary to have a $6 million or a $9 million goal. But it’s entirely up to you. This program can generate $1 million or $3 million or $6 million or $9 million. They all use the same principles and same techniques.
+Step One: Recognizing reality. Step Two: Planning to become wealthy. Step Three: Developing wealthy habits. Step Four: Super size your income! Step Five: Getting rich while you sleep. Step Six: Planning to retire early.
+
+34
+
+The Seven Years to Seven Figures System
+
+Reality Check
+You’re not going to become wealthy in seven years by scrimping and saving. You’re not going to become wealthy by spending less money on coffee, by putting aside an extra $15 a week by taking public transport rather than driving your car or by driving a less expensive car.
+If your goal is to become a millionaire in seven years, none of these activities will work for you. You’re not going to become a millionaire in seven years making 10% or 15% or even 17% return on your investments. It will take 50 years or more to get wealthy using those types of returns.
+In fact, the truth is, you’re never going to be get rich in seven years by any sort of passive investing. Motivation is good, but it won’t be enough. Understanding how markets work is helpful, but it’s not going to give you the tools you need to become wealthy.
+If you want to become wealthy in seven years, there’s only one way to do it. You have to follow a proven program for wealth, a program that other people have followed before you.
+Let’s look at some other realities. There are basically four income levels.
+• Under $50,000 of income, life is tough. You’re struggling to pay bills. You’re in stress.
+• If you earn from $50,000 or $150,000 a year, life’s a struggle, too. You’re paying your bills, but you don’t have a lot extra. You can’t buy the toys you want. If you have a family of four children or three children, you’re making ends meet.
+• Above $150,000 life is pretty good. You can pay all your bills on time, you can drive a nice car, you can go on vacations, you can enjoy going out to the restaurant. You can have toys. You can pretty much have whatever you want as long as you keep it in moderation.
+
+The Seven Years to Seven Figures System
+
+35
+
+• Between $150,000 in income and $1 million in income, there really isn’t a lot of difference. It’s just a question of the size of your toys.
+Once your income surpasses the million-dollar mark, then things do change a little bit. But what happens is not the lifestyle necessarily that you enjoy; that doesn’t necessarily get better. What happens is that you have a lot of money left over that you simply can’t spend. And that money goes into savings. It goes into investing, it goes into business, and it goes into real estate. If it happens that you make that kind of money, wealth starts to accumulate very fast.
+But let’s face another reality. The chances are very slim that in the next seven years you’re going to ratchet your income to $1 million or more. So the question is how can you achieve a seven-figure net worth in seven years or less, without a million-dollar income, without a half a million-dollar income? How can you achieve this kind of wealth on an income of, say, $150,000?
+The answer is that the income isn’t coming from your job; it’s coming from passive income such as the equity you gain from real estate, stock, or business investments. What that means is that you have to have an invested net worth of at least $1 million earning 15% or a net worth of $1.5 million earning 10%.
+
+Seven years pass awfully quickly. If you don’t pay attention, you can end up exactly where you are today, but you’ll be seven years older.
+
+36
+
+The Seven Years to Seven Figures System
+
+BIOGRAPHY: Robert Ringer (www.robertringer.com)
+Robert Ringer is a dynamic public speaker and the author of eight books, including three #1 bestsellers — Restoring the American Dream, Looking Out for #1, and To Be or Not to Be Intimidated? (the updated and totally rewritten version of Winning Through Intimidation).
+The latter two works have been listed by The New York Times among the 15 bestselling motivational books of all time. Ringer’s books have been read by millions worldwide and have been published in many foreign languages, including Chinese, Japanese, Spanish, French, Hebrew, Portuguese, and German.
+Mr. Ringer has appeared on numerous national talk shows, including The Tonight Show, Today, Good Morning America, The Montel Williams Show, ABC News Nightline, and The Charlie Rose Show. In addition, he has been the subject of feature articles in such major publications as Time, People, The Wall Street Journal, Fortune, Barron’s, and The New York Times. Further information about Robert Ringer can be accessed through thousands of pages on the Internet, including more than 2 million pages on the google.com search engine alone.
+Robert Ringer’s astute observations of how the world works have helped millions of salespeople, entrepreneurs, business owners, corporate executives, and individuals in all walks of life to achieve their personal and professional goals. This has resulted in an enthusiastic following that is evidenced by the more than 15,000 letters he has received from readers and speech attendees over the years.
+A powerful combination motivator, sales/deal-making strategist, and maximum- performance authority, Robert Ringer inspires and energizes readers and audiences with his thought-provoking perceptions, savvy understanding of human nature, and entrepreneurial techniques for overcoming obstacles and prospering in today’s competitive and uncertain world.
+
+The Seven Years to Seven Figures System
+
+37
+
+Time Management Tips
+by Robert Ringer
+The objective of time management is to increase the amount of time that you spend on product development and marketing. Put another way, you want to focus on actions that create value. That is product development. That’s how you create value. Then, you communicate that value to the world. That’s marketing. Here are some tips to increase the amount of time you have for product development and marketing.
+• Write down your hourly rate on 3X5 cards, and post them all over your office. Then, when you are wasting time, ask yourself, “Is what I’m doing valuable enough to me for me to spend $X per hour?”
+• Always think about how to get more output from less input.
+• Deal only with people who want to deal with you. Don’t deal with people who don’t return your calls, who don’t return your emails, who hassle you, whom you have to chase.
+• Don’t let other people set your agenda. You start the day with good intentions, and how many of you have a list laid out of what you’re going to do for the day and you get a call, and then somebody wants to know this and that, or somebody wants to have a meeting, which is the worst of all. All of a sudden, you realize you’re working on someone else’s agenda. You’re off your own agenda.
+• Eliminate problem people. Avoid deal gabbers, nasty people, relentless debaters, neurotics. A deal gabber is somebody who talks and talks and talks about multimillion dollar deals and all the big deals he’s closed all over the world, but when you’re trying to get him to do a deal with you, he can’t come up with a nickel, or he just got a divorce, or he’s got some other kind of a problem? Avoid deal gabbers. Avoid nasty people and people who like to debate everything. And don’t try and deal with neurotic people.
+
+38
+
+The Seven Years to Seven Figures System
+
+• Don’t overuse email. Especially for things like instructions. Discern when the telephone is the most efficient means of communication.
+• Write emails that are understandable. Proof your emails before you send them to make sure they are easy for the recipient to understand.
+• Don’t respond to a question in a separate email unless you reference what you’re answering.
+• Delegate whenever possible. Remember, the quickest way to finish a task is not to do it.
+• Check back on your delegation or else it’s going to create more work for you, and take more time, and you’re going to have less time to work on productive projects.
+• Network with people who have influence over a lot of people.
+• Take the time to do things right the first time. Nothing takes longer than making mistakes and having to do something over again.
+• Take detailed notes, especially when you’re positive you’ll remember.
+• Use your computer. Take your notes and put them on the computer in the right files. Throw the notes away.
+• Date everything with the year.
+• Always back up your data. Can you imagine anything that will take time away from your productivity more than if your computer breaks down and you lose all your data?
+
+The Seven Years to Seven Figures System
+
+39
+
+Notes
+
+40
+
+The Seven Years to Seven Figures System
+
+Session 4: Step 3: Developing Wealthy Habits
+
+Michael Masterson and Steve Sjuggerud
+
+Exercise: Wealthy Habits
+Take the following questionnaire. Check the line in front of your answer.
+1) How many hours do you work per week? ___a. Part time ___b. Full time (40 hours) ___c. More than full time (40-60 hours) ___d. Way too much (more than 60 hours)
+2) How confident are you that you could rebuild wealth once you achieve it? ___a. Not confident at all. I haven’t even achieved it once! ___b. Pretty confident. If I can do it once, I can do it again. ___c. Very confident. In fact, I’ve already done it at least once. ___d. Confident, but I have no intention of losing it!
+3) Do you have multiple streams of income? ___a. Yes ___b. No
+4) How expensive is your home? ___a. More than $500,000 ___b. Between $300,000 and $500,000 ___c. Less than $300,000 ___d. I don’t own a home.
+
+The Seven Years to Seven Figures System
+
+41
+
+5) How much money do you spend ? ___a. I buy only the best brands. ___b. I try to get deals, but I have to admit I like nice things. ___c. I enjoy spending the least amount possible on the things I buy. ___d. I rarely buy anything, and when I do, I wait for a sale.
+
+6) How much of your income do you save every month? ___a. Nothing ___b. 10% ___c. 15% ___d. 25% ___e. 35% ___f. 40% ___g. 50%
+
+7) Do you pay yourself first each month? ___a. Yes ___b. No
+
+8) How often do you calculate your net worth? ___a. Every week ___b. Once a month ___c. Once a year ___d. Never
+
+Now, check your answers against the habits of millionaires.
+
+Eight Habits of Wealth Builders
+There are eight basic habits that people who have been able to create milliondollar net worths in seven years or less possess.
+
+42
+
+The Seven Years to Seven Figures System
+
+First and most importantly, wealthy people work hard. According to Thomas Stanley, the average multimillionaire works an average of 59 hours a week. Fifty-nine hours a week isn’t 80 hours a week, but it’s considerably more than the 40 hours a week that you think of when you think of an average workweek.
+Two, wealthy people are good at what they do. Wealthy people have poise and confidence because they know that the fortune that they create can be created again. They recognize prospects for business and move in rapidly to take advantage.
+The third habit that wealthy people have is that they enjoy multiple streams of income. Natural money makers make most of their money by practicing a single skill within the context of a single industry. Contrary to what you might have heard from other experts, most money that you make comes from one business enterprise you’re involved in. The problem is, when you begin business you’re never sure what enterprise it’s going to be. So most shrewd business people create multiple streams of income. Some bring in a lot of money, some less, but all have potential.
+A fourth habit of wealth builders is that they live in relatively inexpensive homes. The average house value of a person who’s worth $3.4 million is— believe it or not—only $345,000. The average house value of a person who’s worth $14 million is only $780,000. And the average house value of a person who’s worth $58 million is only $1 million. Admittedly, those numbers predate the recent real estate boom, but you get the picture.
+Understand that with a larger house comes higher property taxes, higher utility bills, and higher maintenance costs. Living in a pricey neighborhood with a fancy house will also lead you to spend more furnishing the inside and to landscaping the outside. To keep up with the neighbors, you might need a fancy car in the driveway and need to send your kids to a expensive private academy. It all comes with the territory.
+
+The cost of your house determines the cost of your lifestyle.
+
+The Seven Years to Seven Figures System
+
+43
+
+When I was growing up, the Masterson clan of 10 squeezed into a small fourbedroom house in New York. In the Peace Corps I lived in a mud hut in Chad. I’ve lived in 5,000-square-foot houses, small apartments, and everything in between. The thing is, my happiness never corresponded to the size of my home or how much I paid for it. In fact, aside from my current house on the beach in Florida, that mud hut was my favorite.
+The fifth habit of wealthy people is that they spend less than they earn. If you don’t spend a lot of money, or if you keep your spending within check, then you have more money to save. The wealthy don’t spend wildly on extravagant luxury items they don’t need. They know they don’t have to go on a buying spree to feel wealthy.
+The sixth characteristic of wealthy people is that wealthy people are extraordinarily good at saving. For ordinary people saving 5% or 10% of their income is an accomplishment. But wealthy people typically save much more than that. Most wealthy people typically save 50% or more of their income. They buy used cars (but quality vehicles that are well maintained), minimize spending on luxuries, usually eat in instead of going out for expensive dinners, and cut costs in other ways. The trick to increasing your savings is just to remind yourself that most of the stuff you’re spending money on becomes much less valuable as soon as you buy it.
+The seventh habit of wealthy people is that they pay themselves first. Paying yourself first means that you set aside money for savings before you spend money on anything else. If your goal is to save 15% of your income, put that 15% away before you pay for anything else. Automatically have that money put into an investment account before you pay anything, including your mortgage, your taxes. By investing that money in a tax-deferred program, such as a 401(k), 403(b), IRA, or SEP, you can literally pay yourself before you pay the government.
+
+44
+
+The Seven Years to Seven Figures System
+
+• Paying a mortgage is taking care of the bank. • Paying taxes is taking care of the government. • Paying a car lease is taking care of the car company. • It’s only when you’re paying for either basic necessities, food and cloth-
+ing and the like, and investing, that you’re taking care of yourself and your family.
+That’s your top priority. That’s what you want to do first.
+
+Here’s a rough guide in terms of saving. If you’re making… less than $50,000 a year, save 10%; $50,000 or more, but less than $200,000, save 15%; $200,000 or more, but less than a half a million dollars, save 25%; a half a million dollars or more, but less than $2 million, save 35%; $2 million or more, but less than $5 million, save 40%; $5 million or more, save at least 50%.
+A primary goal should be to save more money this year than you did last year. You should also increase the percentage of your income that you save each year. These goals have limits, but a priority should be consistently increasing your savings-to-income ratio.
+The eighth habit of wealthy people is that they count their money. To do this, use the worksheet that is included in this workbook [page 18]. Or, create your own. On it, accurately estimate the value of everything. If there’s a question about how much something’s worth, choose the lesser number. Be conservative. Going through this process will train your mind to understand financial wealth as financial net worth. Make yourself a promise that every time you calculate your net worth you’ll be richer than you were the last time you did it. If you’re doing this on a monthly basis, it’s very simple. You’re making a promise that every month you’re going to get richer.
+Those are the habits of people who get wealthy over a longer period of time. But what are the habits of people who create wealth in a short period of time? What
+
+The Seven Years to Seven Figures System
+
+45
+
+do you need to do to create a seven-figure income in seven years or less?
+There are two things that people who acquire wealth quickly have in common. These are the things we’ve already talked about. One is that they usually acquire a specific knowledge or skill that’s financially valuable. This is the skill related to bringing in the most money to the company.
+The other thing is they learn how to sell, how to market, that skill or knowledge. They convince others that they and the skills they bring are essential to success.
+
+46
+
+The Seven Years to Seven Figures System
+
+BIOGRAPHY: Steve Sjuggerud (www.dailywealth.com)
+Dr. Steve Sjuggerud has worked in the investment world as a stockbroker, the vice president of a $50 million global mutual fund, an international hedge fund manager, and the director of several research departments.
+As an expert global investor, Dr. Sjuggerud is frequently quoted in places like WSJ.com and Barron’s. Steve’s latest book, Safe Strategies for Financial Freedom, recently made The New York Times Business Best Sellers list and was a top seller on Amazon.com in the business and investing category. Dr. Steve Sjuggerud is also a member of The Oxford Club advisory panel. Today, Dr. Sjuggerud runs his own 20,000-member investment advisory service, called True Wealth.
+
+Following is an article that Dr. Steve wrote on investing in gold.
+A Safe Gold Play for You
+by Steve Sjuggerud, Ph.D. Editor, Daily Wealth August 2, 2006
+“I just got a call from my friend Van Simmons. He said, “Steve, have you heard about this deal? I’ve been buying all I can.” Van Simmons knows more about making money in collectibles than anyone I know. He’s also one of my recommended coin dealers. I really trust his opinion. Generally, before I buy a collectible, I run the story by him to make sure I’m not missing something. His many decades of experience in a variety of areas of collecting are priceless to me.
+“No I hadn’t heard about that deal,” I told him.
+“I started buying as soon as I heard,” he said. “And my friends are doing the same. We were limited to buying 10 of ’em a day. But once we continued to buy every day, we were then limited to 10 per physical address.”
+Here’s the deal … just over a month ago, the U.S. Mint started selling the first pure gold coin issued by the U.S. Government. It is one ounce of 24-karat, 0.9999 pure gold. These coins are truly exceptional. The coin’s design is based on the original 1913 Buffalo nickel. These exceptional coins should grade out around MS-69 at a
+
+The Seven Years to Seven Figures System
+
+47
+
+coin-grading service like PCGS. [Professional Coin Grading Service]
+Quoting the Mint: “Priced at $800, with a mintage limit of up to 300,000 coins, the American Buffalo Gold Proof Coin will be encapsulated in plastic to protect its pristine proof finish. It is packaged in a blue United States Mint gift box and accompanied by a custom-designed Certificate of Authenticity.”
+Strangely, the Mint priced the coins at a fixed amount of $800. On June 22, when these coins first went up for sale, the price of gold was $583. Van and his friends thought these coins were such a good deal, they started buying right away.
+Since June 22, the price of gold has risen by about $50, to about $630. Since the coins are at a fixed price of $800, what Van thought was a great deal when gold was at $583 is now a fantastic deal with gold at $630.
+Your downside in these coins is extremely limited. There are literally millions of coin collectors in the United States Yet this is a very limited issue of proof coins … They’re the first pure gold coins, and they’re beautiful.
+It is my strong opinion that these coins will always sell above their meltdown value. Proof coins look extraordinary. And a limited issue of the first pure gold coins, in proof form, will no doubt maintain its value, at worst.
+You can buy only 10 of these to one physical address. So that’s $8,000 if you buy all 10.
+The nicest thing about Van’s phone call was: “Steve, I don’t make anything from this deal … you have to buy the coins directly from the Mint. I just thought you’d like to know about it.”
+Thanks for the tip Van. I hope you don’t mind … I’ve passed it along to a few thousand of my friends.
+To order these coins from the U.S. Mint, either call 800-USA-MINT, or order online at www.usmint.gov (click “Buy Online” and then type “BA6” into the search box on the left). International orders are accepted as well.
+One final suggestion, you may want to ship them off to be graded by a grading service like PCGS (www.pcgs.com). They should grade out in the MS-68 to MS-69 range, and they would be sealed in airtight, tamper-proof containers. I’d bet in a few
+
+48
+
+The Seven Years to Seven Figures System
+
+years’ time, they’ll be worth much more of a premium over the price of gold than what you paid.
+Look, it’s pretty simple. You’re able to buy an extraordinary limited-run, proof, pure gold coin, at a better price (relative to the price of gold) than some of the best collectors and coin dealers in the world have paid.
+I think it’s a safe, smart way to own some gold and have some upside potential beyond what you paid.
+But act fast … the U.S. Mint is limiting the sale to 300,000 coins, and once they’re gone, they’re gone …
+Good investing, Steve
+This article originally appeared on www.financialsense.com.
+
+The Seven Years to Seven Figures System
+
+49
+
+Notes
+
+50
+
+The Seven Years to Seven Figures System
+
+Session 5: Step 4: Super Size Your Income!
+
+Michael Masterson and Alexander Green
+
+You’re almost certainly not making enough money.
+This isn’t a popular thing to say, because most people can’t conceive of how they can dramatically increase their income. It seems beyond them. We feel as if we’re a victim of the job we have, the circumstances we’re in. Earning extra income just seems too far away. You can dramatically increase your income. This session will show you how.
+Ordinary versus Extraordinary Employees
+Krista
+Krista is a mid-level manager for a software development firm. Every day, Krista shows up on time, does her job adequately, goes home on time, and waits for her annual vacation.
+Krista doesn’t particularly like her boss. In fact, the less often she can be around that woman, the better.
+Krista isn’t particularly happy about the 2% raise she gets every year. But she doesn’t want to rock the boat or be seen as difficult. So, Krista takes her raise and counts the days until she can retire.
+Krista is a regular, ordinary employee—like millions of other workers around the country.
+
+The Seven Years to Seven Figures System
+
+51
+
+Lynne
+Lynne is also a mid-level manager, but for a toy manufacturer. Lynne has a passion for what she does. She comes in half an hour early, and the janitor will often find her at her desk after hours. It’s not that Lynne is a workaholic or is inefficient. She’s just working smarter. She knows that she can get more done without a lot of distractions. Like many extraordinary employees, Lynne has learned what is important, and she does it.
+Lynne doesn’t really care for her boss on a personal level, but she recognizes that her boss is someone who can give her opportunities. Lynne respects the fact that her boss has traveled her path and has wisdom to help Lynne succeed. So, Lynne does whatever it takes to make her boss’s life easier.
+Because she knows she is a valuable asset to the company, Lynne doesn’t settle for small raises. Every year she gets a decent raise, because she is able to convey all the good she does for her company.
+
+If you want to enjoy an extraordinary income path in your place of employment, these are the things you must do. As you can see from the previous example, you must work longer hours, work harder, and make your work more effective by learning all you can about your job. Do all this and make sure people, especially your boss, notice. You must transform yourself from an ordinary employee to an extraordinary employee. But if you really want to skyrocket your income, if you want to super size it, then you have to be more than extraordinary. You have to become invaluable.
+Invaluable means that your company will pay you any price to keep you. Think about that. Would your company pay you any price to keep you? That’s really the secret of getting this kind of extraordinary income trajectory in your life.
+
+52
+
+The Seven Years to Seven Figures System
+
+Five Steps to Super Size Your Income
+1. As quickly as you can, go from being an ordinary employee to an extraordinary employee, to your company’s most valuable employee, and then become invaluable.
+2. Trade the salary you deserve for profit incentives or phantom equity. 3. Swap your salaried position for a contract as a freelance consultant, a free-
+lance professional, and then take a piece of the profit you create. 4. Leverage your knowledge and contacts to start your own side business. 5. After that business is going well, locate additional streams of income.
+
+How to Become Invaluable
+The first thing you have to do is discover your company’s two most valuable secrets. The business you work for, if it’s successful, has a very specific formula for doing two things: one, acquiring new customers, and two, creating cash flow and profits by marketing to those customers effectively.
+The next thing you need to do is to find somebody at your business who’s willing to be your mentor. Apprentice yourself to someone who will teach you these secrets, and not just teach you the secrets themselves, but teach you how to apply them. You want someone who can teach you the skills that your company actually uses to acquire new customers and to create a strong back end. This apprenticeship period can be the most important time of your learning experience.
+Becoming an apprentice to a powerful person in your business or your industry can be a life-changing event. Not only will you discover how your business works, how it sells its products, and how it makes its profits, but you’ll allow yourself time with a person who is powerful, who is connected, and who cares about you.
+
+The Seven Years to Seven Figures System
+
+53
+
+Making Your Move
+There is going to be a point in your apprenticeship when you will realize you’re ready to make a big change. To transform your job from what it is today to one that involves the key processes in making your business successful, to one that employs the knowledge and skills that your mentor has taught you.
+You’ll be making a lateral, or maybe even a descending, shift to another position, where you can be instrumental in helping your company grow and make profits.
+If this transition seems difficult for you to conceive of, don’t worry, you’re going to take it in small steps. It’s going to come naturally. Before you know it, you’ll be there.
+And finally, when you’re a position in which you’re really helping your company grow, in which you’re creating profits, and in which it’s clear to your bosses and to everybody around you that you’re a key person, not just a key person, but an invaluable person, then you make the final move: You demand your share of the profits you created.
+
+Exercise: School Me!
+Are you an ordinary employee? If so, what are two things you can do to become extraordinary? ______________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+With whom can you apprentice? ______________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+54
+
+The Seven Years to Seven Figures System
+
+What other actions can you take to become invaluable?__________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+Three Kinds of Skills
+In any business, there are basically three kinds of skills. They are ordinary skills, financially valuable skills, and financially invaluable skills.
+Ordinary skills include technical and administrative activities such as bookkeeping, accounting, programming, customer service, that kind of thing. On average, administrative workers get paid the least, with technical folks, with their specialized skills, usually getting more. However, while both groups get pay raises as their performance level increases, there is a level of income at which they will both top out. This happens when they reach the very top of their profession at their company and there is no room for advancement.
+Financially valuable skills are management skills. Those are the skills we usually think of as the most important skills in any business.
+Financially invaluable skills are profit-generating activities, profit-generating skills. The bottom line of all business is profit, and the people who create profits, are the people who get paid the most. Their income increases with the amount of money they bring in to the company. These include the four core profit-generating activities: marketing, sales, new product creation, and also profit management. If you aren’t fulfilling any of these roles and you want to maximize your money-making potential, you must change jobs or open up your current position to take in one of those profit-generating tasks.
+
+The Seven Years to Seven Figures System
+
+55
+
+Exercise: Financially Invaluable Skills
+What are four examples of skills that you have that are financially invaluable? _______ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+56
+
+The Seven Years to Seven Figures System
+
+Be Free(lance)!
+Here’s a related technique that’s especially good for administrative or technical people. What you want to do is swap your job for a freelance position. Now don’t try this technique until you’ve gone from being an ordinary employee to an extraordinary employee.
+As an extraordinary employee contributing significantly to the company’s bottom line, you can ask for a sizable salary increase or instead point out you could do the same work as a freelancer. Your boss might not like it at first. You have to point out the benefits to the business and to your boss of your going freelance. Your boss might come around when he or she realizes that the extra compensation is a fraction of the amount you are making the company. In a growing company, a pay raise or becoming a consultant shouldn’t be an issue if you are an extraordinary employee, but in established companies you will more likely have to transition into a consultant to get that increased income.
+Approaching your boss as a potential client can be tricky. You have sell the idea to your boss effectively so that she or he sees only good things (less stress, time saved, fewer people to manage) coming out of this new relationship. Don’t focus on the money yet. If you are shot down, stay on salary while you reach out to other potential clients. You study their business and figure out what you can offer them. It’s almost like looking for a new job, but you are marketing your own freelance services.
+
+Self-Employed versus Owning a Business
+The next step is turning your freelance professional business into an incomegenerating business. Being self-employed is working for a company that you own that pays you a salary that’s equivalent to what you would probably make anyway working for somebody else. This is a problem many freelance professionals face. The problem is that they’re working by the hour.
+Having a business is completely different. An income-generating business is a business in which you have employees, in which you have a half a dozen or
+
+The Seven Years to Seven Figures System
+
+57
+
+maybe 100 employees working for you, and you’re getting the advantage of the leverage between what you’re charging for their time and what you’re paying them.
+A freelance professional is always tied to the hours he or she works. The highest-paid freelance professionals in America earn between $400 and $500 an hour. That’s a lot of money. Five hundred dollars an hour is $1 million a year. But as a business owner, you can earn much more than that. Some top CEOs make $5,000 to $50,000 an hour.
+So you want to convert your freelancing into an income-generating business. Here’s how you do it. First, you create a Rolodex of everybody who is anybody in your industry. Next, you study how the profession that you’re in is marketed. How do the top freelance professional firms get their clients? Figure out how they do that. Learn how to market, and then start advertising for more business. As business comes in, hire somebody to work for you. Hire somebody to do the work that you’re doing. And as soon as he or she gets busy, hire someone else.
+Once you become known as being very good at what you do—and the secret to being very good at what you do is to learn the marketing secrets we talked about and to narrow your specialization of skills. For example, while there might be a million freelance website designers out there vying for a limited number of jobs, if you specialize and excel at designing sites for Caribbean resorts, you will have great appeal to your clients—by being very good at the particular thing you do, people will recognize you, and they’ll come to you with offers. They’ll come to you with job offers. They’ll come to you with joint venture opportunities. They’ll come to you with investment opportunities. Most of them you won’t have time for. Most of them won’t be appropriate. You want to stay away from anything that’s not very close to what you do.
+
+The secret to adding extra streams of income to your main income is to always take one baby step at a time.
+
+58
+
+The Seven Years to Seven Figures System
+
+You’ve got to understand the two key secrets of your business. You’ve got to shift your job toward the cash stream, shift your job toward the part of your business that’s producing the profits. Become proficient at a financially valuable skill. Use that knowledge and those skills to become a freelance professional. And then turn that freelance situation into a real business by hiring people to do the work for you and by focusing on the sales and marketing. And then, finally, accept those opportunities that come to you to create second and third streams of income.
+
+The Seven Years to Seven Figures System
+
+59
+
+BIOGRAPHY: Alex Green (www.oxfordclub.com)
+You won’t find many men or women of Alexander Green’s talent or integrity on Wall Street. At the height of the stock market boom, he walked away from a prestigious position with one of the country’s leading money management firms — retiring from Wall Street at the ripe old age of 43, saying “no thanks,” and returning more than half of a $510,000 signing bonus. He then became Investment Director at The Oxford Club — a private financial organization dedicated to building and preserving the wealth of its members, independent of Wall Street’s dubious influence.
+When Alexander Green isn’t making money for Oxford Club members and his premium trading service subscribers, his market views and observations are constantly in high demand. He’s been profiled on Forbes.com, has written for Louis Rukeyser and several other leading financial publications, and was recently featured on the Fox News Channel’s The O’Reilly Factor.
+Alexander Green currently writes and directs The Oxford Club Communiqué and the Oxford Insight e-letter, and he’s a top rated speaker at financial conferences around the country.
+
+Five Immutable Laws of Investment Success
+by Alex Green
+1. Nobody cares as much about your money as you do, so don’t just turn it over to somebody else to take care of it for you.
+2. Your asset allocation is your single most important investment decision. Read The Intelligent Asset Allocators to learn more about this.
+3. The best way to beat the market is not through economic forecasting and market timing. It’s through security selection.
+4. You have to diversify broadly rather than trying to cherry pick what a newsletter recommends.
+5. You have to stick with the discipline. Don’t run to take profits or make excuses why something’s not working. Discipline yourself to stick with the program.
+
+60
+
+The Seven Years to Seven Figures System
+
+Notes
+
+The Seven Years to Seven Figures System
+
+61
+
+Session 6: Building a Business the Seven Years to Seven Figures Way
+
+Michael Masterson and Paul Lawrence
+
+The Entrepreneurial Personality
+While some people do indeed have “naturally entrepreneurial” personalities, you can be a complete success in business without one. In fact, some people who are natural entrepreneurs don’t stand a chance in being successful because they don’t know the steps you are learning in this program.
+The secret to success is not avoiding failure, but accelerating it.
+You have to be willing to go to a customer whom you’ve never met and somehow ask for a sale. You have to be willing to risk a little of your time or money to try something that may not work. You have to be willing to fail.
+We all need to commit a certain number of failures before we achieve success; what you want to do is get them done as quickly as possible. You want to fail intelligently. You don’t want to make the same mistake two or three times. Then you’re pretty stupid. You’re not going to be successful. But if you can understand the principle of what you’ve done wrong and apply it to your next effort, then you’re going to be okay.
+Franchising and Network Marketing
+These are great businesses if you’re selling the franchise and if you’re selling the network marketing opportunities. The bottom line in business is this: You make your money by selling, not by buying.
+
+62
+
+The Seven Years to Seven Figures System
+
+The sellers are the people who are making money. They’re the people who have the profit margin. When you buy a franchise, you don’t get richer, you get poorer. You get poorer by the amount that you invested in that franchise.
+The same is true in network marketing. When you pay the fee to be a network marketer or when you buy the products that are necessary, you’re getting poorer.
+The question is, Will this investment pay off? And the answer is, It depends. It depends on the franchise, and it depends on the payoff. These are businesses, generally, that when you get into them, are already very well established. You’re coming in as a little guy in a big business. You’re basically an employee. When you get into a franchise business or a network marketing operation, you’re really working for somebody else who has that knowledge and those skills and that control. You really don’t have those things.
+They turn out to be self-employment opportunities. Yes, you can make $50,000. Yes, you can make $80,000. Can you make $2 million or $3 million?
+Yes, people are making $2 million or $3 million and $20 million and $30 million. There are plenty of evidence of that, but those are the people who started those businesses. Remember, those things are businesses in and of themselves, and it’s the people who are at the top of the chain who are making the big money.
+
+Intrapreneurship
+
+An intrapreneur is a person who starts or manages a new business within an already established company or group.
+
+Is it truly realistic to believe that you can go the intrapreneurship route and still achieve that seven figure goal? Well, the answer to that is it depends on how you do it.
+
+The Seven Years to Seven Figures System
+
+63
+
+If you’re working for a big corporation, let’s say a billion-dollar corporation, and you’re an administrative assistant, you’re not going to be able to do it in that business, that’s for sure. If you’re working for a $500 million business, you’re probably not going to be able to do it either.
+Generally speaking, the businesses where intrapreneurs can succeed are businesses that are small and growing. Remember, it’s critical you have to be in that growth curve. You can’t do that with a large business. You certainly can’t do it if you’re a corporate executive in a large business, unless you get the company to allow you to start your own division.
+
+Exercise: Enter the Intrapreneur
+If you’re thinking of becoming an intrapreneur, use the following checklist to evaluate your prospects of success. • Do you have a clear vision of “how” as well as of the final objective? • Are you independent and not overly dependent on your boss? • Are you a moderate risk taker—optimistic, but not out of touch with reality? • Do you have a “fire in the belly”—passionate about the idea? • Do you see the barriers clearly and plan ways to circumvent them? • Have you used whatever freedom has been available to act innovatively? • Have you inspired others to help, even when they were not assigned to you? • Are you trustworthy and honest? • Even when bending the rules, do you work in the best interests of the company and
+its customers ?
+
+It’s not always easy, but it can be done, and it doesn’t take that long.
+
+64
+
+The Seven Years to Seven Figures System
+
+BIOGRAPHY: Paul Lawrence
+Paul Lawrence is an entrepreneur who has made his living starting and running a series of profitable businesses.
+One day while cleaning his mother’s pool for a few extra bucks, it dawned on Paul that he could perhaps start his own pool cleaning business. He carefully employed all the marketing techniques that he had learned in school and designed his first flyer. Immediately the business took off, and, within a week, Paul had his own little business. He quickly expanded, hired employees, and then eventually sold it to some relatives who made well over $250,000 in the next year before they eventually sold it for a six-figure profit.
+After finishing college, Paul did a brief stint in a management program for a national rental company, but he quickly realized that he was much happier running his own show. Paul left the rental company and launched one of the most financially successful independent ballroom dance instruction companies in the state of Florida, where he received quite a bit of media attention for his revolutionary business practices that included frontpage features in the Lifestyle section of the Sun-Sentinel, features in the Miami Herald, Boca News, Center Stage Entertainment, and many others.
+With that business running profitably, Paul started several other businesses, either individually or as partnerships, that included a million-dollar video production company, a mortgage brokerage, a home maintenance business, several mail order companies, and a business consulting service among others.
+Paul is the creator of the Quick & Easy Microbusiness System
+
+The Quick and Easy Micro-Business System
+What is a micro-business? A micro-business is a business that you can start with little to no capital, and in many cases, maybe with as little as $100, or even less, and it’s one that can be started part-time, and one that can be started by one person. That doesn’t mean you have to do that. You could invest more money in it. You could have partners; you could have employees. You might decide to launch it full-time. But, the point is, these kinds of businesses are ones that you can start while you’re perhaps doing one kind of activity to make a full-time living and hoping to slowly move into something else.
+
+The Seven Years to Seven Figures System
+
+65
+
+What Kinds of Business Make Good Micro-Businesses?
+In addition to basic service businesses (such as dog walking and pool cleaning), there is a huge array of different businesses you could apply these principles to, many white-collar businesses. Everything from these bread-and-butter businesses, to home maintenance businesses, employment counseling, résumé writing service, matchmaking service. There is virtually an infinite number of ideas that you can come up with. For a lot of these businesses, there are very large markets, which is a critical element.
+
+Exercise: Micro-Brainstorming
+How many ideas for micro-businesses can you come up with? Don’t limit your ideas to ones that you would necessarily want to do. Simply come up with as many microbusiness ideas as you can.
+__________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+66
+
+The Seven Years to Seven Figures System
+
+A micro-business does not have to be a small business.
+
+Positioning the Business
+Basically, positioning of your business is how you’re going to tell people that they want to do business with you. For many service businesses, having a low price is the fastest way to guarantee yourself a piece of the market. And, if you keep a low overhead, find ways to economize, and are maybe willing to take a little less profit, you can frequently substantially undercut your competitors.
+If you want to position yourself as a premium business, then you want to position your business as high quality rather than low price. But don’t try both or you’ll lose your credibility. You have to have a consistency in your offering.
+One way to leap in and grab a share of the market is to determine something that is missing in the current marketplace, and do it differently.
+
+Exercise: Position Yourself
+For five of the micro-businesses you identified earlier, make note of the best positioning for each business. How can it position itself apart from the competition? 1. _________________________________________________________________________ 2. _________________________________________________________________________ 3. _________________________________________________________________________ 4. _________________________________________________________________________ 5. _________________________________________________________________________
+
+The Seven Years to Seven Figures System
+
+67
+
+How to Get All the Business You Want for Less than $100
+The best way to get all the business you want for less than $100 is the flyer method. It’s one of the key elements of the micro-business program.
+If you print up 1,000 flyers and get a 2% response, that’s 20 customers that you can have almost in the blink of an eye. If you put out 5,000, you have 100 customers. By the time you have 100 customers, you have a real business going.
+The Headline: The headline is the thing that’s going to grab their attention right away. But, you’ve got one second to say something that’s going to make them respond. Whatever your positioning is (low price, speed, etc.), put it in the headline.
+Personalize It: One of the things that you have as a small business is the ability to develop a rapport with people that a larger company can’t really develop. So, be sure to put a picture of yourself on the flyer.
+Benefits: In these sections, list what you do, not as actions, but in terms of how they will benefit the customer. So, instead of “we vacuum your pool every week,” put “your pool will be free of debris.” You can increase the benefit of what they’re getting by showing a cumulative effect. If your savings is $15 a month, don’t tell them they can save $15. Tell them, Look, in the first year, you’re going to save $180. In the next five years, you’re going to save $900. So, now, you’ve made the person think, All I have to do is pick up the phone and I can save $900. So, you know, that sounds like a good deal.
+The Velvet Rope: Many times you see a hot-spot nightclub, and there’s a velvet rope with a whole bunch of people standing on the other side of it, and they all want to get in. When you see those people waiting to get in, it’s a natural instinct to wonder what they are doing and to want to do it too. To enhance your flyer, add in a “velvet rope.” Always put in something that makes it sound as if this is a limited opportunity for people, and, if possible, make some kind of logical reason why, so people can believe it.
+
+68
+
+The Seven Years to Seven Figures System
+
+Testimonial: Always put in some “proof.” This is giving some people a reason why they can believe that your claims are what they are. One of the best things that you can use is testimonials—they’re really powerful.
+Call to Action: The last thing you want to have on here is your urgent call to action. You want to make sure that your number is big and easy to see and that you throw in a call to action—call today, there are limited openings, something to make them act.
+
+Postcards
+Now, you might be saying, well, this flyer is great, but flyers don’t necessarily work for every business. If you have something like a lawn business, or a pool business, or a home-cleaning business, well, all you have to do is find some single-family neighborhoods, that aren’t gated, and you can go and stick your flyers out and no problem. You can get started.
+But, if you have a different kind of business, you know, it may not be as easy to reach them. Maybe it’s a gated community, or maybe it’s people who are a specific demographic. Maybe it’s people that are job hunting, people who want to make investments, people who are singles, or what have you. One of the best things that you can do is take this device and use postcards. Postcards may seem small, but you can actually fit on them about 80% of what you can fit on a full-page flyer.
+For a small amount of money, you can develop a lot of business.
+
+The Seven Years to Seven Figures System
+
+69
+
+Notes
+
+70
+
+The Seven Years to Seven Figures System
+
+Session 7: Secrets of Real Estate Investing the Seven Years to Seven Figures Way
+
+Michael Masterson and Steve Cook
+
+Flipping Out
+Real estate is a very dependable way to generate wealth, and it can be an ideal way to start a second income stream. To create short-term income for real estate, there’s only one kind of activity that you need to do and that’s buying, rehabbing and flipping properties. Normally when people say income-producing real estate they’re talking about rental real estate. That type of real estate does produce income, but it won’t produce income in the first few years. It probably won’t produce any substantial income for the first seven years, so it’s not appropriate for the program we’re talking about. It’s a very good thing to do for your retirement, but it’s not good for short-term income.
+For short-term income, you want to buy underpriced real estate, and there will be plenty of opportunities in the next couple of years. This type of property— that which is available below current market value—takes a bit of work and research to find, but it is what will allow you to make the most profit when you turn around and sell it. Basically, buy low and sell high. You must also study the local market (start out in an area you are familiar with) and find out the average price per square foot in the target neighborhood. With this information on property values, you can focus on the good deals. Keep an eye on the area you want to buy in, checking real estate listings regularly, always on the lookout for the undervalued properties. Move quickly when you find those deals.
+Property values in the area you are interested in should also be appreciating. Steadily improving neighborhoods are ideal for this. If the home needs work, do it as cheaply as possible, focusing on the improvements that will bring the high-
+
+The Seven Years to Seven Figures System
+
+71
+
+est return when you sell it. Another tip: Always have a thorough inspection performed on the property by a professional before you buy. You never know what hidden problems the building has. If there are major problems with the electrical or plumbing, stay away.
+Before you buy, it is also important to have a backup plan in case you cannot sell the property. This will mean renting the property. Find out local rental rates, and figure out how much you will have to charge to cover your mortgage payment, taxes, insurance, and other costs.
+Here is how to work that strategy into what we’ve discussed so far. Focus 90% of your time on your main income-operating business. When you’re generating extra income from that, put some of that into income-generating real estate, into buying flip real estate. As the business gets up and running, accept other offers, business opportunities, joint ventures, working partnerships. Accept other offers to initiate second and third streams of income. Find great people to run these businesses for you so you can continue to spend most of your time on your main business. Start with a controlling interest and gradually reduce your interest so you’ll maintain a healthy relationship with your protégé.
+Case Study: Jeff
+Jeff is a successful entrepreneur. He owns a large veterinary hospital (he’s not a veterinarian, but his wife is). Jeff enjoys an income of $2 million a year from his main business. He has a second business, a joint venture with a dog-washing business, which earns him $200,000. He also has several micro-businesses (a pet-sitting service, an in-home animal training business, and his favorite one—pet photography). His protégés run each of these businesses (although Jeff does like taking the pet photographs as often as possible) and from these he’s earning more than $500,000 a year. Jeff also has some local real estate rental income, $100,000; from company-owned real estate income, $100,000; and from passive investments, $400,000. That’s more than $3.5 million a year, all coming to Jeff on a regular basis from various streams of income that he produced, all originating from his first business, which originates from his first set of skills, becoming a financially and valuable person by learning how businesses
+
+72
+
+The Seven Years to Seven Figures System
+
+operate at their core, learning how to acquire new customers and learning how to take those customers and turn them into multiple buyers of better and more expensive products.
+
+BIOGRAPHY: Steve Cook
+His first course, Wholesaling for Quick Cash, has changed the lives of thousands of people across the country. Today Steve is regarded as the best real estate investing teacher in the country by many of his peers. You will no longer find Steve out on the seminar circuit hawking his books and courses. He has discovered that his true calling is teaching and changing lives, not high-pressure sales at the front of a room. If you desire to learn from Steve, you can do so for free through his website www.FlippingHomes.com. He offers many articles as well as an active online forum in which all of your questions can be answered by experts throughout the country.
+Nine Steps to Quick Cash: The Anatomy of a Wholesale Flip
+by Steve Cook
+Wholesaling properties for quick cash is something that anyone can do, even the beginning investor. In this article, I would like to give a brief introduction to the world of wholesaling, going over the nine basic steps that are involved in flipping a property.
+Step 1) Make your offer: Whether you pursue FSBOs (For Sale By Owners) or properties listed on the MLS (Multiple Listing Service), you’re never going to be able to flip a property unless you first make an offer. In making your offer, you need to keep your customer, the rehabber, in mind. It should be based upon a conservative estimate of the market value of the property after repairs, less a profit margin for the rehabber, money for closing costs (both for buying the property and for reselling it to the retail buyer), money for holding costs, money for repairs, and last but not least, a profit margin for you, the wholesaler. Typically, I deduct the greater of 30% or $25,000 for profit, closing and holding costs, money for repairs, and about $5,000 for my wholesale profit.
+
+The Seven Years to Seven Figures System
+
+73
+
+Step 2) Once the offer is accepted, sign the contract to purchase property: Once your offer is accepted, you will meet with the seller (if it’s an FSBO) or your real estate agent to sign the contract and give the seller an earnest money deposit.
+Step 3) Start the title work: After signing the contract, contact your settlement attorney (title company, escrow company, etc.) to start the title work on the property. They will order a title search and schedule a settlement date. There are two reasons to start the title work ASAP. First, you want to be ready to settle when you are supposed to settle. Second, in the event that you find a buyer who claims to be ready to buy, you want them to be able to settle right away.
+Step 4) Begin marketing to find a buyer: There are two main avenues that I use to market my properties. First, I’ll call the people on my buyer’s list to see who might be interested. As I’m doing this, I will place an ad in the Investment Properties section of the Sunday paper for the upcoming weekend. Here’s an example of an ad that I’ve used in the past: Fixer Upper*123 Main St., $80k comps, only $40k (xxx)xxx-xxxx
+Step 5) Come to an agreement with a prospective buyer: At some point, someone will show interest in your property. Whether you have one potential buyer or multiple potential buyers will depend upon the deal. Each one is different. The more buyers you have, the less flexible you need to be in reaching a final sales price.
+Step 6) Qualify the prospective buyer: Make sure the prospective buyer either has the cash or a line of credit (ask for proof of funds if the buyer says he or she does) or will be able to borrow the money from a private (hard money) lender to purchase your property.
+Step 7) Sign a contract with your buyer and collect a deposit: After verifying your buyer’s source of funds, meet with the buyer, execute a sales contract or an assignment agreement with the person, and collect a deposit. The sales contract serves as the receipt for their deposit. Either handwrite or include typewritten verbiage somewhere on your contract, a statement such as the following: “Received $(insert dollar amount) as an earnest money deposit on (insert date)” and initial it once you receive their deposit. You might also include their check number or write “CASH” if they give you cash.
+
+74
+
+The Seven Years to Seven Figures System
+
+Step 8) Submit the executed documents to the title company: Submit both items—the executed contract with the original seller and the executed sales contract/assignment agreement with your buyer—to your attorney (title company, escrow company, closing agent, etc.) and schedule a settlement date.
+Step 9) Go to the settlement: Go to the settlement, pick up your check, and celebrate!
+Real Life Experience: When I first started in the business, I believed everyone who signed a contract to buy a home from me. I believed everything they told me and took their word. Often, I got burned; however, it didn’t take too many slaps in the face before I realized that I needed to take control of the entire process. At that point, I decided to control every deal by lining up contractors, lining up the lenders, starting the title work myself through my attorney, and mandating that my buyers use my attorney. Before taking control, I estimate that about 25% of my deals didn’t settle with my first buyer. Since taking control, that percentage has been reduced to about 5% of my deals.
+This article originally appeared on www.reiclub.com.
+
+The Seven Years to Seven Figures System
+
+75
+
+Notes
+
+76
+
+The Seven Years to Seven Figures System
+
+Session 8: More Secrets of Real Estate Investing the Seven Years to Seven Figures Way
+
+Michael Masterson and Justin Ford
+
+Real Estate Wrongs
+The economy is strong. Howard and Sarah feel confident about their prospects for the future. As a result, they spend money. They eat out more, buy new cars, and … they buy a house.
+Then, for one reason or another, the economy slows down. The company Howard works for lays off employees, and people are more careful about where they spend money, perhaps saving more than usual. As a result, the economy decelerates even further. If it slows enough, we have a recession.
+During such a time, fewer people are buying homes. Even so, some homeowners find themselves in a situation where they must sell. Families grow beyond the capacity of the home, employees get relocated, and some may even find themselves unable to make their mortgage payment—perhaps because of a layoff in the family. When the supply of available houses is greater than the supply of buyers, appreciation may slow and prices may even fall.
+Typically, real estate investors buy at the wrong time. They buy when the market is peaking, they lose all their money, and then they have no cash to invest when the market is at the bottom.
+It is vital to understand these trends. Also understand that property does not always go up in value. Certain parts of the country are not subject to national trends in rising property value and have had not significant increases in many, many years. You have to identify and go to where the growth is.
+
+The Seven Years to Seven Figures System
+
+77
+
+BIOGRAPHY: Justin Ford (www.mainstreetmillionaire.com)
+Justin Ford is an active investor in real estate and global stock markets. He is also a veteran financial writer. He has published, edited, and written for more than a dozen international investment newsletters, including launching the U.S. version of the Fleet Street Letter, the oldest continuously published newsletter in the English language. He is the author of Seeds of Wealth, a program for getting children to adopt good money habits from an early age, and he is the editor of the Seeds of Wealth Quarterly Investment Update Bulletin. He is also a contributing editor and author to a number of books on personal finance, including Michael Masterson’s Automatic Wealth and Dr. Van Tharp’s Safe Strategies for Financial Freedom, as well as the author of Main Street Millionaire, a valuefocused real estate investment program.
+
+What It Takes to Be a Successful Real Estate Investor
+by Justin Ford
+There are three habits that most successful real estate investors practice—habits that just about anyone can develop:
+1. Diligence.
+They thoroughly research the areas they’re working and the properties they’re considering buying before they pull the trigger.
+2. The willingness to act.
+While they insist on doing their homework, they don’t suffer from “analysis paralysis.” Once they’ve got the answers to some fundamental questions about a property, they make the offer, get the property under contract, and (if no unhappy surprises arise during the due-diligence period) they close.
+3. The practice of investing in themselves.
+To improve their ability to find and fund deals and maximize the value of every property they buy, they read, talk with other investors, take home-study courses, and attend local clubs and seminars.
+As you can see, what you need in order to succeed as a real estate investor has a lot more to do with your attitude than it does with your ability to do things like crunch numbers or swing a hammer.
+
+78
+
+The Seven Years to Seven Figures System
+
+Along these lines, I’d like to offer one more habit that I hope you’ll develop—a habit that most people don’t associate with investing: Humility.
+Having humility means you recognize that some things are beyond your control … so you invest accordingly.
+For example, you may be convinced that interest rates will fall soon. But should you hang your hat on that idea? After all, even Ben Bernanke, chairman of the Federal Reserve Board, has limited influence over long-term interest rates.
+So why take one of those short-term adjustable-rate loans and expose yourself to the risk of interest rate hikes when you don’t have to? Even if you intend to “flip” the property you’re buying (fix it up and quickly sell it for a profit), why not fix your rate … at least for a few years longer than you intend to hold the property?
+That way, if your flip works, fine. You paid a slightly higher rate for a very short period of time. (Think of it as paying interest rate insurance.) However, if your flip doesn’t work as expected and you have to rent out the property and hold it for a while, you won’t find yourself hammered by rate hikes and higher payments.
+Here’s another example of what I’m talking about. Let’s say you find a great value and growth market. The prices make sense compared with local incomes and rents. The population is growing, jobs are on the rise, and the economy is diversified. Everything about this market looks beautiful. So why try a flip on that luxury singlefamily home when it won’t even come close to cash flowing if the flip flops?
+Have the humility to ask yourself, “What if I’m wrong? What is my downside?”
+If the downside is that you’d have to rent it out with a negative cash flow of $1,500 a month … do you have the savings or a credit line that would allow you to do that? Even if you do, you’ll eventually have to pay the money back. Do you have the stomach for that kind of loss?
+Another example: You’re buying raw land that produces no rental income at all. It’s in a hot area, and you expect to make a fast fortune when property values skyrocket and a big developer buys you out. But what if you’re wrong? What if the market stalls … even falls?
+Can you afford to have your cash tied up in that land if you have to hold it? Can you make the payments if you’ve financed the purchase? Can you subdivide the land to make it more marketable and get your capital out? Can you get it rezoned to
+
+The Seven Years to Seven Figures System
+
+79
+
+increase its value? Did you buy it at a discount to market value so that, if you sell, your chances of breaking even or making a little money even in a slow market are good?
+By all means, have the courage of your convictions. But don’t be naive. Don’t think that just because you expect something to happen, it has to happen that way.
+Be confident enough to pursue deals that have a high likelihood of success. But be humble enough to run a few negative scenarios through your head before laying down your money. If the upside is good and you can live with the downside, you may have found a very good investment—one that suits your financial situation and your temperament.
+If you’re a beginning investor, an investor who hasn’t yet developed sufficient cash channels (debt, equity, or both), or an investor who simply doesn’t like to speculate … your best bet is to buy cash-flow properties at or below market value in markets that are themselves undervalued.
+That way, if things don’t go exactly as you expect, you can at least expect to withstand any market downturn … because you’re buying with cash and equity cushions built into the deal.
+This article originally appeared in the Early to Rise e-zine.
+
+80
+
+The Seven Years to Seven Figures System
+
+Notes
+
+The Seven Years to Seven Figures System
+
+81
+
+Session 9: Step 5: Getting Rich While You Sleep
+
+Michael Masterson and Matt Furey
+
+If you are looking to become wealthy in seven years or less, the number one thing that you’re looking for is return on investment. As we explored in this program, you can’t possibly be satisfied with 10% or 15% or 20% or even 25%. You’re shooting for 50% to 100% return on your investment. There are only two ways to get that kind of return: buy-and-flip real estate and business.
+Don’t Be Passive
+You’ll never, ever generate 100% ROI consistently in any passive financial instrument. The nature of the financial universe is you can’t make that kind of return passively. Nature tells us we have to work for our money. If we want big rates of return, we have to work hard for them … and working hard means being in an active business.
+Finding a Profitable Business
+How do you find these profitable businesses? How do you decide what you’re going to do? Well, the first thing you want to do, if you can, is look in your own backyard. You already have a great deal of knowledge about the business, the industry that you’re in right now. So you want to see if you can start there. It’s always better to start with what you know than to go out and have to learn something new.
+
+82
+
+The Seven Years to Seven Figures System
+
+Exercise: Something Old ...
+What is the potential for starting a business in the industry you’re currently in? Here are some specific questions you can ask: Is it a professional business? Is it a service business, retail, wholesale, or is it manufacturing? Each of these different types of businesses has different potential. Can the business give you that 100-plus percent ROI every year, that growth?
+__________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+If you’re involved in providing professional services, you’re not in an industry that can give you that kind of growth. You’re not really in a business; you’re in a self-employment occupation. Service businesses are also difficult for building rapid wealth.
+Retail businesses are the toughest businesses to be in. They have all the characteristics that you’re not looking for. They’re expensive to start. They require an enormous amount of your time and attention. They’re stressful, they’re unsatisfying, and they don’t deliver profits. Most of the time, if you want a retail business, you’re lucky to be making a living.
+Wholesale businesses are pretty nice businesses. But the best sector for generating a high ROI is manufacturing businesses. The key components of the manufacturing business are threefold. One, you can control the cost of production. Two, you can determine the price you charge. Three, you can take advantage of the buying frenzy of your customer with back ends, including upgrades and repeat buys, thus increasing your profits.
+Three Things to Look For
+But whatever sector you choose, make sure you look for three things. First, look for efficiency of customer acquisition. Find out how you get new customers.
+
+The Seven Years to Seven Figures System
+
+83
+
+How much does that cost you, and how much are they worth? That’s what you really want to know. How customers are acquired, exactly how they’re acquired, what are the marketing methods that bring new customers in, which are the ones that work and which are the ones that don’t work, and where are they located? And then you want to find out how much they cost, not just the marketing efforts themselves, but the acquisition of an individual customer. And then you want to know what that customer is worth to you. What the customer is worth to you in the first year and what he or she is worth to you on a lifetime basis. These are critical numbers to know.
+The second thing you want to look for in a great business is a high profit margin. These are businesses that have low cost of goods compared with price. Having a high profit margin gives you something that you really need when you’re starting a business, and that’s cash flow. When you have a business that has inventory and receivables, you don’t have cash flow, you have problems. High-profit-margin businesses give you what you need to reinvest cash in your business and to make it grow quickly, and that’s what you need to create sevenfigure income in seven years. So look for that, a high profit margin.
+The third thing you should look for is back end potential. back end is everything you do with your customer after the first sale. You know, if you sell a customer a widget, the best thing you can do for him, as far as he’s concerned, one minute after he just bought that widget, is what? The answer is, sell him a second widget. And what do you do with him after that? You sell him a bigger and better widget. This is the buying frenzy mentioned earlier.
+
+The Information Manufacturing Business
+Of all the types of manufacturing businesses there are out there, the best for high ROI is the information manufacturing business.
+Information manufacturing means book publishing, newsletter publishing, magazine publishing, production of seminars and conferences, tele-seminars, Webinars. We’re also talking about audio tapes, CDs, DVDs, and movies. The entire movie industry is an information business; so is television, so is radio,
+
+84
+
+The Seven Years to Seven Figures System
+
+and so are records. All these things that comprise what we do on our time off, how we amuse ourselves, all these things are part of the information business. This is a very large part of the world economy. It’s a trillion-dollar part, and it’s the part of the world economy that’s growing the fastest. As the world becomes wealthier and as the Internet links us all together, the opportunity for the information-publishing industry is growing enormously.
+Because of the computer and the Internet, the information business has been entirely transformed in a very, very exciting way.
+
+Go Electronic
+Here’s what electronic publishing gives you. First of all, production costs drop dramatically when you become electronic; so do storage costs. Storage costs go down to almost nothing; so do delivery costs. Forget about paying for envelopes, for postage, for letter shop. You can deliver everything electronically for next to nothing. And customer service costs, they drop dramatically, too. But of all the things that matter in terms of information publishing, the most important is the cost of having a relationship with your customer.
+Case Study: James and the Giant Piece (of the action)
+A person writes a book. James pays him $5,000 for the rights to the book. What can James do today? He can sell it first as a regular book and make $24.95 on each and then can convert it to an e-book and sell it to the customers who didn’t want to pay $24.95, for $12.99. James now has a second product and a second income stream.
+After James has sold his e-book, he takes that book and breaks it down into chapters, and then gives each chapter to a writer and asks that writer to make it more specific and more actionable. He turns it into a special report, and then James sells the special reports for $100 each.
+
+The Seven Years to Seven Figures System
+
+85
+
+James then gets those writers to turn those special reports into Webinars and tele-seminars, and as they get better at delivering that information, as they become more expert at conveying those ideas, James begins to charge more and more for those Webinars and tele-seminars. They start at $200, go to $400, and eventually James is able to sell them for $1,000. Remember, this is all something that began with a $5,000 fee. It’s suddenly turned into 18 different products that James is charging anywhere from $25 for the original product to $1,000, or even $5,000 for a coaching program at the other end.
+Imagine this kind of leverage in terms of production costs versus income.
+In the old days, you couldn’t keep an unlimited supply of any kind of information product around, because it cost money to store it and it cost money to deliver it. But when you can take that information product, a book, a record, what have you, and convert it to electronic data, then you can store it in a database for virtually nothing, and you can deliver it for virtually nothing too. That changes your business entirely. It means you can develop a larger and larger catalog of products that you’ve already sold that you can make available to your customers when they come and buy new products.
+So the ultimate recommendation to you would be if you really want to give yourself the best chance of becoming a multimillionaire in seven years, invest in a start-up Internet-based direct-marketing-fueled information business. Make sure you understand it, and make sure you have some control over it. Start with one. Once it gets up and running, find a protégé and start another one. Your chances of success will be great. Your chances of hitting your target will be almost 100%.
+
+86
+
+The Seven Years to Seven Figures System
+
+BIOGRAPHY: Matt Furey (www.mattfurey.com)
+Edinboro University of Pennsylvania’s Hall of Famer Matt Furey is a native of Carroll, Iowa. He began competing in swimming and wrestling when he was eight years old and, through dedicated practice, became a champion in each sport.
+In 1981, Furey was the state runner-up in the Class 3A Iowa High School State Wrestling Championships at 167 pounds. He attended The University of Iowa from 19811984, where he wrestled for Olympic Gold medalist Dan Gable and was a member of three national championship teams.
+In the fall of 1984, in order to help rebuild a doormat wrestling program, Furey transferred to Edinboro University of Pennsylvania, and in 1985, he won the NCAA II national title at 167 pounds, defeating two-time California state champion Howard Lawson in the finals. While at Edinboro, he was coached by Mike DeAnna and two-time Olympic Gold Medalist Bruce Baumgartner.
+In February of 1987, Furey opened a training business for wrestlers and fitness enthusiasts. Most of the high school wrestlers he trained went on to wrestle in college.
+Furey began studying various martial arts in 1990 and immediately saw the physical, mental, and philosophical links these arts had with wrestling. This led to the publication of his first book and videos in 1996, The Martial Art of Wrestling.
+
+Ten Keys to Success in the Self-Publishing Industry by Matt Furey
+1. Research your market and you find the starving crowd—not a crowd, a starving crowd.
+2. You write the ad for the product, and you put everything into that ad that the audience would want, that would make them buy, every impulse, every hot button, you have everything in there, and you create the ultimate fantasy. Then, start to test that ad. On a website, through email, through a space ad in a magazine, and so on.
+3 If the ad is successful, you create the first product. Start with just something simple like a special report. Sell it for $20 or $30.
+4. Write the second ad. For what? Second product.
+5. Repeat.
+
+The Seven Years to Seven Figures System
+
+87
+
+6. Repeat. 7. Repeat. 8. Repeat. 9. Never stop making new products; never stop marketing your products. 10. Never give up. If your first product (or second, or fifth) doesn’t succeed, don’t
+give up.
+
+This is the business that will give you the lifestyle, the money, the time, the freedom, and everything else you want. Stay on the path, and pretty soon you’ll be hitting the jackpot every time.
+
+88
+
+The Seven Years to Seven Figures System
+
+Notes
+
+The Seven Years to Seven Figures System
+
+89
+
+Session 10: Step 6: Planning to Retire Early
+
+Michael Masterson and Tom Phelan
+
+If you follow this program, you’ll be retired in seven years. What do you do then? What do you do with your time? What do you do with your money? Let’s talk about that.
+Once you’ve achieved your target, your seven-figure net worth, where do you put your money?
+Less than $25,000
+Let’s assume that your investable net worth is less than $25,000. What do you do with your money then? If you have less than $25,000 in net investable assets and you hope to turn that into a million dollars or $3 million or $6 million or $9 million, it’s absolutely impossible to do that unless you get very high returns on your investment. There are only two ways to get 100%-plus returns on your money. One way is buy-and-flip real estate and the other way is entrepreneurship.
+Yes, it seems risky to put all your money in flipping real estate or in side businesses, in businesses that are small and can grow, but if you follow the program that I’ve outlined, learning the secrets of your business, developing a financially and valuable skill, honing that skill, finding mentors, finding protégés, making contacts, then your chances of success are very high.
+$25,000–$100,000
+If your investable net worth is between $25,000 and $100,000, you can mix it up a little bit. This is the time when you can set aside a little bit of money as emergency cash. How much? No more than 10% of what you have. Generally financial planners recommend three to six months’ worth of expenses.
+
+90
+
+The Seven Years to Seven Figures System
+
+At the $25,000 to $100,000 level, the bulk of your financial assets should still be invested in either buy-and-flip real estate or in side businesses. About 10% of what you have can be invested in real estate. About 10% of what you have can be invested in rental real estate. Rental real estate is for longer-term appreciation and longer-term income. This is for your retirement.
+And then, finally, if you want, you can put some money in stocks and/or fixed income instruments, like bonds, but, again, not much, no more than 10% of your portfolio. The key thing to keep in mind when you’re at this level, between $100,000 and your goal, is you have to have most of your money working productively, giving you the highest ROIs, and that means buy-and-flip real estate and small business.
+
+$1,000,000 or More
+When you finally reach your target, when you’ve hit that $1 million mark or that $3 million or $6 million or $9 million target that you set for yourself, how do you arrange your money then? It’s good to think about this now so you can make the transition in gradual steps.
+Keep between 10% and 30% of your portfolio in stocks, and in particular in noload index funds. No-load index funds will basically give you the return that you’ll get in the market overall and they’re very inexpensive in terms of commissions, cost and so on.
+Also put a significant portion of your assets in fixed-income instruments. Fixedincome instruments are things like bonds, in which you’re basically loaning money to a business or a municipality or the federal government in return for a guaranteed rate of return. Since the return on fixed income is guaranteed, the overall returns you’ll get are somewhat less than with stocks
+If you have, say, a quarter of your investments in stocks and a quarter in fixed income, you’re going to be averaging about 8% or 9% on that part of your portfolio.
+
+The Seven Years to Seven Figures System
+
+91
+
+To give your overall portfolio a boost, put the other half in a combination of managed real estate and side businesses.
+When you’re retired, buy-and-flip is too much work, and I also don’t like the idea of managing real estate yourself, because, again, it’s too much work. What you want to do with your rental properties is gradually move from an accumulation of a lot of smaller ones to one or two larger ones, one or two larger apartment complexes, 50 or a 100 or even 500 units. Get a competent professional management company to run that business, pay them what they need, pay them what they deserve, and just take the residuals.
+Of course you want to keep some emergency cash and gold around. I recommend 2% to 5% in each category. Cash is good, because it’s immediately liquid. Gold is good, because it’s private and transportable. And, finally, devote between 2% and 5% of your portfolio, your retirement portfolio, into play investments. A play investment is something that you’ve always wanted to do, some kind of business or enterprise you’ve always wanted to get into, but you never did, because you always suspected that it would not be profitable.
+If you arrange your investment portfolio this way, what you’ll be getting is about 10% on your stocks, about, after tax, 7% or 8% on your bonds, and you’ll be getting 20%, 30%, 40%, maybe 50% on your managed real estate. You’ll be getting at least that much on the side businesses. You won’t be getting anything from gold or cash unless you’re lucky, but don’t count on it, nor on your play investments. But overall, that’s going to give you a general yield of between 10% and 15% very safely on your overall portfolio, and that’s what you want. You want safety, you want ease, and you want a steady income.
+
+Happy Retirement
+Viktor Frankl, the great writer, said, “Chasing money and power are deviant aspects of a much more fundamental yearning, and that fundamental yearning is to find meaning in life.” Retirement should be about finding meaning and happiness in life. If you follow the advice of the popular gurus—spend time with yourself, pay attention to yourself, give yourself a holiday—you’re going to find
+
+92
+
+The Seven Years to Seven Figures System
+
+that it doesn’t make you very happy. It gives you a kind of a temporary lift, but it doesn’t give you any long-standing satisfaction.
+You don’t find happiness when you look at yourself, when you focus on yourself and try to give yourself more. You find happiness when you’re giving to other people, when you’re spending time with your children, when you’re loving your lover, when you’re helping an old person on the street, when you’re helping an employee become successful, when you’re solving a customer’s problem, when you’re really trying to help someone. That’s when you find satisfaction.
+If you want to be happy, you’ve got to get outside of yourself, and you’ve got to do that now, and you’ve got to do that in retirement. Finding meaning in what you do depends on doing three things:
+1. Focus your attention outside of yourself. 2. Value the thing you focus on. 3. Be good at what you do.
+If you do get involved in a business or an enterprise in your retirement years, here’s how to make sure you’re always happy with it. First, don’t run the business by the numbers. Don’t focus on profitability. Don’t even focus on sales growth. You want to pay enough attention to the numbers to make sure you don’t lose money. But, remember, you don’t need to make money in your retirement; you’ve abandoned that. What you want to focus on now is the quality of your life. For your business, what you want to focus on is the quality of your business. How can I make it better? What is it that I’m basically trying to do? What service or product am I providing, and how can I make that service or product unique, more useful, more enjoyable?
+
+The Perfect Retirement
+First, you want to have enough passive income to take care of your lifestyle, to generate the income you need, to support the lifestyle you want, and to take care of emergencies. Don’t compromise your quality of life. If you hit your target, you’re going to have that much income.
+
+The Seven Years to Seven Figures System
+
+93
+
+The other thing you need for a perfect retirement is the freedom to be in charge of your life. You can now decide where you want to live, who you hang out with, what to do with your leisure time, and how much you want to work. The retirement work must be something done on your terms that will enhance your life. It must be meaningful and rewarding. It’s not about the money at this point. During my first retirement, I wrote fiction. I made about $600 in a year, but it improved my enjoyment of life.
+The third component of a perfect retirement is having enough time to really enjoy yourself. You can still work, but cut down on the hours. Friends of mine work a couple of hours a day at their retirement businesses but leave the real work to their employees. They don’t need the money, but they enjoy it. Use the rest of the time to pursue your passions and hobbies.
+
+Exercise: Your Ideal Retirement Planner
+Now it’s time to put it all together. You’ve achieved your goal and are ready to retire. What does that look like for you? In the following spaces, describe a regular day in your retirement. Don’t describe a vacation day, but a regular Tuesday. Include what time you wake up, where you live, what work you do or don’t do. What hobbies will you engage in, and how much time per day will you devote to them? Include things that will provide true meaning and satisfaction, not just toys and games. Be as specific as possible so that you can really begin to visualize what life will be like when you cross that finish line.
+__________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________ __________________________________________________________________________
+
+94
+
+The Seven Years to Seven Figures System
+
+BIOGRAPHY: Thomas Phelan
+Thomas has been in the real estate and financial business for more than 25 years. He began his career with a degree in law. He held a Series 7 stockbroker’s license while working for Smith Barney in New York and has held various insurance licenses and real estate licenses in California, Colorado, Wyoming, and New York.
+Thomas is a certified 1031 Exchange Specialist and has been a representative for Starker Services and Asset Preservations, both national 1031 Exchange Intermediaries, since 1999. Thomas wrote a Colorado-approved 1031 Exchange Course for Realtors® with continuing education credits and has conducted 1031 Exchange Classes for numerous real estate firms, including Coldwell Banker, Re/Max, Century 21, Prudential, and ERA.
+Thomas wrote How to Buy and Sell Real Estate and Never Pay Taxes (legally) ©2003, a definitive work on the dynamics of 1031 Exchanging specifically suited for Realtors®.
+In 2002, Thomas created a seminar based on the myths of the self-directed IRA. Soon he was being invited to speak around the country about this most misunderstood and controversial subject. He created the first self-directed IRA/SEP Wealth-Building Boot Camp that specifically addresses the issue of what and how nontraditional items, especially real estate, can be placed in a self-directed IRA or SEP. He is editor of ETR’s Million-Dollar IRA, 1031, and Instant Tax Relief programs.
+
+The Flight of American Retirement Dollars from Wall Street to Self-Directed IRAs
+By Thomas Phelan
+There are 45 million IRAs in America. And for 30 years, Wall Street has enjoyed an uncontested 97% share of the trillions of dollars in those IRA funds.
+Well, times are changing.
+Hundreds of millions of dollars are fleeing Wall Street each month to the vaults of Self-Directed IRA custodians. For example, PENSCO Trust Company (one of about 20 such custodians in the country) recently said that it doubled its Self-Directed IRA assets under management from 1 billion to 2 billion ... in just the last 18 months.
+This migration of dollars is, at best, an irritant to Wall Street. However, if those millions of monthly migrating dollars were to change to billions—and they will—Wall Street may have to change its tune.
+
+The Seven Years to Seven Figures System
+
+95
+
+In theory, Wall Street could offer Self-Directed IRAs—but it has absolutely zero incentive to do so. If it did, its clients might opt to buy such things as real estate, notes, mortgages, tax liens, etc.—where Wall Street would not make one dime.
+You see, stockbrokers, financial planners, banks, and insurance companies offer you a limited menu of Wall Street financial products (like mutual funds, stocks, and annuities) for your IRA. Selling these financial products is how they make money—and they aren’t about to change what has successfully worked for decades. Wall Street not only controls your IRA funds, it also routinely extracts money from them via transaction fees, management fees, documentation fees, etc.
+On the other hand, Self-Directed IRA custodians don’t charge commissions. They just charge a fee for being the custodian of your IRA portfolio. That’s how they generate income. And if your IRA funds are with a Self-Directed IRA custodian, not only can you buy real estate, tax liens—and even lend money—you can also purchase Wall Street financial products.
+In other words, a Self-Directed IRA empowers you to decide what to buy, when to buy, how long to hold, when to sell, and how to sell. An example: If you had a SelfDirected IRA, you might make the decision to purchase real estate—perhaps a rental property in one of the up-and-coming markets that Justin Ford has been talking about. Then, when your Self-Directed IRA sells the property (your decision), it could carry back a mortgage like a bank and earn 6% to 10% interest (again, your decision). Try explaining this strategy to a stockbroker or financial planner.
+Of course, having the privilege of being able to make your own decisions comes with some responsibility. (Just as having the privilege of owning a car comes with the responsibility to have insurance, a driver’s license, etc.)
+With a Self-Directed IRA, you have the responsibility to make sound financial decisions for your Self-Directed IRA dollars. This is a caveat that may sound obvious— until you take a look at what’s been happening with the pre-construction condo craze.
+Stories about huge profits being made with pre-construction condos in Las Vegas, Phoenix, and South Florida are quickly becoming legendary. Yet, in Message #1589, Michael Masterson specifically discouraged buying condos in a market that is “overvalued and the most likely to see significant price deflation—possibly as high as
+
+96
+
+THE SEVEN YEARS TO SEVEN FIGURES SYSTEM
+
+50%.” Add to this a November Wall Street Journal article that warned: “Some of the nation’s largest lenders are cutting back on financing and are tightening standards for condominium projects, a sign that banks, which helped to fuel the run-up in realestate prices with cheap debt, may be growing more skeptical about the prospects for residential properties.”
+Builders in Las Vegas, Phoenix, and Florida have been enjoying unprecedented sales. Entire tracts of new homes and blocks of condos were pre-sold to ravenous buyers before the foundations were even poured. The demand was so great that many builders began to require unheard-of earnest money deposits of 10% to 20% and more.
+Unfortunately, too many folks with newly created Self-Directed IRAs have been jumping on that pre-construction condo bandwagon ... without doing proper due diligence. Overwhelmed by their newfound control over their retirement portfolios, they’ve been mailing large deposit checks to builders in faraway cities to purchase real estate they have never seen.
+And, sometimes, this has led to disaster.
+Recently, I heard from a man who told me how he had converted a standard IRA containing $70,000 into a Self-Directed IRA. He then directed the Self-Directed IRA to mail a $45,000 earnest money check to a developer in another state for the purchase of a pre-construction condo. The developer had discounted the purchase price 10% (from $500,000 to $450,000) to induce the Self-Directed IRA to make a quick purchase.
+The man told me that the developer promises to have the project completed in six months or less—and that before the Self-Directed IRA will be asked to close on the deal, the developer will flip the condo to another buyer for the full $500,000, thereby earning a hefty $50,000 profit for the Self-Directed IRA.
+I asked the man one simple question: “What happens if the developer fails to sell the condo to another buyer by the time your Self-Directed IRA is required to close?”
+
+THE SEVEN YEARS TO SEVEN FIGURES SYSTEM
+
+97
+
+He admitted that, if that were to happen, he had no exit strategy. But he figured that a non-recourse loan could be obtained if the condo did not sell. Fact is, there are only a few banks that offer non-recourse financing for IRAs. When they do, they demand a hefty 35% down payment (35% of $450,000 = $157,500)— far more than this man has in his Self-Directed IRA. So if the developer does not sell the condo for his Self-Directed IRA prior to the closing, his Self-Directed IRA will forfeit the entire $45,000 earnest money.
+The exit strategy that he should have had in place was to make sure the property would be able to carry itself when rented. That way, he could hold on as long as necessary. (This is true for any pre-construction purchase, done with or without a Self-Directed IRA.)
+When I explained this, he confessed to being blinded by the potential of making such a huge profit. “After all,” he said, “I’ve heard so many stories about people who have done it.”
+I highly recommend Self-Directed IRAs. Just remember that along with the power and control they give you, you have the responsibility to do your homework before plunking down your hard-earned IRA money on any investment.
+
+This article originally appeared in Early to Rise.
+
+98
+
+THE SEVEN YEARS TO SEVEN FIGURES SYSTEM
+
+Notes
+
+THE SEVEN YEARS TO SEVEN FIGURES SYSTEM
+
+99
+
+Notes
+
+HERE’S YOUR MASTERMIND GROUP TO HELP YOU ACHIEVE SEVEN FIGURES IN SEVEN YEARS!
+
+Michael Masterson (www.earlytorise.com)
+Michael Masterson has developed a loyal following through his writings in Early to Rise (ETR), an email newsletter that mentors more than 350,000 success-oriented individuals to achieve their financial goals. Masterson has been making money for himself or others for almost four decades. In that time, he’s taken only two breaks — each time for two years. The first was after a stint with the Peace Corps, where he came to appreciate relative values and the joy of teaching. The second came at age 39, when he retired from the $100 million-plus business that he and his partner built.
+Over the course of his remarkably successful business career, Michael has been involved in the development of dozens of successful businesses, including two that grew beyond $100 million.
+At one time or another, he’s owned and run companies that were public/private, onshore/overseas, local/international, service-oriented/product-oriented, retail/wholesale/direct mail, and even profit/not-for-profit.
+Robert Ringer (www.robertringer.com)
+Robert Ringer is a dynamic public speaker and the author of eight books, including three #1 bestsellers — Restoring the American Dream, Looking Out for #1, and To Be or Not to Be Intimidated? (the updated and totally rewritten version of Winning Through Intimidation).
+The latter two works have been listed by The New York Times among the 15 bestselling motivational books of all time. Ringer’s books have been read by millions worldwide and have been published in many foreign languages, including Chinese, Japanese, Spanish, French, Hebrew, Portuguese, and German.
+Mr. Ringer has appeared on numerous national talk shows, including The Tonight Show, Today, Good Morning America, The Montel Williams Show, ABC News Nightline,
+
+and The Charlie Rose Show. In addition, he has been the subject of feature articles in such major publications as Time, People, The Wall Street Journal, Fortune, Barron’s, and The New York Times. Further information about Robert Ringer can be accessed through thousands of pages on the Internet, including more than 2 million pages on the google.com search engine alone.
+Robert Ringer’s astute observations of how the world works have helped millions of salespeople, entrepreneurs, business owners, corporate executives, and individuals in all walks of life to achieve their personal and professional goals. This has resulted in an enthusiastic following that is evidenced by the more than 15,000 letters he has received from readers and speech attendees over the years.
+A powerful combination motivator, sales/deal-making strategist, and maximum-performance authority, Robert Ringer inspires and energizes readers and audiences with his thought-provoking perceptions, savvy understanding of human nature, and entrepreneurial techniques for overcoming obstacles and prospering in today’s competitive and uncertain world.
+Paul Lawrence
+Paul Lawrence is an entrepreneur who has made his living starting and running a series of profitable businesses.
+One day while cleaning his mother’s pool for a few extra bucks, it dawned on Paul that he could perhaps start his own poolcleaning business. He carefully employed all the marketing techniques that he had learned in school and designed his first flyer. Immediately the business took off, and, within a week, Paul had his own little business. He quickly expanded, hired employees, and then eventually sold it to some relatives who made well over $250,000 in the next year before they eventually sold it for a six-figure profit.
+After finishing college, Paul did a brief stint in a management program for a national rental company, but he quickly
+
+realized that he was much happier running his own show. Paul left the rental company and launched one of the most financially successful independent ballroom dance instruction companies in the state of Florida, where he received quite a bit of media attention for his revolutionary business practices that included front-page features in the Lifestyle section of the Sun-Sentinel, features in the Miami Herald, Boca News, Center Stage Entertainment, and many others.
+With that business running profitably, Paul started several other businesses, either individually or as partnerships, that included a million-dollar video production company, a mortgage brokerage, a home maintenance business, several mail order companies, and a business consulting service among others.
+Paul is the creator of the Quick & Easy Microbusiness program
+Thomas Phelan
+Thomas has been in the real estate and financial business for more than 25 years. He began his career with a degree in law. He held a Series 7 stockbroker’s license while working for Smith Barney in New York and has held various insurance licenses and real estate licenses in California, Colorado, Wyoming, and New York.
+Thomas is a certified 1031 Exchange Specialist and has been a representative for Starker Services and Asset Preservations, both national 1031 Exchange Intermediaries, since 1999. Thomas wrote a Colorado-approved 1031 Exchange Course for Realtors® with continuing education credits and has conducted 1031 Exchange Classes for numerous real estate firms, including Coldwell Banker, Re/Max, Century 21, Prudential, and ERA.
+Thomas wrote How to Buy and Sell Real Estate and Never Pay Taxes (legally) © 2003, a definitive work on the dynamics of 1031 Exchanging specifically suited for Realtors®.
+In 2002, Thomas created a seminar based on the myths of the self-directed IRA.
+
+Soon he was being invited to speak around the country about this most misunderstood and controversial subject. He created the first self-directed IRA/SEP Wealth-Building Boot Camp that specifically addresses the issue of what and how nontraditional items, especially real estate, can be placed in a self-directed IRA or SEP.
+He is editor of ETR’s Million-Dollar IRA, 1031, and Instant Tax Relief programs.
+Steve Sjuggerud (www.dailywealth.com)
+Dr. Steve Sjuggerud has worked in the investment world as a stockbroker, the vice president of a $50 million global mutual fund, an international hedge fund manager, and the director of several research departments.
+As an expert global investor, Dr. Sjuggerud is frequently quoted in places like WSJ.com and Barron’s. Steve’s latest book, Safe Strategies for Financial Freedom, recently made The New York Times Business Best Sellers list and was a top seller on Amazon.com in the business and investing category.
+Dr. Steve Sjuggerud is also a member of The Oxford Club advisory panel. Today, Dr. Sjuggerud runs his own 20,000-member investment advisory service, called True Wealth.
+Alexander Green (www.oxfordclub.com)
+Alexander Green: You won’t find many men or women of Alexander Green’s talent or integrity on Wall Street. At the height of the stock market boom, he walked away from a prestigious position with one of the country’s leading moneymanagement firms — retiring from Wall Street at the ripe old age of 43, saying “no thanks,” and returning more than half of a $510,000 signing bonus. He then became Investment Director at The Oxford Club — a private financial organization dedicated to building and preserving the wealth of its members, independent of Wall Street’s dubious influence.
+
+When Alexander Green isn’t making money for Oxford Club members and his premium trading service subscribers, his market views and observations are constantly in high demand. He’s been profiled on Forbes.com, has written for Louis Rukeyser and several other leading financial publications, and was recently featured on the Fox News Channel’s The O’Reilly Factor.
+Alexander Green currently writes and directs The Oxford Club Communiqué and the Oxford Insight e-letter, and he’s a toprated speaker at financial conferences around the country.
+Steve Cook
+His first course, Wholesaling for Quick Cash, has changed the lives of thousands of people across the country. Today Steve is regarded as the best real estate investing teacher in the country by many of his peers. You will no longer find Steve out on the seminar circuit hawking his books and courses. He has discovered that his true calling is teaching and changing lives, not high-pressure sales at the front of a room. If you desire to learn from Steve, you can do so for free through his website www.FlippingHomes.com. He offers many articles as well as an active online forum in which all of your questions can be answered by experts throughout the country.
+Justin Ford (www.mainstreetmillionaire.com)
+Justin Ford is an active investor in real estate and global stock markets. He is also a veteran financial writer. He has published, edited, and written for more than a dozen international investment newsletters, including launching the U.S. version of the Fleet Street Letter, the oldest continuously published newsletter in the English language. He is the author of Seeds of Wealth, a program for getting children to adopt good money habits from an early age, and he is the editor of the Seeds of Wealth Quarterly Investment Update Bulletin. He is also a contributing editor and author to a number of books on per-
+
+sonal finance, including Michael Masterson’s Automatic Wealth and Dr. Van Tharp’s Safe Strategies for Financial Freedom, as well as the author of Main Street Millionaire, a value-focused real estate investment program.
+Matt Furey (www.mattfurey.com)
+Edinboro University of Pennsylvania’s Hall of Famer Matt Furey is a native of Carroll, Iowa. He began competing in swimming and wrestling when he was eight years old and, through dedicated practice, became a champion in each sport.
+In 1981, Furey was the state runner-up in the Class 3A Iowa High School State Wrestling Championships at 167 pounds. He attended The University of Iowa from 1981-1984, where he wrestled for Olympic Gold medalist Dan Gable and was a member of three national championship teams.
+In the fall of 1984, in order to help rebuild a doormat wrestling program, Furey transferred to Edinboro University of Pennsylvania, and in 1985, he won the NCAA II national title at 167 pounds, defeating two-time California state champion Howard Lawson in the finals. While at Edinboro, he was coached by Mike DeAnna and two-time Olympic Gold Medalist Bruce Baumgartner.
+In February of 1987, Furey opened a training business for wrestlers and fitness enthusiasts. Most of the high school wrestlers he trained went on to wrestle in college.
+Furey began studying various martial arts in 1990 and immediately saw the physical, mental, and philosophical links these arts had with wrestling. This led to the publication of his first book and videos in 1996, The Martial Art of Wrestling.
+www.nightingale.com
+www.EarlyToRise.com
+
+102
+
+THE SEVEN YEARS TO SEVEN FIGURES SYSTEM
+
+Enhance Your Wealth-Building Library with These Great Titles from Nightingale-Conant!
+
+Transforming Debt into Wealth System: A Proven System for REAL Financial Independence
+By John M. Cummuta GGDEBT10CD
+The MasterMind Marketing System By Jay Abraham 22140CD
+Lessons from the Richest Man Who Ever Lived: Incomparable Insights and Breakthrough Strategies for
+Success, Happiness, and Wealth By Steven K. Scott 23201CD
+Protect Your Wealth: A Three-Part Plan for Crashproofing Your Career, Finances, and Life
+By Thomas Schweich 23180CD
+The Power of Perpetual Income: How to Transform Your Spare Time into a Cash Machine
+By John Cummuta 23981CD
+Change Your Beliefs, Change Your Life: How to Take Control, Break Old Habits, and Live the Life You Deserve
+By Nick Hall, Ph.D. 20970CD
+All available from Nightingale-Conant —
+Phone: 1-800-525-9000 or visit our website at www.nightingale.com
+or for our UK clients Phone: 01803 666100 • nightingaleconant.co.uk.
+24520PG1-WCDR
+
+

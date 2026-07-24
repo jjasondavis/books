@@ -1,0 +1,22 @@
+<!-- Text extracted from the owner's personal-library copy (PDF). -->
+Source file: PDF_pyramid-bible-study-system.txt
+Title/Edition: Pyramid Bible Study System; Unknown; 2020; owned copyright — personal use, do not distribute.
+
+Pyramid Bible Study System
+
+1. People • Who are all the people in this passage? • How are these people like people in my world? • What characteristics of these people do I see in myself?
+2. Setting • What is the setting of this passage? • What are the significant details in the history, culture, and geography? • What are the similarities to my world?
+3. Plot / Situation • What is happening in this passage? • What is the conflict or tension? • What would I have done in this situation? • How is this similar to what is happening in my life or in the world today?
+4. Original Meaning • What was the intended message for the original audience? • What did the people in the passage learn? • What did God want them to do? • What was God’s solution to the problem?
+5. Universal Message • What is the message for all humankind? • What are the timeless truths? • What is the moral of the story?
+
+6. Cultural Principles (Present) • What do these principles mean for my society and culture? • How is this relevant today? • What back then is similar to today? • How can I make the timeless truth timely?
+7. Personal Meaning (Parallels) • What does this truth mean for me? • Where are my areas of need, conviction, or opportunity? • Where in my life might this truth apply?
+8. Priorities • How should I adjust my priorities? • What should I change about my values, beliefs, attitudes, or character? • What about my thoughts or motives should change? • What kind of person does God want me to become?
+9. Plan • What does God want me to do about what I have learned? • What steps will move me toward that goal? • What is my first step? How should I get started?
+10. Accountability Check • Am I doing what God wants me to do? • Am I obeying Him?
+
+From Life Application Study Bible – KJV – found 12/11/2025
+Adapted from Dave Veerman, How to Apply the Bible (Tyndale, 1993). Note: This is gold. Study, learn, and use daily.
+
+

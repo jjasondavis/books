@@ -300,6 +300,44 @@ authoritative PD-vs-owned filter (16 public-domain, 54 owned-copyright this batc
 a slightly different shape from the older author-grouped folders — uniform for the bulk import; the
 catalog remains the real index. `As a Man Thinketh (21st-c ed.)` re-skipped (PD core already present).
 
+## books_to_process — library import, batch 3 (added 2026-07-24)
+
+Continued whole-library import: **61 new works** (55 EPUBs + 6 PDFs; the PDFs arrived as junk-named
+`tmp*.kfx-zip.pdf` Kindle exports but were real books — extracted via `pdftotext` and titled properly).
+Placed by division; `CATALOG.tsv` license column is authoritative. Vault now **598 works**.
+
+- **Upgrade — Machen, *Christianity and Liberalism*:** replaced the earlier archive.org **OCR** reading
+  copy with a **clean EPUB** of the same public-domain text; catalog license changed from
+  `public-domain; OCR-verify` to `public-domain`.
+- **Cassian — *The Conferences of the Desert Fathers* (single-volume Gibson/NPNF)** →
+  `patristics/john-cassian/conferences-desert-fathers-illustrated`. Verified it is the same censored
+  Gibson text (still carries the "Not translated"/"is omitted" notices for Conf. 12 & 22) — no new
+  English there; kept as a convenient single-file edition.
+- **Spiritual-warfare / deliverance (more)** → `tradition/`: *Exorcism* (Lampert), *Orthodoxy and the
+  Kingdom of Satan*, *The Devil You Don't Know*, *Obsessions, Depression and Demonic Oppression*, plus a
+  small *Orthodox Prayer Rule for Acedia*.
+- **Christian/devotional** → `tradition/`: Wiersbe "Be" commentaries (Matthew/1 John/Daniel), Piper
+  *Don't Waste Your Life*, Gallaty, Youssef, Chambers *The Discipline of Divine Guidance* (PD), Theosis,
+  Baltimore Catechism (PD), *10 Words That Will Change the Way You Read the Bible*.
+- **Scripture** → `scripture/`: NRSV Updated (w/ Apocrypha), D. B. Hart *The New Testament: A
+  Translation*, *The Complete Gospel* harmony. **Jewish** → `jewish/`: Eitan Bar, *The Gospel Before
+  Christianity*.
+- **PD classics/literature** → `classical/`: *The Three Musketeers*, *Ben-Hur*, *Huckleberry Finn & Tom
+  Sawyer*, *The Art of War*, *The Book of Five Rings*, Sandburg *Chicago Poems*, Poe, Thoreau *Civil
+  Disobedience*, *101 Great American Poems*; plus owned-copyright *Anthem*, *Empire of the Summer Moon*.
+- **Business / self-help** → `business/`, `self-improvement/`: Cialdini *Influence*, Greene *48 Laws of
+  Power*, Cardone *10X Rule*, Burkeman *Four Thousand Weeks* (an *acedia*-adjacent time book), *Difficult
+  Conversations*, *Emotional Intelligence 2.0*, *Elements of Style*, *E-Myth Mastery*, *Buy Then Build*,
+  *Bulletproof Problem Solving*, several Salesforce/.NET/agile titles, and the 3 recovered PDFs
+  (Masterson *Seven Years to Seven Figures*, *Centerline Tactical De-Escalation*, *The Black Journal*).
+
+**Skipped (dupes/junk):** re-downloaded duplicates of already-ingested titles (`_nodrm_1` / `_1`
+suffixes), other *As a Man Thinketh* editions and the tiny "Life Vision Exercise" (PD core already in
+vault), *The Imitation of Christ* (à Kempis already present), *Bible O.T. Apocryphal books* (apocrypha
+already in `jewish/`), and *June 2026 Universalis* (an ephemeral monthly missal). Two PDFs could not be
+used: one is a **Reddit web-capture** (not a book), one is **image-only** (no text layer → belongs in
+`D:\repos\scans`, not this text repo).
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.

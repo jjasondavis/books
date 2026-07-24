@@ -1,0 +1,646 @@
+<!-- Text extracted from the owner's personal-library copy (PDF). -->
+Source file: PDF_centerline-tactical-de-escalation.txt
+Title/Edition: Centerline Tactical De-Escalation and Personal Safety Handbook; Sgt Maj (Ret.) Adam Seegmiller; 2026; owned copyright — personal use, do not distribute.
+
+CENTERLINE TACTICAL
+DE-ESCALATION AND PERSONAL SAFETY HANDBOOK
+Sgt Maj (Retired) Adam Seegmiller
+
+Copyright © 2026 Sgt Maj (Retired) Adam Seegmiller.
+All rights reserved. No part of this book may be reproduced, stored, or transmitted by any means—whether auditory, graphic, mechanical, or electronic—without written permission of both publisher and author, except in the case of brief excerpts used in critical articles and reviews. Unauthorized reproduction of any part of this work is illegal and is punishable by law.
+
+CONTENTS
+
+What is De-Escalation?
+
+4
+
+Parts 1: SAFETY7
+
+01 Situational Awareness And Being Omni Aware
+
+11
+
+02 Personal Space & Distance (Proxemics)
+
+19
+
+03 The Acute Stress Response (Asr)
+
+22
+
+04 Managing Stress in the Moment
+
+28
+
+05 Understanding Fear
+
+33
+
+06 The Big Four - The Navy Seals Method of
+
+Fighting Through Fear
+
+37
+
+07 Recognizing Threat Cues
+
+51
+
+08 Indicators of Armed Persons
+
+57
+
+Parts 2: CENTERLINE TACTICAL62
+
+Step 1 Connect and Calm
+
+80
+
+Step 2 Recognize, Reassure, Resources
+
+83
+
+Step 3 Implement Active Listening
+
+86
+
+Step 4 Setting a Limit
+
+89
+
+Step 5 Inform Them of Options
+
+92
+
+Step 6 Shift Control and Shape the Outcome
+
+94
+
+De-Escalation - Conclusion
+
+96
+
+WHAT IS DE-ESCALATION?
+D e-escalation is a learned skill, not a personality trait. The CRISIS de-escalation model gives you a clear, science based proven real-world framework for calming a person in crisis and ultimately guiding them to a calmer state while making them feel they hold the power and are making all the decisions. The CRISIS model is a science and practical “real world” based method of de-escalating someone in crisis that anyone can use regardless of their experience or role. I have delivered this training to people from one end of the risk spectrum to the opposite. I’ve personally delivered this program to more than a dozen LE agencies and an Intelligence agency as well as to business executives, City Mayors and staff, Lawyers, Museum curators, and groups of School teachers.
+4
+
+Without a model to provide a framework, people rely on instinct, and what they “feel works” to de-escalate a situation. “Winging it” should not be used in a situation with potential life or death consequences. CRISIS removes guesswork. It was developed by a behavioral studies department from a major University in concert with several Law Enforcement agencies and it works, plain and simple.
+Using the CRISIS model does not mean you agree with the person in crisis. It does not mean you are weak, passive, or submissive. It certainly does not mean standing still and talking while danger increases.
+At times, people get hurt because they forget RULE #1 of Deescalation: SAFETY, yours, the people around you, and the person in crisis. This program helps you to recognize the risks, increase your level of safety and, when safe to do so, de-escalate a situation that may have otherwise escalated into an unsafe and dangerous scenario.
+The CRISIS model provides a structured handrail for de-escalation, allowing you to deliberately reduce volatility and lower the risk an individual poses to themselves and to others.
+The objective is not to win an argument or force compliance. The objective is to guide the person in crisis toward the outcome you need, while making that outcome feel like their own decision. Through calm presence, positioning, and communication, you shape the environment, so cooperation feels natural, voluntary, and self-directed, allowing the situation to resolve without injury, arrest, or regret
+5
+
+6
+
+PART ONE
+SAFETY
+
+SAFETY IS THE FIRST CONSIDERATION IN DE ESCALATION
+The first rule of de-escalation is safety. Your safety, the safety of the people around you, and the safety of the person in crisis. De-escalation is not about calming someone at any cost. You should be conducting a constant Personal Threat Risk Assessment (TRA). One before you decide to enter the task of de-escalation with a person in crisis, one as you approach them and then again assessing the risk while you are engaged in the act of de-escalation with them.
+Because of the first rule being safety, effective de-escalation always begins before words are exchanged. It starts with awareness, positioning, and an honest assessment of risk and your abilities.
+Why Safety Must Come First: De-escalation only works when the situation remains within manageable limits. If danger escalates beyond your ability to control it, continued engagement increases risk rather than reducing it. Prioritizing safety allows you to:
+• Maintain physical distance and reaction time which is done by managing appropriate proxemics
+• Staying outside of their Centerline • Being aware of your surroundings at all times • Awareness of the possible Threat Cues being displayed
+by the person in crisis such as, Shifts in tone, volume, or emotional intensity • Preserve decision making under stress • Changes in body language and movement • Environmental factors such as exits, and obstacles between you and potential safety.
+8
+
+• The presence of others who may influence the situation • Avoid being forced into reactive or defensive actions • Protect bystanders from unintended harm • Prevent the person in crisis from escalating to irreversible
+consequences Safety creates the conditions that make de-escalation possible. Without it, the situation becomes unstable and unpredictable. Safety is dynamic not static: Risk is not assessed once and forgotten. It must be continually evaluated throughout the interaction. People in crisis can shift rapidly in emotional state, intent, and behavior. What was safe moments ago may no longer be safe now. You cannot project calm or guide someone out of crisis if you feel trapped, rushed, or physically threatened.
+KEY TAKEAWAY Safety is the foundation of de-escalation, the first part of our CRISIS model of de-escalation is focused on safety and your personal threat risk assessment. This includes understanding the factors that influence danger before engaging a person in crisis and recognizing how risk can change during an interaction.
+9
+
+10
+
+01
+SITUATIONAL AWARENESS AND BEING OMNI AWARE
+S ituational awareness is not a talent. You build it deliberately; the same way you build strength or conditioning. The objective is not to predict crime or spot “bad people.” The objective is to notice change in what the normal behaviors are, early enough to act. The term situational awareness implies that awareness is something that applies only in certain places or moments. It suggests
+11
+
+there are specific situations where a person should be alert and others where awareness can relax. This framing is misleading. Risk does not wait for a clearly defined situation, and threats do not announce themselves.
+Many people associate situational awareness with obvious danger, dark parking lots, unfamiliar areas, or tense encounters. In reality, many incidents occur in familiar environments during routine activities, when people feel comfortable and let their guard down. When awareness is treated as something that can be switched on, it is often activated too late.
+True personal safety requires continuous awareness. It should not depend on location, time of day, or perceived risk. For that reason, we use the term Omni-Awareness. Omni-Awareness describes a constant, baseline state of awareness that always exists, regardless of circumstance.
+Omni-Awareness is not hyper-vigilance or paranoia. It is a calm state of presence. It means being oriented to your environment, noticing people, space, and movement, and remaining mentally engaged without tension or fear.
+Most dangerous encounters do not happen suddenly. They build gradually. People miss the early signs because they are distracted, emotionally preoccupied, rushed, or fixated on their phones. Omni-Awareness allows those early changes to be noticed while time and options still exist.
+Early awareness creates time. Time creates distance, choice, and control. Late awareness creates surprise and reaction. OmniAwareness keeps you operating ahead of events rather than behind them.
+12
+
+Awareness is not something you turn on when you feel unsafe. It is the default state. Calm, continuous, and always working in your favor. Being Omni Aware is about training yourself to stay present, not paranoid.
+BUILDING OMNI AWARENESS A. START WITH PRESENCE, NOT SCANNING Most people misunderstand awareness and immediately think “constantly looking around.” This leads to anxiety, tunnel vision and probably exhaustion. Omni awareness starts with presence:
+• Head up • Phone down
+13
+
+• Breathing calm • Attention outward
+If you are emotionally rushed, distracted, or mentally somewhere else, awareness collapses, even if your eyes are open. If your mind is elsewhere, you are functionally blind.
+B. USE RELAXED, PERIODIC SCANS (NOT FIXATION)
+Scanning should be casual and periodic, not aggressive or obvious.
+Think in short cycles:
+• Quick look left • Quick look right • Glance behind via reflection or body turn • Reset
+When you need to make a more obvious scan of a situation or location, do so by looking Right to Left, the opposite of how we read. This will force your brain to shift from autopilot and slow down taking in all the data it’s seeing as the brain is unused to the eyes moving in this direction.
+You are not staring. You are sampling the environment.
+Key mistake to avoid:
+• Fixating on one person • Fixating on your phone • Fixating on a single perceived threat
+14
+
+Fixation creates blind spots, and blind spots are where problems come from.
+C. LEARN WHAT “NORMAL” LOOKS LIKE
+You cannot spot abnormal behavior unless you first recognize what the baseline behavior is. What’s normal here and how do people normally conduct themselves?
+Ask silently:
+• How are people normally moving here? • What is the general energy level? • Are people relaxed, rushed, loud, quiet?
+Red flags are often contextual, not dramatic:
+• Someone standing still where everyone else is moving • Someone watching people instead of engaging in the
+environment • Someone pacing without purpose • Someone out of place for the location or time
+You are not judging, just noticing deviation.
+D. ALWAYS IDENTIFY EXITS AND OBSTACLES
+Every time you enter a space, quickly locate:
+• At least one primary exit • One secondary option • Obstacles that could slow movement • Areas that compress people or block visibility
+15
+
+This question should become automatic, “If I had to leave right now, where would I go?”
+You are not paranoid or assuming danger is around the corner, you are maintaining options.
+This does 3 things:
+1. Keeps your mind forward-thinking 2. Prevents freezing under stress 3. Reduces fear because you are not trapped mentally
+People panic when they feel stuck, even if they are not.
+The more you practise this drill the more it will be part of your daily routine and the closer you will become to being OMNI AWARE!
+E. LIMIT PHONE FIXATION
+Phones are awareness killers When walking make sure you have:
+• Your phone down • Earbuds low or off • Head up
+If you must use your phone:
+• Stop • Keep your back to a wall or barrier • Quick check • Re-engage environment
+Predators look for absorbed, distracted and weak targets, not strong ones.
+16
+
+F. UNDERSTAND WHY AWARENESS FAILS
+Awareness usually fails due to:
+• Emotional overload or as we say “Going into the Black” or OBE (Overwhelmed by the Event) results from people who did not expect or couldn’t believe something like this would happen to them.
+• Ego fixation and being naïve are nearly the same; the “it won’t happen” to me or “I’m too smart to get trapped” mindset is an awareness killer, why would you pay attention to your surrounds if you don’t think you could or will be a risk.
+• Distractions, both internal and external. Negative self-talk or being preoccupied with unnecessary thoughts is a massive internal distraction that you can’t afford to carry with you.
+• Tunnel vision is common when faced with significant stress especially when you don’t have awareness of the situation or area and fail to conduct “reset breaths”
+The thing is, these issues are all normal and more common than not. The solution is not trying harder; it is to simplify your focus. Take in one bite at a time, and think:
+• People • Space • Movement • Exits
+Nothing else matters in the early stages.
+17
+
+KEY TAKEAWAY Situational awareness is not about fear. It is about clarity. Omni Awareness gives you:
+• Early warning • Time • Distance • Options Exits and options are critical to increasing the safety of a situation that might otherwise escalate into violence, regardless of how well you employ the CRISIS model. Sometimes there is nothing you can do. Exits and options create physical and psychological space, giving you time to think, to make deliberate decisions, and to disengage when risk rises beyond an acceptable level. Maintaining clear exit routes and viable options ensures that you are never trapped, allowing you to leave the situation safely before it becomes uncontrollable or worse a danger to you and to others.
+18
+
+02
+PERSONAL SPACE & DISTANCE (PROXEMICS)
+D istance equals Time, and Time equals Safety. This principle becomes especially important during attempts to de-escalate a person in crisis.
+When people try to calm someone down, explain themselves, or convince another person of something, they often begin to subconsciously move closer. This usually isn’t intentional. It happens because people associate closeness with reassurance, connection, or being heard. Unfortunately, this natural behavior brings them directly into striking range.
+As distance closes, safety margins shrink. The moment someone is within arm’s reach, the risk of sudden, unplanned violence increases significantly. Even without clear warning signs, a shove, grab, or strike can occur faster than a person can recognize and respond. What feels like a calm conversation can change instantly.
+This is why distance must be managed deliberately during de-escalation. Safety is not improved by proximity. In fact,
+19
+
+maintaining space allows emotions to cool while preserving reaction time and mobility. It also prevents accidental encroachment into a zone where impulsive actions can cause serious injury.
+Effective de-escalation prioritizes space. Distance allows communication to continue without increasing risk, keeps physical boundaries intact, and helps ensure that efforts to calm a situation do not unintentionally make it more dangerous.
+PRACTICAL POSITIONING GUIDELINES
+• Stay one and a half legs length away from the person in Crisis. This distance allows you to see their hands, read body language, move without being immediately touched and have some time for a reaction.
+• Remain outside of Centerline. An angled stance appears less confrontational and allows easier movement forward, backward, or sideways. It also allows for a physiological advantage.
+• Keep hands visible, relaxed, and non-threatening Hands should be up in a natural, open position at your waist or slightly higher. This communicates calm while keeping you prepared to protect yourself if needed.
+• Do not touch an agitated person Touch can instantly escalate tension. Even well-intended contact can be perceived as a threat or challenge when emotions are high. It also puts you in striking distance.
+20
+
+MANAGING DISTANCE DYNAMICALLY
+If someone steps closer, you step back. This is a boundary, not a challenge.
+If they continue to close distance despite your movement, that behavior is intentional. It signals rising aggression and reduced self-control. At that point, your priority shifts to being direct and verbally directing them to give you space, followed by you creating more space, repositioning, or leaving the area.
+KEY TAKEAWAY
+Distance buys time. Distance allows for you not to be “sucker punched” or otherwise assaulted. Time allows for better decisions and thinking, and preplanning creates options.
+21
+
+03
+THE ACUTE STRESS RESPONSE (ASR)
+THE ACUTE STRESS RESPONSE (ASR)
+W hen you perceive a threat, your body reacts automatically. This response occurs before conscious thought and is driven by survival wiring, not weakness or panic. The body does not wait to confirm danger. It prepares first.
+WHAT HAPPENS IN THE BODY Stress hormones rapidly shift the nervous system into a high alert state. Heart rate increases to supply large muscle groups. Muscle tension or shaking prepares the body for movement. Vision may narrow as the brain focuses on what it believes is most important. Hearing may become muffled or overly sharp as sensory input is filtered. At the same time, higher level thinking becomes more difficult. Clear speech, complex reasoning, and fine motor control degrade under stress. These reactions are designed for survival, not conversation or precision.
+22
+
+WHEN STRESS WORKS AGAINST YOU When unmanaged, the acute stress response can interfere with safety and de-escalation. Elevated stress often leads to overreaction, poor communication, impulsive movement, and missed warning signs. Many confrontations escalate not because danger was unavoidable, but because stress temporarily hijacked judgment and behavior.
+23
+
+THE GOAL IS FUNCTION NOT CALM
+Stress cannot be eliminated in threatening situations, and trying to force calm often increases frustration. The objective is functional control. You may still feel stress and an elevated heart rate, but you remain able to think, speak clearly, move deliberately, and make decisions that support safety.
+CONTROLLING THE ACUTE STRESS RESPONSE
+Control begins with the nervous system. Breathing is the fastest and most reliable way to influence it. Slow, deliberate breaths through the nose with longer exhales help reduce heart rate and signal the brain that immediate danger is decreasing. Even a few controlled breaths can restore cognitive function and widen perception.
+Muscle tension must also be addressed. Stress causes people to clench their hands, raise their shoulders, and lock their posture, which feeds the stress response. Actively relaxing the shoulders, unclenching the hands, and maintaining a balanced stance reduces physical tension and prevents stress from compounding.
+Mental focus is equally important. Under stress, complex thoughts fail. Simple, purposeful cues such as create space, slow it down, breathe, or observe keep the mind anchored and prevent cognitive overload. These cues help shift the brain from reaction to decision making.
+Movement and distance play a critical role. Creating or maintaining space lowers perceived threat and buys time. Distance increases reaction time and reduces the urgency driving the stress response, making functional control easier to maintain.
+24
+
+HOW COMMUNICATION CAN INTERRUPT STRESS The person communicating can directly influence the other person’s stress response. Calm tone, slower speech, and simple language reduce cognitive load and help regulate the nervous system. Short, clear statements are easier to process under stress and help prevent emotional escalation. Allowing pauses and avoiding rapid movement is equally important. Giving the other person time to respond reduces pressure and lowers perceived threat. Space, both physical and conversational, helps interrupt the acute stress cycle and supports safer outcomes.
+THE IMPORTANCE OF A CLEAR GOAL Stress intensifies when there is uncertainty or a feeling of being trapped. A clear objective provides direction and reduces cognitive chaos. Goals such as creating distance, moving to a safer location, or ending the interaction keep actions purposeful and prevent reactive decision making. A defined goal also allows you to measure progress and adjust behavior without escalating. Instead of reacting emotionally, you remain focused on moving toward a safer, more positive outcome.
+25
+
+26
+
+WHY UNDERSTANDING ASR MATTERS When people do not understand the acute stress response, they often believe something is wrong with them, which adds panic to stress. Understanding what your body is doing and why removes that fear. Stress becomes something to manage rather than something that controls you. KEY TAKEAWAY The acute stress response is not the enemy. It is a survival system. The real risk lies in failing to manage it. When you understand how stress affects perception, communication, and decision making, and when you actively control it while maintaining a clear safety focused goal, you preserve function and reduce the likelihood of escalation.
+27
+
+04
+MANAGING STRESS IN THE MOMENT
+S tress affects everyone because it is a built-in survival response, not personal weakness. When the brain detects a real or perceived threat, it activates the nervous system to prepare the body for action. Heart rate increases, breathing becomes faster and shallower, muscles tighten, and stress hormones are released. These changes are meant to help you react quickly, but they also reduce fine motor control, narrow attention, and make clear thinking more difficult.
+As stress continues or intensifies, the body stays in this heightened state. Vision can narrow, hearing can diminish, and decision making becomes more reactive and less deliberate. Even though the trigger may be different for each person, the physical response is the same. If stress is not regulated, performance drops, communication suffers, and small problems can quickly feel overwhelming. Stress does not mean something is wrong with you. It means your body is doing exactly what it was designed to do.
+28
+
+You cannot think clearly if your body is out of control. The fastest way to regain function is to regulate your breathing and muscle tension.
+RESET BREATHS (STRESS CONTROL)
+Reset breathing is a simple, fast way to bring your nervous system back under control when stress spikes. It is not about fully relaxing. It is about regaining enough control to think clearly, communicate effectively, and move deliberately.
+Reset breaths differ from combat breathing or box breathing by placing greater emphasis on a powerful exhale, which calms the body more quickly and lowers heart rate faster than traditional box or combat breathing techniques.
+Reset Breaths with a focus on a strong exhale work by:
+• Activating the parasympathetic nervous system • Rapidly lowering heart rate • Releasing excess muscle tension • Improving oxygen delivery to the brain • Interrupting panic driven breathing patterns • Restoring clear thinking and decision making
+You are telling your body: I’m in control. I’m not panicking.
+WHY THE STRONG EXHALE WORKS
+Under stress, your nervous system shifts into high alert. Heart rate spikes, breathing becomes shallow, muscles tense, and clear thinking drops. Science and real-world experience show that,
+29
+
+a forceful, extended exhale is the fastest way to interrupt that state and regain focus and good decision making.
+A strong exhale stimulates the parasympathetic nervous system, signaling the body that control has been regained. This begins lowering heart rate, stabilizing breathing, and reducing muscle tension.
+Because heart rate naturally slows during the exhale, extending it causes the heart to decelerate more efficiently, improving oxygen delivery to the brain and restoring clearer thinking. A full exhale also releases excess carbon dioxide, which reduces the feeling of panic and air hunger that often drives stress higher. Most importantly, the exhale is a deliberate action. It pulls the body out of automatic, reactive behavior and reasserts voluntary control. This is why the reset breath emphasizes emptying the lungs fully.
+THE RESET BREATH TECHNIQUE
+Anytime stress starts to rise or even before you enter a situation that stress might occur such as walking toward someone in crisis:
+1. Inhale through your nose for about 4 seconds ○ Keep the breath smooth and quiet ○ Feel the air fill your lower lungs
+2. Brief pause (2 seconds) ○ Don’t strain or hold forcefully
+3. Exhale forcefully with pursed lips and do not stop until you empty your lungs. ○ Let the shoulders drop ○ Relax the jaw and hands
+4.	Repeat 2–4 times
+30
+
+Reset breaths work across all types of stress because the body responds the same way whether the pressure comes from an exam, a hard conversation, traffic, a medical emergency, or a life and death situation. Stress raises heart rate, tightens muscles, and narrows thinking. The difference between these situations is intensity, not how the nervous system reacts.
+By slowing the breath and emphasizing a strong exhale, reset breaths help bring the nervous system back under control. Heart rate begins to drop, muscle tension releases, oxygen delivery improves, and the thinking part of the brain stays engaged. This shifts you from a reactive state to a deliberate one.
+In everyday situations, reset breaths improve focus, communication, and emotional control. In higher stress environments, they support steadier movement, better awareness, and clearer
+31
+
+decision making. In extreme situations, they do not remove danger, but they help prevent panic and keep you functional when it matters most. Reset breaths regulate the body first so the mind can follow. This is not about relaxing. It is about maintaining control under pressure.
+32
+
+05
+UNDERSTANDING FEAR
+F ear is a normal and natural response to uncertainty, perceived risk, and a perceived loss of control. It does not mean you are weak, unprepared, or failing. It means your brain is doing exactly what it evolved to do. Fear is a protective signal generated by the nervous system to draw attention to potential danger and push the body toward survival-oriented action.
+Fear increases most when you do not understand what is happening or cannot predict what will happen next. Uncertainty forces the brain to fill in gaps, often assuming worst case outcomes in order to keep you safe. When information is incomplete, the stress response rises because the brain lacks a clear model of the situation.
+Fear also intensifies when you feel trapped or perceive that your options are limited. A lack
+33
+
+of exits, restricted movement, or social or physical confinement all amplify the stress response. The brain interprets limited options as increased risk, real or perceived, even if no immediate threat is present.
+Another major driver of fear is speed. When events seem to be moving faster than you can process, your ability to think clearly narrows. Cognitive overload occurs when incoming information exceeds your ability to evaluate it. As this happens, the brain shifts away from deliberate reasoning and toward instinctive reactions. This shift is not a failure. It is a survival mechanism.
+Fear is closely tied to control. When you feel in control of your body, your movement, and your options, fear decreases. When control feels uncertain or slipping away, fear increases rapidly. This is why creating space, slowing your breathing, and restoring simple choices can immediately reduce stress even if the external situation has not changed.
+Fear is not the enemy; unmanaged fear is. When fear is acknowledged and understood, it becomes information rather than panic. It sharpens awareness, highlights risk, and signals when action or distance is needed. When fear is ignored or suppressed, it tends to grow and overwhelm decision making.
+The goal is not to eliminate fear. The goal is to understand it, manage it, and use it as a cue to regain time, space, and control. When you do that, fear stops driving behavior and starts informing it.
+34
+
+35
+
+When people feel overwhelmed or stuck, their thinking narrows. They may rush decisions, freeze, or react emotionally. This is why fear often escalates situations instead of resolving them. Fear decreases as clarity increases. Recognizing patterns such as changes in posture, tone, distance or behavior helps the brain make sense of what is unfolding. When you understand what you are seeing, uncertainty drops and fear loses its grip. Having options is equally important. Even a single clear option, such as knowing where you can move or how you can disengage, can reduce fear significantly. People panic most when they believe there is no way out, even if that belief is not accurate. Knowing your next step keeps fear from spiraling. You do not need a perfect plan or all the answers. You only need to know what you will do next. This forward focus keeps the mind engaged and prevents freezing. The Unknown Feeds Fear….Clarity Starves it. Having a plan, visualization and training reduces fear and creates calm and familiarity. Familiar situations feel less threatening, even when they are uncomfortable. The ability to reduce fear means improved decision making under pressure.
+36
+
+06
+THE BIG FOUR - THE NAVY SEALS METHOD OF FIGHTING
+THROUGH FEAR
+STRESS CONTROL FUNDAMENTALS
+T he Big Four are a set of mental performance tools taught within elite units such as the United States Navy SEALs to help operators function under extreme stress and accomplish the mission despite the fear they may feel. Yes, even high-level elite operators experience fear. The Big Four are not about aggression, combat, or fighting. They are a series of proven tools that help anyone, not just elite operators, maintain control when pressure is high and conditions are chaotic.
+37
+
+These tools exist for one reason: stress degrades thinking, and fear causes hesitation or withdrawal. The Big Four help prevent those failures. To de-escalate someone else, you must have the calmness and presence of mind to think on your feet. The most effective system for de-escalation I have seen is the CRISIS model. CRISIS does not rely on instinct or personality, although those can help. It relies on structure and process.
+The Big Four are the internal control tools that allow you to apply CRISIS effectively when stress is high. CRISIS begins with you. Before you can influence anyone else, you must first control your own stress response.
+Arousal control is the foundation. Slow breathing, relaxed shoulders, and deliberate movement prevent the nervous system from hijacking behavior. Positive self-talk keeps internal dialogue focused on action rather than fear. At this stage, the Big Four prevent panic, freezing, and emotional reactions. If you cannot control yourself, the ability to de-escalate someone with the CRISIS model or any other model for that matter stops here.
+Think of it this way, the CRISIS Model is what you do, the Big Four are how you stay focused, safer and functionally aware while doing it.
+38
+
+39
+
+1. GOAL SETTING
+Under stress, the brain naturally fixates on fear, emotion, and worst-case outcomes. Attention drifts toward what might happen rather than what needs to be done. This mental drift increases hesitation, overwhelms thinking, and can lead to freezing or reactive behavior and more often than not, that reactive not proactive response is often flawed and not to your benefit.
+Goal setting counters stress by giving the mind a clear target to focus on. Under pressure, the brain defaults to scanning for every possible threat, which fuels uncertainty and overloads it. A clearly defined goal interrupts that process by narrowing attention to what matters right now, reducing ambiguity and preventing fear from filling the gaps with worst-case scenarios.
+This shift is critical because fear thrives on uncertainty. A clear objective redirects the brain away from alarm-driven reactions and toward purposeful action. Even simple, immediate goals restore a sense of control, create forward momentum, and replace paralysis with movement, allowing effective performance to reemerge under stress.
+A tool I use regularly is the W.I.N technique of refocusing = W.I.N What’s Important Now? . When you are feeling overwhelmed and under pressure, pause, conduct a reset breath and ask yourself, what’s important now? W.I.N should allow you to refocus on what’s important, like finding an out from the situation and excluding the unnecessary inputs such as people yelling or perhaps calling you names which in the heat of a potentially violent situation is not important.
+40
+
+Rather than asking, what if this goes wrong, the operator asks a simpler and more useful question: What’s Important Now? The goal should always be short term and controllable. It is not about solving the entire situation. It is about the next safe step. Examples include moving to safety, creating distance, calming a subject, or buying time. These goals are achievable even while fear is present. Having a clear goal gives fear somewhere to go. You may still feel at risk, but the goal pulls attention forward and keeps you moving forward. It creates movement instead of paralysis. When the mind knows what it is working toward, it becomes easier to push through discomfort and uncertainty. A defined goal also preserves decision making. It prevents mental overload by filtering choices. Actions that move you closer to the goal, stay. Actions that do not, are discarded. This keeps behavior deliberate rather than emotional.
+41
+
+42
+
+The goal you have simply becomes the anchor that allows you to function, act, and move toward the end state you want, even when you might want to run in the other direction. We are all human and we all feel fear, even Navy Seals want to run away from a threat, but they don’t and a big part of the reason they don’t is their training.
+Remember goals do not remove risk. They give you direction despite the risks and the feeling of fear and anxiety that might normally have held you back.
+2. MENTAL REHEARSAL
+Mental rehearsal, also known as visualization, is the practice of pre living situations before they happen. The brain does not clearly distinguish between real experience and vividly imagined experience, which means rehearsal, even when it is purely mental, builds familiarity and readiness.
+Through visualization, you deliberately think through potential scenarios in advance such as where to stand, what to say, how your body might feel, how the other person may act, and how you would safely disengage. This gives the brain reference points. When a similar situation occurs in real life, it feels known rather than overwhelming, making freezing or hesitation far less likely.
+Mental rehearsal and visualization are effective for everything from high-risk encounters to everyday performance situations such as difficult conversations, presentations, or job interviews. Visualization does not remove stress, but it reduces its intensity and is one of the fastest ways to limit fear before it appears.
+43
+
+44
+
+How to best Visualize a Successful Outcome: Visualization works best when it is short, detailed, and grounded in reality. You are not imagining success in a vague way. You are mentally walking through a situation step by step as if it were happening right now. Keep it brief and repeatable. Thirty to sixty seconds is enough.
+Start by visualizing the environment, not yourself. See where you are standing, what is around you, where exits are, how much space you have, and who else is present. This anchors the visualization in something concrete and prevents it from drifting into fantasy.
+Next, visualize your internal state under pressure. Imagine your heart rate increasing, your breathing changing, and the initial stress response kicking in. Then visualize yourself applying control. Slow the breath. Drop the shoulders. Steady your posture. This is critical. You are not visualizing stress free performance. You are visualizing controlled performance while stressed.
+Then visualize simple, deliberate actions. What do you say first? How do you position your body? How do you create space? How do you disengage? Keep actions realistic and minimal. Do not fast forward through difficulty. Let the situation unfold at a manageable pace.
+Finally, visualize a clear end state. This might be leaving safely, de-escalating the situation, completing the task, or simply buying time. The goal is not perfection. The goal is familiarity and direction.
+45
+
+The most important rule is this. Do not visualize outcomes you cannot control. You control your breathing, posture, words, and movement. You do not control other people or events. Visualize what you can do regardless of how the situation unfolds.
+Done this way, visualization builds usable experience. When a real situation appears, the brain recognizes it as familiar instead of threatening, which reduces fear, hesitation, and freezing.
+3. POSITIVE SELF TALK
+Your internal dialogue matters all the time but certainly maters most under pressure. When stress rises, the mind produces fear, doubt, and distraction. Negative self-talk feeds that noise and increases hesitation. Positive self-talk keeps attention focused on the task at hand.
+This does not mean giving yourself motivational speeches or some BS hype. Under stress, the brain cannot process long messages. Effective positive self-talk is short, direct, and action focused. Phrases like, “stay calm”, “create space” or “move deliberately” act as simple instructions the body can follow.
+The goal is to control your internal dialogue, not build long standing confidence. Positive self-talk reduces emotional interference and replaces mental noise and self-doubt with useful direction. When the mind receives clear instruction, decisions improve, movement becomes deliberate, and situations are less likely to escalate. The brain craves simple and concise direction under pressure.
+46
+
+47
+
+THE FOUR STEPS TO POSITIVE SELF-TALK
+1. Notice the stress When your heart speeds up, breathing changes or thoughts race, that is your cue to act.
+2. Choose one short phrase Pick a simple instruction, not a sentence. Examples are “stay calm”, “slow breathing”, “create space” or “move deliberately”.
+3. Repeat it calmly Say the phrase quietly in your head at a steady pace. Do not rush it. One phrase is enough.
+4. Match it with action Do what the phrase says. Slow your breathing. Take a step back. Move with control.
+Mantra: Developing a mantra for times like this can also help. A mantra is a short, simple phrase you intentionally repeat to yourself to guide your focus, regulate emotion, and shape behavior, especially under stress. Examples of a mantra might be, “I am good a math” if you are stressed about a math exam or “I’m tough this is no big deal” when times get hard.
+MANTRAS VS POSITIVE AFFIRMATIONS
+A mantra is not the same as telling yourself, “Everything will be okay.”
+• Affirmations often aim to change beliefs • Mantras aim to stabilize behavior and attention
+Mantras are practical. They don’t deny fear, they help you to manage it.
+48
+
+4. AROUSAL CONTROL
+Arousal control refers to managing breathing and muscle tension, so stress does not overwhelm performance. Slow breathing, relaxed shoulders, and deliberate movement help keep the thinking part of the brain engaged. Without arousal control, heart rate spikes, vision narrows, and communication degrades.
+One effective way to regain muscle control under stress is to intentionally tense the muscles and then deliberately relax them. Stress causes the body to tighten automatically, often without awareness. By consciously exaggerating that tension for a moment, you bring it under voluntary control instead of letting it remain unconscious.
+Start by briefly tightening the shoulders, jaw, hands, or forearms for a few seconds. Do not strain or hold your breath. Then actively release the tension and let those muscles drop and soften. This contrast makes relaxation more noticeable and effective, allowing the body to let go of excess tension more quickly than trying to relax without first recognizing it.
+This process sends a strong signal to the nervous system that you are in control of your body. As the muscles release, heart rate begins to settle, breathing improves, and movement becomes smoother and more coordinated. Energy that was being wasted on unnecessary tension is conserved and redirected toward purposeful action.
+Tense and release is not about becoming loose or passive. It is a fast reset that keeps the body mobile, responsive, and ready while preventing stress from locking the body into rigidity or panic.
+49
+
+This is the foundation that allows the other three tools to work. WHY THE BIG FOUR MATTERS FOR DE ESCALATION - The Big Four helps you:
+• Stay calm enough to communicate • Think clearly under pressure • Avoid impulsive reactions • Fight through fear • Make safer decisions faster In de-escalation, stress management often matters more than words. If you lose control of yourself, you cannot guide the situation or the person in Crisis. TAKEAWAY The Big Four does not remove stress or fear. They keep stress from controlling you. They turn chaos into manageable steps and reaction into decision.
+50
+
+07
+RECOGNIZING THREAT CUES
+V iolence rarely appears without warning. In most cases, people show observable changes in behavior or body language before a situation turns physical. These changes are often brief and subtle, which is why they are commonly missed.
+PRE INCIDENT INDICATORS VISUAL CUES
+The images represent common pre incident cues that are often present before violence occurs. They are not guarantees that violence will happen. These cues simply indicate rising stress, emotional load, or preparation for action. The goal is not prediction. The goal is early awareness.
+Single Cue: One cue by itself usually means very little. People clench their jaw, avoid eye contact, shift their weight,
+51
+
+or pace for many harmless reasons. Fatigue, anxiety, discomfort, or social stress can all produce similar behaviors. Isolated cues should be noted but not over interpreted.
+Multiple Cues Together: Risk increases when several cues appear at the same time, especially when they escalate quickly or appear during emotional moments or distance closing. Clusters of behavior are far more meaningful than any single action. The faster the change from baseline behavior, the higher the concern.
+WHAT THE VISUAL SHOWS
+Upper Body Tension: clenched fists, a tight jaw, raised shoulders, or stiff arms indicate increasing muscle tension and emotional load. The body is preparing for action even if the person has not consciously decided to act yet.
+Movement Changes: Pacing, restless shifting, repetitive steps, or sudden stillness often reflect agitation or internal decision making. Sudden stillness in particular can signal commitment just before movement.
+Eye Behavior Shifts: Intense staring may indicate fixation, challenge, or targeting. Sudden avoidance of eye contact can also be significant, often reflecting internal focus, mental rehearsal, or withdrawal from social engagement.
+Posture Changes: Squaring up, leaning forward, blading the body, widening the stance, or a sudden stiff posture frequently occur just before movement. These changes are mechanical and functional rather than emotional.
+52
+
+Environmental Scanning: Repeatedly looking around the area may indicate heightened alertness. This can include checking exits, looking for witnesses, scanning for allies, or confirming space and timing.
+53
+
+54
+
+YOUR RESPONSE TO RECOGNIZING THREAT CUES
+The purpose of recognizing threat cues early on is not for analysis, confrontation, or to fight them, it’s to maximize your safety and the safety of those around you.
+Going into any potentially volatile situation, you should already have possible responses to a potential threat in mind when entering or approaching the situation. Those safety responses should be simple and easily utilized under stress, this is not the time for complex planning or complex techniques.
+Safety responses such as the ones listed below are great examples of simple techniques to maximize your personal safety:
+• Increase the Distance between you and the potential threat.
+• Change Position and ensure you are near an exit • Attempt to keep and object (chair, desk, bench, etc) be-
+tween you and the threat • Remain off of their Centerline • Leave the Area
+You are not required to label intent or reach certainty. Early movement on your part is a safety decision, not an accusation. Its better to be wrong and safe than have worried about offending the person and end up with a black eye or worse.
+KEY TAKEAWAY
+No single cue confirms intent. People display individual habits and nervous behaviors all the time. What matters is clusters of cues and rapid change from baseline behavior. When multiple
+55
+
+cues appear together, or when behavior shifts suddenly, risk is increasing. Your role is not to diagnose intent, label someone as dangerous, or prove what they might do next. That kind of analysis wastes time and keeps you close longer than necessary. Notice the cues and create space early. Maintaining proper proxemics buys time, and time keeps situations from becoming violent.
+56
+
+8
+INDICATORS OF ARMED PERSONS
+T his section is about risk awareness, not certainty. You are not trying to confirm whether someone is armed, identify a specific weapon, or make assumptions about intent. Your goal is to recognize behaviors that indicate risk early enough to create distance and avoid escalation.
+57
+
+Weapons are often concealed, and visual confirmation is unreliable. Clothing, body type, movement, and environment can all mask or disguise what someone may be carrying. For that reason, behavior matters more than objects. People under stress often reveal risk through unconscious actions rather than obvious displays.
+BEHAVIOR OVER OBJECTS
+Weapons are rarely displayed openly. Visual confirmation alone is unreliable because clothing, body type, movement, lighting, and environment can all obscure or disguise what someone may be carrying. A firearm, knife, or improvised weapon can be fully concealed without creating an obvious outline. For that reason, behavior is a more reliable indicator of risk than appearance alone.
+Under stress, people often reveal what they are trying to hide through unconscious or semi-conscious actions. These behaviors are not deliberate signals; they are the result of anxiety, cognitive load, and the body’s instinct to protect something valuable or dangerous. Observing how someone moves, rather than what you think you see, provides earlier and more accurate warning.
+COMMON BEHAVIORAL INDICATORS
+• Repeated touching of the waistband, pocket, or a specific area of the body: This is one of the most
+58
+
+common indicators. It often appears as subtle checking, adjusting clothing, or briefly placing a hand over the same area again and again. These touches tend to increase during movement, emotional moments, changes in direction, or when attention is drawn to the person. The behavior is rarely exaggerated; it is typically quick, habitual, and unconscious. • Odd bulges or irregular shapes in clothing: While visual cues alone are unreliable, obvious inconsistencies should not be ignored. Bulges that do not match body symmetry, appear rigid, or shift unnaturally during movement can be indicators—especially when paired with behavioral signs. • Uneven clothing drape: Clothing may pull differently on one side, hang lower, or sit unnaturally due to the weight or shape of a concealed object. Jackets may remain zipped or partially closed in inappropriate weather, or shirts may be repeatedly tugged down on one side to maintain coverage. • Guarding one side of the body: People concealing a weapon often protect it instinctively. This can include turning that side away from others, keeping an arm pinned tightly to the body, blading their stance, or using posture, furniture, or environmental objects to shield a specific area. This guarding behavior becomes more pronounced when others move closer or when attention increases. • Restricted or awkward movement: Altered biomechanics are a strong indicator. This may show up as stiffness on one side, shortened strides, limited arm swing, or an unnatural gait. The person may move cautiously, hesitate during transitions, or avoid sudden movements that could expose or dislodge what they are carrying.
+59
+
+60
+
+KEY TAKEAWAY No single indicator means anything by itself. Risk emerges through patterns and combinations of behavior, especially when those behaviors appear alongside elevated stress, agitation, or distance closing. The presence of one cue is irrelevant; multiple cues occurring together and changing under pressure are what matter. If something feels wrong, the response should be simple and non-confrontational. Increase distance decisively and leave the area. You do not need proof to prioritize safety. Waiting for certainty keeps you close longer than necessary and reduces your options. The goal is not to visually confirm a weapon. The goal is to recognize patterns of concealment, protection, and control that suggest elevated risk. Trusting early instincts and acting early prevents escalation and preserves time, space, and decision-making freedom. Train your eye to read behavior first. Objects can be hidden. Behavior leaks.
+61
+
+PART TWO
+CENTERLINE TACTICAL
+
+THE UNCOMFORTABLE TRUTH
+De-escalation is not a magic key. It is a window opening tool. Sometimes the window opens. Sometimes it does not. When it does not, the ethical responsibility shifts from calming to containment.
+Regardless of how practical or effective a model or set of techniques may be for de-escalation, there is no universal formula for success. Not everyone can be de-escalated, and not everyone will take the same amount of time to calm down.
+Several years ago, after teaching de-escalation to hundreds, if not thousands, of people, I found myself at the end of the preverbal road with a particularly upset woman. At the time, I was leading a small team providing close protection for members of the Saudi Royal Family who were attending a private event.
+One of my team members radioed to inform me that a woman was attempting to force her way into the event and was extremely agitated. I, a so-called expert in de-escalation, took several calming reset breaths, straightened my tie, and deliberately walked toward the entrance. As I moved, I mentally rehearsed the CRISIS model, visualizing myself calming her down. I could not have been more prepared.
+Unfortunately, knowledge and preparation do not always guarantee success. The woman carried decades of unresolved anger toward the Royal Family. She was a Saudi citizen who had fled the country years earlier, harboring deep resentment toward its leadership. That anger, combined with overt mental health issues, created a perfect storm. There was no solution I could offer that would genuinely de-escalate her.
+63
+
+I spent at least forty-five minutes with her, applying every technique and principle I knew. Ultimately, I was able to compel her to leave on her own, but she did not leave calmly or happily. While I reduced her agitation enough for her to choose to disengage, it was far from a textbook example of de-escalation.
+I share this story to make one thing clear. Real life is messy, and situations rarely unfold the way we want them to. You may take far longer than expected to de-escalate someone in crisis, or you may never succeed at all. Sometimes the only viable option is to disengage or involve local law enforcement, as some people simply cannot be de-escalated.
+The inability to de-escalate someone maybe a result of a range of factors that are entirely outside your control, no matter how good you are. Aside from the obvious mental health issues, other prohibitive factors may include:
+• Fixed grievance • Ideological rage • Intoxication • Personality pathology • Time pressure • Identity level threat
+De-escalation is not psychological control over another person. It is the intentional reduction of emotional intensity so that rational choice can become possible again.
+The challenge of de-escalating a person with mental health issues is among the most difficult situations you may encounter. Not all mental health conditions are the same, and as such, the time and effort required to achieve de-escalation will vary significantly. In
+64
+
+many cases, the resources required are directly proportional to the severity of the mental health condition. A person with stable and healthy mental functioning will generally calm more quickly than someone experiencing severe disorders such as schizophrenia. The mental health continuum below illustrates the dynamic between time to de-escalate and the severity of the mental health condition.
+DE-ESCALATION THROUGH THE CRISIS MODEL De-escalation is the deliberate reduction of tension to prevent violence. It uses awareness, positioning, communication, and emotional control to help a person in crisis regain composure and make safer choices. The CRISIS model is powerful because it influences outcomes without triggering resistance. When applied correctly, the person in crisis calms down and begins moving in the direction
+65
+
+you want, while genuinely believing they are the one making the decisions. This works because CRISIS reduces emotional overload, restores thinking, and quietly shapes the environment so the safest and most reasonable option feels like their idea. You are not forcing compliance or arguing for control. You are guiding the situation, so cooperation feels natural and self-directed.
+In that sense, CRISIS functions like a quasi-Jedi mind trick. Not magic, manipulation, or coercion, but a structured use of psychology, stress control, and human behavior that allows you to steer outcomes while the other person feels calm, respected, and in control.
+66
+
+DE-ESCALATION GUIDELINES
+Understanding and Utilizing Tactical Language vs Casual Language
+Casual language is reactive and emotional. It comes from impulse rather than intent and is often driven by frustration, ego, or the desire to respond quickly. In tense situations, casual language tends to escalate conflict because it reflects emotion instead of control.
+Tactical language is professional, deliberate, and redirecting. It is chosen intentionally to manage the situation, reduce emotional intensity, and guide behavior toward a safer outcome. Tactical language is not about winning an argument. It is about shaping behavior and maintaining control of the interaction.
+Casual Language often consists of:
+• The first thing that comes to mind • Condescending • Sarcastic • Dismissive • Offensive • Confrontational • Judgmental
+Tactical Language consists of:
+• Thought out and intentional • Responsive rather than reactive • Deflective instead of confrontational • Professional and calm
+67
+
+• Constructive and solution focused • Not taken personally
+Managing Insults and Provocation: Disregard all insults. Insults are attempts to provoke an emotional response and shift control away from you. Instead of reacting, respond by deflecting. Deflection acknowledges the situation or concern without validating the insult itself.
+Do not take anything personally: Do not acknowledge insults in any way. This alone often reduces tension because it removes the subject’s ability to upset or control you emotionally. When insults fail to work, they often stop.
+Use deflection to acknowledge the issue, not the attack. For example, redirect the conversation back to the problem that needs to be solved. Be extremely cautious with humor, as it can easily be misinterpreted and escalate the situation.
+Maintaining Control and Professionalism: Do not join them emotionally. Address the issue, not the person. Listen respectfully, set an emotional example, and remain aware of your body language at all times. Calm posture, neutral expression, and controlled movement reinforce your words.
+Consider removing the audience whenever possible. An audience often increases posturing and makes de-escalation more difficult. Never humiliate the individual. Humiliation creates resentment and increases the likelihood of future conflict.
+Remember, your behavior and thinking are the only things you control. Do not take the bait. Represent your organization or corporation, not yourself. When appropriate, explain the logic behind
+68
+
+what you are doing or what you can do. Education creates understanding, understanding creates perceived choice, and perceived choice increases compliance.
+Communication Methods to Avoid: These behaviors undermine trust, increase resistance, and can rapidly escalate a situation. Avoiding them is just as important as applying the correct techniques. In high stress moments, people often default to learned behaviors rather than trained behaviors. Many of these habits were modeled for us growing up by parents, teachers, coaches, or authority figures and became normalized responses to conflict. Because they may feel familiar or instinctive, they require conscious effort to recognize and control.
+When emotion rises, old patterns tend to surface. These patterns are often rooted in attempts to regain control quickly through dominance, intimidation, or interruption. While they may feel effective in the moment, they almost always increase emotional intensity and resistance in a person already in crisis. De-escalation requires discipline and self-awareness. You must actively resist the urge to react emotionally or rely on outdated authority-based habits.
+Do Not Try to Dominate: Avoid overpowering the interaction verbally or physically. Dominating behavior signals threat and control rather than cooperation. When people feel dominated, they resist. De-escalation requires presence and confidence, not superiority.
+Do Not Try to Intimidate: Never attempt to intimidate through body language, posture, proximity, tone, or words. Intimidation increases fear and triggers defensive or aggressive responses. Even subtle intimidation such as looming, staring aggressively, or
+69
+
+using commanding language can escalate a situation. Calm confidence is far more effective than forceful presence. De-escalation relies on safety, not fear.
+Do Not Interrupt: Interrupting breaks rapport and signals that you are not listening. One of the most powerful tools in de-escalation is the pregnant pause. When there is a natural pause in conversation, do not rush to fill it. Human nature is to fill silence. When you hold the pause, the person in crisis will often feel compelled to speak, and this is frequently when they reveal critical information they were previously withholding. Silence, when used intentionally, creates psychological space and invites disclosure.
+Do Not “One-Up”: Do not compare experiences or attempt to match their hardship with your own. Statements like “I’ve dealt with worse” or “I know exactly how you feel” shift the focus back to you and minimize their experience. This damages trust and increases emotional distance.
+Do Not Lie: I have often seen people attempting to de-escalate a situation by trying to create a false connection through dishonesty. A common example is someone saying something like, “I understand why you are upset about your father having cancer, my father has cancer too,” when in reality that is not true. When asked afterward, they admit they were simply trying to bond or build rapport.
+While the intention may seem positive, this approach is extremely damaging. People in crisis are often highly perceptive and emotionally sensitive. False statements are frequently discovered through inconsistencies, follow up questions, or later verification. When the lie is exposed, all credibility is immediately lost. At that
+70
+
+point, the person no longer sees you as supportive or trustworthy, and de-escalation becomes far more difficult, if not impossible.
+Lying destroys trust instantly. Trust is the foundation of de-escalation, and once it is broken, cooperation collapses. False empathy is not empathy. You do not need to share the same experience to show understanding. It is enough to acknowledge their emotions honestly and professionally. Statements such as “I can see this is incredibly hard for you” or “I may not fully understand what you are going through, but I want to help” are far more effective and maintain integrity.
+If you do not know something, say so calmly. If you cannot answer a question, be transparent about it. Honesty preserves authority, maintains credibility, and allows the interaction to move forward constructively. In de-escalation, authenticity builds connection. Dishonesty destroys it.
+Do Not Analyze or Label Emotions: Avoid telling someone how they feel or assigning labels to their emotional state. Statements such as “You’re angry,” “You’re upset,” or “You’re overreacting” are often perceived as dismissive, judgmental, or controlling. Even when accurate, labeling emotions places you in a position of authority over their internal experience, which can trigger resistance and escalate the situation.
+In a crisis, people are already struggling with a loss of control. When you analyze or label their emotions, it can feel as though you are minimizing their experience or reducing them to a problem that needs to be fixed. This shifts the interaction from collaboration to confrontation and increases the likelihood they will defend, argue, or shut down.
+71
+
+Instead, focus on observable behavior and impact, not emotional diagnosis. Acknowledge what you see without judgment or interpretation. For example, saying “I can see this situation is frustrating for you” or “It looks like this has been building for a while” allows the individual to confirm, clarify, or expand without feeling challenged. This approach keeps dignity intact, maintains rapport, and encourages the person to continue communicating rather than reacting.
+Do Not Persuade Too Early: Attempting to persuade someone before they feel heard almost always creates resistance. When a person is in crisis, their emotional brain is dominant and their primary need is to be recognized and understood, not corrected or convinced. If persuasion is introduced too early, it signals that you are focused on controlling the outcome rather than understanding the person, which can escalate frustration and mistrust.
+Persuasion is only effective after the individual has experienced recognition, reassurance, and active listening. Once emotional intensity has decreased and the person feels respected and taken seriously, their cognitive capacity improves and they become far more receptive to guidance. At that point, suggestions feel collaborative rather than imposed.
+Effective de-escalation follows a sequence. You listen first. You acknowledge and reassure second. Only then do you begin shaping behavior or decisions. When persuasion is delayed until the proper moment, compliance increases and the interaction remains calm, controlled, and outcome focused.
+Bottom Line: You cannot control the other person’s behavior, emotions, or words. You can only control your own actions,
+72
+
+tone, body language, and thinking. Maintaining discipline in how you communicate preserves safety, builds trust, and allows you to shape the outcome without escalating the situation.
+The Basics of Communication when De-escalating: Effective de-escalation starts with how you communicate. Your tone, volume, and pacing matter more than your words in the early stages of a crisis. The goal is not to win an argument or correct facts, but to reduce emotional intensity and create enough calm for thinking to return.
+DO THIS:
+Speak calmly: Your voice sets the emotional temperature of the interaction. A calm, steady tone signals safety and control. Even if the person is loud or emotional, lowering your own tone helps prevent escalation and encourages mirroring. Calm speech also reinforces that you are confident and in control of yourself.
+Acknowledge emotion: You do not need to agree with someone to acknowledge how they feel. Simple statements that recognize distress, frustration, or concern help the person feel seen and heard. Acknowledgment reduces the need for them to escalate in order to be understood and opens the door to cooperation.
+Keep volume low: Lower volume forces people to listen more closely and naturally slows the interaction down. Speaking softly but clearly communicates confidence without aggression and helps shift the conversation out of an emotional state and into a more rational one.
+73
+
+DON’T DO THIS: Argue facts: When someone is emotionally charged, facts do not matter yet. Arguing details too early often feels dismissive and can intensify frustration. Facts can come later, once the person feels heard and emotional intensity has dropped. Do Not Threaten: “Do as I say or else I’ll……..” is probably not the way to go with de-escalating a person in crisis. Threats remove choice and trigger a defensive response. Even implied threats can escalate a situation quickly by increasing fear and resistance. De-escalation works by restoring a sense of control, not taking it away. Talk over them: Interrupting or talking over someone signals disrespect and shuts down communication. It increases the likelihood that they will raise their voice or become more aggressive to regain control of the conversation. Allowing them to finish speaking demonstrates patience, confidence, and control. Bottom line: Calm communication reduces chaos. When you speak slowly, acknowledge emotion, and avoid arguing or overpowering the conversation, you create the conditions needed for cooperation, compliance, and safe resolution.
+74
+
+BODY LANGUAGE AND ITS EFFECTS ON DE-ESCALATION
+Body Language: Body language often communicates more than words. People in crisis are constantly scanning for threat cues, dominance signals, or signs of dismissal. Your posture, movement, and gestures must align with calm, controlled communication. GOOD Open Stance: An open stance with shoulders relaxed and hands visible communicates approachability and non-threat. It reduces perceived confrontation and invites cooperation. Relaxed Posture: A relaxed but alert posture shows confidence without aggression. Tension in your body can be interpreted as readiness for conflict.
+75
+
+Slow Movements: Slow, deliberate movements help regulate the pace of the interaction. Sudden or sharp movements can trigger fear or defensive reactions.
+BAD Pointing: Pointing is perceived as accusatory and dominant. It can instantly escalate tension and make the individual feel attacked or judged. Crossing arms: Crossed arms signal defensiveness, resistance, or disinterest. This posture can unintentionally communicate that you are closed off or unwilling to engage. Sudden movements: fast or abrupt movements can trigger a threat response, especially in someone already emotionally elevated. Maintain controlled, predictable motion at all times.
+BOTTOM LINE Your words matter, but your tone, volume, posture, and movement often matter more. Calm communication combined with controlled body language creates safety, reduces emotional intensity, and sets the conditions for cooperation and compliance.
+76
+
+The C.R.I.S.I.S Model of De-escalation
+C – Connect and Calm R – Recognize, Reassure, Resources I – Implement Active Listening S – Set a Limit I – Inform of Options S – Shift Control
+UNDERSTANDING THE CRISIS MODEL
+The CRISIS Model is divided into two distinct phases that serve different purposes during a de-escalation encounter.
+Phase One: building Connection and Influence with the person in crisis.
+The first three stages are focused entirely on building a connection with the person in crisis. This is not the time to say no, take a hard position, or attempt to impose control. Doing so too early increases resistance and escalates emotion.
+During this phase, you use tactical physiological skills such as tone control, breathing, posture, distance, and pacing to create a sense of safety and rapport. The objective is to build a temporary but functional relationship with the person in crisis. This connection is what allows emotional intensity to decrease and cognitive processing to return.
+77
+
+Active listening, although listed as the third step, must be applied throughout the entire interaction, not just at one point in the model. Listening is the tool that sustains the connection and keeps the person engaged rather than reactive.
+The goal of Phase One is not agreement. The goal is calm, cooperation, trust and influence.
+Phase Two: creating Boundaries and guiding Outcomes while making the person in crisis feel as though they are in charge and coming to these conclusions on their own.
+The final three stages are about establishing boundaries and shaping behavior once emotional intensity has been reduced.
+This is where you draw a clear line in the sand and communicate expectations. Limits are set calmly and deliberately, not as threats. Once limits are established, your present options that lead toward outcomes that are acceptable to you.
+These options are framed so the person in crisis feels they are choosing their own path, even though all available choices move the situation toward safety and resolution. When done correctly, the person experiences a sense of control and dignity while you retain actual control of the outcome.
+The CRISIS Model is not about force or authority. It is about guiding behavior through calm connection first, and structured choice second. Influence precedes control. When applied correctly, the safest outcome feels like the person’s decision, not your demand.
+78
+
+79
+
+Step 1
+CONNECT AND CALM
+KEEP CALM, BOTH YOU AND THE PERSON IN CRISIS
+S elf-regulation is a critical component of effective de-escalation. Human beings naturally mirror the emotional state, tone, and body language of those around them. By slowing your movements, speech, and overall presence, you create a model of calm for the other person to follow. Your ability to regulate yourself directly influences their ability to regulate themselves. Be careful not to exaggerate calming behaviors, as this may come across as dismissive or antagonizing. If they are in a state of panic or tremendous anxiety there is nothing wrong with calmly asking them to take a few breaths with you before you move into the connect portion. Connect: How do we connect with each other and for that matter why would we use another method than what works naturally with anyone, even if they are in crisis?
+80
+
+Short answer, nothing can replace the power of making eye contact and introducing yourself by your first name and asking theirs.
+Using a person’s first name has a powerful physiological effect because it is one of the earliest and most deeply conditioned sounds the human brain recognizes. From childhood, a person’s name becomes linked to attention, care, correction, and identity. Over time, the brain learns that this sound means “this is about me,” which is why hearing one’s own name immediately captures attention more effectively than generic language.
+In moments of stress or crisis, emotional centers of the brain dominate, narrowing focus and increasing reactivity. Calling someone by their first name acts as a cognitive interruption, cutting through emotional noise and briefly re-engaging the thinking brain responsible for self-regulation and decision making. This is why people will often respond to their name even when overwhelmed or agitated because it pulls them back into the present moment.
+Using a first name also communicates recognition rather than authority. It signals that the individual is being seen as a person, not managed as a problem. Generic titles such as Sir or Ma’am while polite are emotionally neutral and socially distant and therefore far less effective at compelling attention or cooperation. In de-escalation, names create connection and connection reduces threat which increases compliance.
+Establish connection early to reduce emotional distance.
+81
+
+Connect by: • Introducing yourself • Making appropriate eye contact • Asking their name and permission to use it • Asking questions and listening calmly
+Do’s • Speak calmly and slowly • Ask for clarification and more information
+Don’ts • Tell them they are being unreasonable • Tell them they are wrong • Overtly say “no” early in the interaction
+82
+
+Step 2
+RECOGNIZE, REASSURE, RESOURCES
+T his step is about building togetherness. The objective is to show the individual that you recognize what they are experiencing, that you are there to help, and that you are beginning to work toward a solution with them. When people feel understood, their emotional intensity naturally decreases. When emotional intensity drops, cooperation increases. This is the foundation of effective de-escalation.
+Crisis situations are driven by heightened emotion and a perceived loss of control. By acknowledging what the person is experiencing, you validate their emotional state without agreeing with their behavior or demands. Recognition communicates that you are paying attention and taking them seriously. Reassurance reinforces safety and signals that the situation can move forward constructively rather than escalate.
+Apologizing when appropriate is a powerful tool when used correctly. An apology does not mean fault or agreement. It simply communicates empathy and respect for how the situation is affecting them. Statements such as “I am sorry you are dealing with this” or “I can see this is frustrating for you” help reduce defensiveness
+83
+
+and open the door to dialogue. At the same time, you should be mentally assessing what resources may be required, whether that is additional support, time, space, or outside assistance.
+Do’s • Recognize what is occurring and acknowledge their experience • Apologize when appropriate to show empathy, not agreement • Reassure them that you are there to listen and help • Begin identifying what resources or support may be needed
+Supportive Language • Use calm, reassuring language • Tell them you want to understand their perspective • Tell them you will do your best to help within your role
+84
+
+Don’ts • Get angry or emotionally reactive • Take comments personally; remind yourself this is not about you • Tell them you cannot help them, even if limits will be set later
+85
+
+Step 3
+IMPLEMENT ACTIVE LISTENING
+T he Act (and perhaps art) of Listening: Listening is one of the most important skills in de-escalation because it directly influences outcomes, relationships, and safety. When people feel heard, emotional intensity decreases and rational thinking becomes more accessible. Poor listening increases frustration, resistance, and the likelihood of escalation. Effective listening is not passive. It is deliberate, focused, and purposeful.
+We listen to:
+• Obtain accurate information • Understand meaning and intent • Learn what is driving the behavior • Build rapport and trust
+Active Listening Skills: Active listening involves both what you say and how you say it. Tone of voice, volume, and inflection often matter more than the words themselves. Calm, steady speech signals control and professionalism. Paraphrasing and reflecting show the person that you are tracking what they are saying and that their message is being received. Mirroring and the echo effect
+86
+
+subtly reinforce connection and encourage the person to continue speaking. Asking open ended questions keeps the conversation moving forward and prevents shutdown. Non-Verbal Communication: Non-verbal cues often communicate more than words. Gestures, facial expressions, posture, and body movement should all reinforce calm and attentiveness. Avoid sudden movements or closed postures that may signal threat or disinterest. Controlled, deliberate movement helps regulate the interaction and reduces perceived tension. Attention: Giving full attention is essential. Look at the speaker directly and eliminate distractions whenever possible. Set aside internal dialogue and avoid mentally preparing your response while they are speaking. The goal is to understand, not to win an exchange. Minimizing environmental distractions further supports focus and helps lower emotional arousal.
+87
+
+Do’s • Maintain a safe and appropriate distance • Make eye contact and nod appropriately • Lean slightly forward without appearing aggressive • Reflect and paraphrase key points • Ask clarifying questions • Allow the person to finish speaking
+Don’ts • Tell the person how they feel • Interrupt or rush their speech • Counter argue or debate
+88
+
+Step 4
+SETTING A LIMIT
+T his stage occurs after you have made a genuine effort to calm the individual and encourage them to adjust their behavior, but they refuse and continue to be disruptive or show signs of potential violence. At this point, the focus must shift from building rapport to setting clear limits and boundaries around what is and is not acceptable.
+Setting limits provides structure and safety while still preserving the individual’s dignity. De-escalation has created enough stability to introduce boundaries without provoking further resistance. Limits are not about punishment or dominance. They are about clearly defining acceptable behavior so the situation can move forward safely.
+Effective limit setting combines clarity with calm delivery. The individual must understand what behavior is expected, why it matters, and what will happen if the limit is not respected. This information should be delivered in a steady, neutral tone. When limits are explained rather than imposed, people are more likely to comply because they feel informed rather than controlled.
+89
+
+Whenever possible, limits should be paired with choices. Providing options allows the person to retain a sense of autonomy while you continue to guide the interaction toward a safe outcome. The goal is for the individual to feel that they still have control over their decisions, even though boundaries are clearly in place.
+Key Principles: • Provide clear, helpful choices • Do not threaten • Explain what behavior is expected • Inform of consequences calmly and factually • Guide behavior while preserving a sense of control
+90
+
+Do’s: • Use a firm but calm tone • Display confident, non-threatening body language
+Don’ts: • Point fingers • Make threats • Pass judgment
+91
+
+Step 5
+INFORM THEM OF OPTIONS
+P roviding clear information restores a sense of control and predictability, both of which are often lost during a crisis. When people understand what is happening and what comes next, uncertainty decreases and emotional intensity drops. This creates conditions where cooperation is more likely and resistance is reduced.
+The purpose of this step is not to persuade or pressure, but to inform and involve. By explaining the process and outlining realistic next steps, you help the individual move from an emotional state into a problem-solving mindset. Involving them in decision-making, even in small ways, increases buy-in and encourages voluntary compliance through transparency rather than force.
+When informing someone of their options, clearly explain any organizational processes, boundaries, and limitations so expectations are realistic.
+Provide appropriate resources when available and be careful not to make promises you cannot keep. Credibility is critical at this stage; once trust is lost, de-escalation becomes significantly more difficult.
+92
+
+Do • Speak clearly and provide simple, direct instructions • Show that their concerns are being taken seriously • Be honest and transparent about what you can and cannot do
+Don’t • Use threatening or coercive language • Offer false reassurance or promises • Lie or withhold critical information
+93
+
+Step 6
+SHIFT CONTROL AND SHAPE THE OUTCOME
+A person in crisis typically experiences a profound loss of control or they at least feel like they have no control over the situation or at times they may feel they have no control over their lives. Their thoughts feel chaotic, their emotions are heightened, and they often cannot see clear steps to resolve the situation or reduce their distress. This lack of clarity or the past forward increases their anxiety and fear of the unknown driving further reactive or impulsive unpredictable behavior.
+Providing the person with clear options helps provide them with a sense of control and stability. When possible, offer realistic choices and outline practical next steps. Explaining what will happen, what options are available, and what the immediate plan looks like reduces their uncertainty and helps regulate their emotions. By this stage of the CRISIS model, the groundwork you have laid through calming, connection, recognition, and listening helps to position you to guide the direction of the person in crisis and ultimately, the outcome more effectively.
+94
+
+Although the individual feels they are regaining control, you are shaping the outcome through structure, clarity, and boundaries. The result is not only a successfully de-escalated situation, but an interaction in which the person feels respected, supported, and treated fairly. When handled correctly, this increases the likelihood that future interactions with your organization will be calmer, more cooperative, and more positive overall.
+95
+
+DE-ESCALATION - CONCLUSION
+E ffective de-escalation is not accidental. It is deliberate, disciplined, and skill based. The CRISIS Model provides a structured framework for managing human behavior under stress by reducing emotional intensity, restoring cognitive function, and guiding outcomes without force, coercion, or confrontation. When applied correctly, it allows you to influence situations while preserving dignity, safety, and control.
+At its core, CRISIS is about self-control before external control. Your tone, posture, language, and emotional regulation shape the environment long before any words land. By staying calm, recognizing emotion, listening actively, setting clear limits, providing options, and shifting control appropriately, you create conditions where cooperation feels natural rather than forced. The person in crisis believes they are regaining control, while you are quietly shaping the safest and most reasonable path forward.
+This approach works because it aligns with human psychology under stress. People resist domination, intimidation, and judgment, but they respond to clarity, respect, and perceived choice. De-escalation is not about winning arguments or asserting authority. It is about managing behavior, preventing harm, and achieving compliance through trust and professionalism.
+Ultimately, you cannot control another person’s emotions or actions. You can only control your own. Mastery of de-escalation comes from disciplined and structured communication, controlled body language, and the ability to resist emotional reactions and outdated or bad habits. When you apply the CRISIS Model
+96
+
+consistently, you not only increase the likelihood of resolving immediate situations safely, but you also leave individuals with a sense of fairness, respect, and trust, increasing the likelihood of calmer, more positive interactions in the future.
+That is the power of the Centerline CRISIS De-escalation Model. Control without confrontation. Influence without escalation. Outcomes shaped calmly, professionally, and effectively. Violence avoided and safety achieved.
+
+ADAM SEEGMILLER is a 24-year military veteran
+who retired at the rank of Sergeant Major. Across decades of service in high-risk environments, he learned that successful outcomes were far more often driven by judgment, emotional control, and de-escalation than by physical force.
+For over a decade, Adam served with an elite High-Risk Close Protection Unit, leading global operations and delivering specialized training. Although qualified as both a Close Protection operator and SWAT member, his operational success increasingly depended on his ability to manage volatile human behavior, read the situation, and prevent situations from escalating into violence. After transitioning into Special Operations, where he served for seven years, Adam deployed extensively to Afghanistan, Iraq, Palestine, Syria, and multiple conflict zones across Africa. In these contexts, the ability to slow situations down, influence behavior, and resolve tension without unnecessary force proved more valuable than physical dominance. As a Chief Instructor, Adam led HighRisk Protection, hand-to-hand combat, advanced shooting, and tactical training programs for Federal and Local Police Tactical teams. While skilled in physical and tactical disciplines, his instruction consistently emphasized decision-making under stress, restraint, and proportional response, recognizing that tactics alone do not determine outcomes in real-world operations.
+Adam’s combat experience during the 2006 Kandahar campaign was featured in Operation Medusa. He also received a Commendation from the Chief of Defence for his leadership and tactical judgment while serving as Team Leader for a small unit responsible for protecting the Canadian Ambassador and Embassy in Kabul, roles where de-escalation and composure were essential to mission success. Now retired, Adam works as a training and tactical consultant, advising military, law enforcement, and special operations units on operational strategy, human factors, tactics and equipment selection. He was a keynote speaker on de-escalation at the World Aviation Training Symposium in Tampa, Florida, and regularly lectures on, de-escalation, leadership, decision-making in high-pressure environments.
+www.centerlinetactical.com
+
+
