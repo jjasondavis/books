@@ -1,0 +1,604 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB, DRM removed for personal use). -->
+Source file: Sex Magic_ Flirting With The Demonic_nodrm.epub
+Title/Edition: Sex Magic: Flirting With the Demonic; Mack Major; 2020; owned copyright — personal use, do not distribute.
+
+c0
+
+c9
+
+Sex magic
+
+MACK MAJOR
+
+cJ
+
+Sex magic
+
+Copyright ©2018 Mack Major. Published by EDEN DECODED INCORPORATED. https://edendecoded.com
+
+ALL RIGHTS RESERVED. No part of this publication may be reproduced, stored in a retrieval system or transmitted in any form by any means, electronic, mechanical, photocopy, recording, or otherwise, without the prior permission of the publisher, except as provided by USA copyright laws. The author and publisher have taken great care to properly credit each photo and illustration in this book (ebook) to its original source. Please notify the publisher of any inadvertent omission, and correction will be made at the earliest opportunity. Photos and illustrations and the rights thereto remain the property of the original sources and are used here only as provided by USA copyright law.
+
+All scripture quotations are from the King James Version of the Holy Bible, unless otherwise stated.
+
+For all inquiries, contact https://edendecoded.com
+
+intro: sex portals
+
+Believers are being initiated directly into the occult through something called sex magic; and most don't even know it. If you've ever engaged in masturbation, fornication, watching porn, adultery, homosexual relations, BDSM, cross-dressing, spouse swapping, orgies, toy parties, had an abortion: you've been engaged in some form of sex magic; and whether you know it or not you've been having open fellowship with actual demonic entities.
+
+Sex is more than just a means of sensual pleasure. According to the Word of God sex outside of the marriage covenant is also a means of releasing spiritual powers and living entities that are capable of bringing untold problems, pains, mental disorders, sickness/disease and even premature death into one’s life.
+
+Many are suffering right now from the ill effects of having opened Pandora's box. Sex occupies their mind 24/7. They cannot control the urge to masturbate. Their minds are constantly bombarded with unclean thoughts. Can't stop watching porn. And some can't even enjoy sex with their spouse without the help of some form of visual aid or sex toy. Far too many have become numb in mind and spirit to how God feels about the mortal danger of sexual sin.
+
+For some the symptoms are even more pronounced. Their lives are overrun with constant misfortune. Relationships that start off well crumble. Golden opportunities seem to turn into dirt. Opportunities to advance in life slip right through their hands and they end up going nowhere, remaining stuck in lives of growing unhappiness while living in quiet desperation. Nothing that should go right is ever sustained, and instead things end up going wrong.
+
+If this is your situation, you're not crazy and you're not cursed. You've just opened a sex portal; and now your life is being blockaded by evil spirits that are intent on destroying you in every way. In order to break free and get your life back, you need to know how those portals were opened, and more importantly how to close them forever.
+
+In this book you are about to read, you will learn and discover if you've been wittingly or unwittingly engaged in sex magic. We’ll explain sex magic in more detail later. You'll know if you've been secretly cavorting with demons; and most of all what you can do to come out of those sinful practices in order to escape the wrath of God. For the Bible makes it crystal clear:
+
+"So put to death the sinful, earthly things lurking within you. Have nothing to do with sexual immorality, impurity, lust, and evil desires. Don't be greedy, for a greedy person is an idolater, worshiping the things of this world. Because of these sins, the anger of God is coming.” [Colossians 3:5-6]
+
+sex is worship 
+
+Sex is a physical act of worship to a spiritual power. It always has been—always will be.
+
+Do a study on the word 'fornication.' When we study this word out in its original form in the Greek, we find that fornication was a ritual act of worship to specific gods and goddesses of the ancient world.
+
+During these ritual acts a man or woman would choose a sex partner—often a sacred prostitute—from either gender. Then they would engage in the sexual act; not simply as a form of pleasure. But they did it as an act of direct worship to a specific deity. This is important to know because this is how God views fornication. All forms of fornication are worship to fallen angels—which were the gods of the ancient world—and to their offspring, which are demons.
+
+IMAGE: Ancient Hindu stone relief of temple sex magic 
+
+The people of pagan cultures thought they could somehow invoke the demons they worshiped through ritual sex acts to assist them in their lives, helping them out of some specific problem, or to make their lives better.
+
+Now we know as believers in Jesus Christ and from studying the holy scriptures that any god that is being worshiped apart from our God is really a demonic spirit.
+
+"No, but the sacrifices of pagans are offered to demons, not to God, and I do not want you to be participants with demons." [1 Corinthians 10:20]
+
+Fornication was always therefore an act of worship to demons. And it still is!
+
+IMAGE: Ancient Hindu stone relief of temple sex magic; a demonic god (in center) is having an orgy with 6 human women 
+
+Here's where it gets interesting: when a husband and wife have sex together, they too are committing an act of worship. Because sex is worship! They're actually worshiping the Lord God—because God made sex to be something shared between a man and his wife.
+
+In this way, God replicates His kingdom in the world establishing divine order on Earth. The family structure has always been God's method of establishing His sovereignty over the Earth.
+
+Sex is a way that we use our bodies to honor and worship God.
+
+But when you have sex in any other way outside of the way God has sanctioned—a husband (male) with a wife (female) —you are now invoking demonic powers to enter your sexual act. And they will.
+
+Sex was never meant to be shared haphazardly between anyone who temporarily struck your sexual interest. When we have sex, we're worshiping the gods. Either we're worshiping the Father of our Lord and Savior Jesus Christ by having sex within our marriages—OR we are honoring old demon-gods from the ancient world that are still with us today.
+
+"They sacrificed to demons who were not God, to gods whom they have not known, new gods who came lately, whom your fathers did not dread." [Deuteronomy 32:17]
+
+I also want to state that intention doesn't matter on this one. People tend to think that being ignorant of this fact somehow absolves them of their guilt. This is one of those cases where ignorance of the law is no excuse!
+
+Whether you meant to or not, when you engage in sexual activity outside of marriage—whether it's between someone of the opposite sex, the same sex, with a toy, or whether you use your eyeballs to engage in fornication via watching pornography—YOU ARE ENGAGING IN ACTS OF WORSHIP TO DEVILS!
+
+This isn't always taught in the church—but it should be! Folks need to know why their lives aren't getting any better in spite of all the porn they've watched, all the random sex they're having, and no matter how many orgasms they feel.
+
+Those things are the very reason why your life can't get any better!
+
+Christians need to know that when they are having sex outside of God's covenant of a marriage, they are sending out a powerful beacon that's guaranteed to eventually attract evil demonic spirits into their lives. And rarely do those demons come alone.
+
+They often come bringing sickness, disease, physical ailments, mental problems and a whole host of other maladies and ailments with them.
+
+You might be feeling the effects of those evil spirits in your life right now. Where do you think those voices of self-harm are coming from in your mind?
+
+You're not crazy! Those are demonic voices that have somehow become attached to you; most likely through all the sinful sexual activity you've engaged in. You've opened your life up to demons; and now they're here to stay.
+
+The only cure or remedy is absolute devotion and 100% alignment with Jesus Christ and His will for your life. Jesus is not just another option in this world—He is the ONLY option! The only other choices are all devils.
+
+sex magic = 666 
+
+Sex magic involves using sex as a means of obtaining deeper levels of spirituality and personal power. If you've ever described yourself as a sapiosexual, or believed sex was a means to gaining spiritual depth and insight: you've been dabbling in sex magic.
+
+If you've ever thought that sex is a means of personal empowerment: you've also been engaging in a very elementary form of sex magic.
+
+Sex magic was made popular in modern times by a guy named Aleister Crowley. Crowley was a self described 'beast 666' magician who fully embraced every type and form of occult witchcraft, magic and sorcery he could get his hands on.
+
+IMAGE: Occultist-satanist Aleister Crowley mocking the cross 
+
+Aleister Crowley went to places like Egypt and spent the night inside one of the ancient tombs there, where he met and conversed with ancient beings from another dimension. They dictated to him what became his signature work on occultism and magic. But Crowley didn't stop there.
+
+Crowley became convinced that he could discover deeper levels or degrees of occult power through sex. He engaged in homosexual sex with friends and colleagues, along with group sex and even bestiality. He sacrificed animals and drank their blood, and is believed to have sacrificed humans and ate human flesh as well, in the tradition of the feared Aghoris of India who’ve devoted themselves to serving the dreaded Hindu goddess Kali. He conjured and welcomed all types of demonic spirits into his body and mind, and did unspeakable things in order to gain insight and knowledge into every sort of occult practice he could find.
+
+He even went into the deepest depths of occultism found among the Aghoris of India, where he practiced tantra (black magic), ate rotted human flesh and excrement, drank things too detestable to reprint here: all to gain deepening levels of knowledge into the dark forbidden arts of witchcraft. We'll talk more about tantra later. It's not what most people have been led to think it is.
+
+IMAGE: Newspaper article about occultist Aleister Crowley 
+
+By the time Crowley died, he was a broken and deeply afflicted man. Years of consuming opium and heroin in attempts to reach altered states of consciousness, left him horribly addicted to drugs. His teeth had rotted out due to the detestable things he'd eaten and consumed. But he had reached his goal: of mastering the depths of occult knowledge and insight. And he readily shared these with anyone willing to listen.
+
+Aleister Crowley was not an anomaly. Much of the entertainment world along with many of your favorite celebrities practice his form of magic.
+
+Michael Jackson allegedly used Crowley magic in order to come up with much of his music and dance moves. As did the Artist Formerly Known As Prince. The Beatles have been and still are massive Crowley acolytes, as are many of your favorite rappers, rock, heavy metal, pop and R&B stars; and far too many others to list here.
+
+IMAGE: Rap producer Tyler the Creator sporting his Aleister Crowley t-shirt 
+
+IMAGE: JayZ sporting the phrase made famous by Aleister Crowley: “Do What Thou Wilt” 
+
+IMAGE: Whoopie Goldberg from a famous scene in the movie The Color Purple. Pose is very similar to Crowley’s Hermetic Order Of The Golden Dawn magician pose 
+
+Crowley summed up his teachings in one phrase: 'Do what thou wilt is the whole of the law.' That was his rallying cry.
+
+Of course Crowley’s phrase flies in direct opposition to the teachings of the Holy Bible, where the whole of the law is summed up in Ecclesiastes 12:13: "Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for this is the whole duty of man."
+
+Crowley is dead and has gone on to his just reward. But his teachings remain with us today, and have become part of everyday pop culture.
+
+Wherever you find people playing down the dangers of sexual sin, you see the trademarks of Crowleyism. This is especially true in the Church world.
+
+At no other time in recent history has Christianity been so silent when it comes to sexual sin.
+
+We used to be quick to call out the obvious sins such as homosexuality, fornication and adultery. But nowadays Christians are silent on the fact that young single women are showing up bringing new babies to be Christened. And no one blinks an eye in protest. We don't call out the sin of abortion any more; and we rarely even speak on the sins of the LGBTQ ___ (fill in the blank) people any more.
+
+IMAGE: Lesbian marriage ceremony 
+
+We've been so lax on speaking out against the dangers of sexual sin that it's now become normal for these very sins to be commonplace in the church among Christians. We have divorce in the church. Adultery. Fornication. Christians have become hopelessly addicted to pornography. We even have Christians purchasing sex dolls and sex toys to engage in sexual acts with. There are Christian swingers and Christian BDSM groups.
+
+There are even Christian polygamists who use the cover of polyamorism to engage in group sex, threesomes and orgies: all while using the Bible and scriptures pulled out of context to justify their sinful lifestyles.
+
+Every type of sin and abomination found in the world is now found in the Church. And Jesus Christ is highly upset about it!
+
+"I know your deeds; you are neither cold nor hot. How I wish you were one or the other. So because you are lukewarm—neither hot nor cold—I am about to spit you out of My mouth!" [Revelation 3:15-16]
+
+"Therefore, I have begun to destroy you, to ruin you because of your sins." [Micah 6:13]
+
+“Professing to be wise, they became fools, and changed the glory of the incorruptible God into an image made like corruptible man—and birds and four-footed animals and creeping things. Therefore God also gave them up to uncleanness, in the lusts of their hearts, to dishonor their bodies among themselves, who exchanged the truth of God for the lie, and worshiped and served the creature rather than the Creator… For this reason God gave them up to vile passions...” [Romans 1:22-26]
+
+roots of sex magic 
+
+Tantra is the use of black magic, occult powers and is a direct form of witchcraft. It is believed by practicing Hindus to be the ultimate way to break the yoke of reincarnation by invoking the presence of Hindu spirits—good and evil—that will help awaken psychic or paranormal powers within a person.
+
+Tantra is basically summed up as using rituals that invoke the powers of the Hindu gods, that will enable a person to obtain and use occult supernatural powers to gain whatever one desires in life (i.e. tantric sex).
+
+IMAGE: Many depictions of ‘Black Love’ in artwork are based on demonic-ritualized sex, known as tantra 
+
+These powers are from demonic sources. People who follow tantric sexual practices get tricked because of the illusion of power to be gained, not realizing the cost that these powers come by, or what will be required of the person in order to obtain this power. The ultimate cost is enslavement to demons.
+
+However—to the western mind—Tantra and tantric sex involves little more than an increased sexual heightening that takes place by the male holding his ejaculation in, and gaining a sense of spiritual enlightenment from the overall experience along with his partner. But this is not what Tantra is at all.
+
+Below is a list of quotes based on the Hindu perspective about Tantra:
+
+"It is true that many later Tantric texts emphasize retention of semen during union; but there are in fact many Hindu Tantric traditions—and arguably, the older traditions—that call for ejaculation of the semen and consumption of the combined male and female sexual fluids.” [Source: Krishananda Agamavagisha, Brhat-Tantrasara, ed. Rasikamohana Cattopadhyaya]
+
+“According to the Brhat Tantrasara—one of the largest compendia of Tantric ritual and iconography composed by the great 16th century author, Krishnananda Agamavagisha—the shedding of semen into the womb of the female partner is the ultimate ‘sacrificial act.’ For ‘sexual union is the libation; the sacred precept is the shedding of semen.’" [Source: Krishananda Agamavagisha, Brhat-Tantrasara, ed. Rasikamohana Cattopadhyaya]
+
+“The mingled sexual fluids are then consecrated and consumed as the supreme sacrificial offering—called the kula dravya or ‘lineage substance’—which has the power to fulfill all worldly and otherworldly desires. As David Gordon White has argued, this practice of orally consuming the sexual fluids can be found in many of the oldest Tantras and probably pre-dates the practice of seminal retention." [Source: Brhat Tantrasara; “Tantric Sects and Tantric Sex: The Flow of Secret Tantric Gnosis," in Rending the Veil: Concealment and Secrecy in the History of Religions; “The Conservative Character of Tantra”]
+
+Helena Blavatsky was a well-known Western occultist from the late 19th century who spent much time in India learning the secrets of Hindu occultism.
+
+IMAGE: Occultist Helena Blavatsky 
+
+She maintained a great admiration for Indian philosophy and even relocated her Theosophical Society to Southern India. Yet, when it came to Tantra, she readily identified it with black magic of the most foul and depraved variety:
+
+Blavatsky taught, “Tantras...are the embodiment of ceremonial black magic of the darkest dye…Those Kabbalists who dabble in the ceremonial magic described...by Eliphas Levi are as full blown Tantrikas as those of Bengal."
+
+Below is a controversial picture of Helena Blavatsky during the mid-1800s with who she calls her Ascended Masters: Kuthumi, Morya, St. Germaine. This picture is controversial because Blavatsky claims these men are ghostly manifestations of her spirit guides.
+
+Image: Helena Blavatsky (center) surrounded by her three spiritual guides, also known as her Ascended Masters. If true, these are little more than the manifestations of her demon guides 
+
+It also seems probable that Aleister Crowley was deeply influenced by these views of Tantra, which were widely circulated in both India and England from the late 19th century onward.
+
+Aleister Crowley was one of the very first Westerners to openly adopt and practice Tantra, synthesizing it with his other forms of sex magic.
+
+IMAGE: Aleister Crowley in his Thelemic Order of the Golden Dawn garb; credited as the pioneer of westernizing "Tantric Sex Magick" 
+
+Crowley is widely accepted as the one person above all others who popularized the concept of Tantric sex to the western world.
+
+The following are quotes that give a general idea of the kind of person Crowley was.
+
+In his occult book “The Great Beast” Crowley says:
+
+"I will work the work of wickedness,
+
+I will kill my heart,
+
+I will be loud and adulterous,
+
+I will be covered with jewels and rich garments.
+
+I will be shameless before all men,
+
+I will, for token thereof, will freely prostitute my body to the lusts of each and every living creature that shall desire it,
+
+I claim the Mystery of Mysteries, BABYLON the Great, and the Number 156, and the robe of the Woman of Whoredoms and the Cup of Abominations."
+
+In a letter to his brother-in-law, Gerald Kelly, Aleister Crowley wrote, "I say today: to hell with Christianity, Rationalism, Buddhism all the lumber of the centuries. I bring you a positive and primaeval fact, Magic by name: and with this I will build me a new Heaven and a new Earth. I want none of your faint approval or faint dispraise; I want blasphemy, murder, rape, revolution, anything, bad or good but strong."
+
+In a 1911 magazine interview with London’s The Vision and the Voice, Aleister Crowley, spoke on the purpose of Tantric Sex and other forms of sex magic stating, "This is the great idea of magicians in all times—To obtain a Messiah by some adaptation of the sexual process. In Assyria they tried incest...Greeks and Syrians mostly bestiality. ...The Mohammedans tried homosexuality; medieval philosophers tried to produce homunculi by making chemical experiments with semen. But the root idea is that any form of procreation other than normal is likely to produce results of a magical character.”
+
+Donald Michael Kraig, American occult author and practitioner of ceremonial magic, reminisces about Aleister Crowley, “Aleister Crowley is also a key figure in the transmission of Tantra to the West, and also in its increasing fusion (perhaps hopeless confusion) with Western varieties of sexual magic. In the course of its complex journey to the West, Tantra has been progressively transformed form a highly esoteric tradition centering around secrecy and power to an increasingly popular form of spirituality centering around healthy sexuality and liberated openness. In spite of—or perhaps because of—his superficial understanding of Tantra, Crowley would become a seminal figure in this transformation and is still today widely cited as the modern pioneer of ‘Tantric Sex Magick’ and one of the first Western adepts of Tantra. Not only can we now uncover the Secrets of Western Tantra or dabble in Celtic Sex Magic, but there is even an organization dedicated to the synthesis of Western and Eastern sexual techniques calling itself ‘NAMASTE’—the ‘New Association of Magical, Sexual and Tantric Explorers.’"
+
+Hollywood has been a major epicenter of Aleister Crowley’s sex magic techniques; so much so, that the production of Hollywood movies, song lyrics, TV shows and commercials have sex magic embedded within their plots and visuals designs.
+
+IMAGE: Major corporations, like Burger King, promote sex magic shamelessly in their advertisements 
+
+IMAGE: Angela Bassett and Lady Gaga share kisses and sex scene in popular FX network show American Horror Story Hotel. Angela Bassett is an iconic Black actress often admired for her classy and respectable style, which many Black women idolized and follow. How far does her influence go? (source: FX 2015) 
+
+Sex magic is so ingrained into our culture that most people are totally unaware when they see it. Homosexuality, including lesbianism and transsexuality, are all sex magic practices.
+
+Satan has been successful at initiating people into a funnel of sex magic that grows increasingly darker the further down that funnel one goes. And sooner or later those who enter the funnel will be moved to act out those visions from pages and movie screens into real life. And from this increased sexual activity, Satan hopes to produce an offspring: The Son of Perdition. The Antichrist.
+
+sex demons 
+
+Many of you have already had actual encounters with real demons. And perhaps you didn't know it.
+
+It happened when you were busy having sex with someone you weren't married to; or while you were engaging in some other type of sinful sexual activity. The Bible is explicitly clear about adultery and fornication: it's something God does NOT play around with!
+
+When you have sex outside of marriage in any way that is a clear violation of God's rules, you literally open yourself up to being infiltrated by the very same demons that other people are carrying around in them.
+
+I'm not speaking figuratively here: I'm talking real, genuine, bonafide, ‘devil’ demons. The kind that look like something from a horror movie. Because demons are real. And when people do unholy acts and sinful things, especially sexual things, they most certainly open themselves up to demonic infestation. This applies to you Christians too!
+
+IMAGE: Depiction of an unclean spirit 
+
+Just because you invited Jesus into your heart doesn't mean that the demons from your past will automatically leave. No, sometimes those demons will hunker down and dig in deeper: until they are forcefully evicted from your life.
+
+Neither does getting saved automatically 'demon-proof' you for the rest of your life.
+
+You have to completely repent for living in a sinful lifestyle, and live a truly clean life every day going forward. Or else you'll be leaving the door open for demons to come back in and take up residence.
+
+Let’s take a look at the biblical account of the demonic entity called: LEGION
+
+The Bible often refers to demons as unclean spirits. This is because demonic spirits are attracted to 'unclean' things. If you're reading this and you are familiar with the Bible, you'll remember the story about Jesus casting a legion of demons out of a man. (A legion, by the way, consisted of 6,000 demons! Think about that.) You can find this story in Matthew 8:28-34; Mark 5:1-21 and Luke 8:26-40.
+
+In the story, you'll remember the man being described as naked. Matthew 8 describes it being two men. Which is interesting because this indicates that he/they were involved in some weird, perhaps even sexual type of stuff. The kind that involved two naked men. Just use your imagination here.
+
+These two men also lived among the graveyard tombs, where dead bodies were placed. According to Jewish law a person was considered to be unclean if they touched a dead body. These two guys were living with real corpses!
+
+What I'm pointing out to you was that these poor guys had been engaging in some 'unclean' activities; which inevitably attracted those unclean demonic spirits into them. More than likely it involved some type of witchcraft.
+
+And just to make sure the point that sin attracts demons wasn't lost:
+
+When the demons inside the men began to beg Jesus not to punish them, they made a strange request that Jesus actually granted. The demons asked to be sent out of the men and into a large herd of pigs that was feeding nearby. By the way: pigs are also considered to be unclean animals according to Jewish scripture.
+
+Jesus gave them permission to go, and approximately 6,000 demons exited from the men and got inside the pigs, driving the pigs to commit mass suicide by running over a cliff. Demons are also suicidal by nature. Jesus described the nature of demons like this:
+
+"The thief comes only to steal and kill and destroy. I came that they may have life and have it abundantly.” [John 10:10]
+
+This is why homosexuality and suicide often go hand in hand. It's not because of bullying based on someone's decision to be gay. It's due to the presence of very dangerous sexually deviant demons in that person's life. And those demons will ultimately try to get a person to self-mutilate or commit suicide.
+
+This self-mutilation is accomplished through the graphic way homosexual men abuse their own bodies for sexual gratification; and the way some of them undergo sex change operations that totally 'denature' them.
+
+Self-mutilation is accomplished in lesbian women in the way they abuse their own bodies with sex toys, other objects and lubes: many of which contain highly toxic cancer-causing parabens and other dangerous chemicals. And by the way many of them also denature themselves by suppressing or getting rid of their breasts altogether.
+
+These demons tried to get the men in the Bible story to kill themselves earlier through cutting themselves with stones, as the story tells us. They were classic textbook 'cutters.' Thank God they didn't succeed in getting these two fellas to kill themselves or each other!
+
+The pigs however weren't so fortunate. These demons eventually accomplished their mission to kill something by getting the pigs to kill themselves.
+
+The point is: demons are attracted to unclean things and unclean living. And when you engage in fornication, masturbation, adultery, homosexuality, lesbianism, bisexuality and other forms of sexual lusts and perversions: you are sending out a powerful beacon that will eventually attract some very dangerous demonic spirits into your life.
+
+Some of you have already started witnessing the effects of having invited demons in your life. And it scares you.
+
+THESE DEMONS ARE THE REASON WHY SOME OF YOU:
+
+can't hold down a job; 
+why you are always broke; 
+why you can never finish or complete anything in your life; 
+why you can't hold down a meaningful relationship that leads to marriage; 
+why you have health issues in your reproductive area; 
+why you have night terrors and visitations from shadow people; 
+why you're anxious or depressed; 
+why you have thoughts of suicide, hurting yourself or other self-destructive tendencies; 
+why you have fits of rage; and 
+why you have such an attraction to occult things and paranormal stuff. 
+
+These are signs that your unclean lifestyle may have attracted the attention of some unclean spirits. And now you're stuck with these devils and their unwanted symptoms in your life.
+
+In order to be free of these nasty wicked spirits, you need to effectively purge those demons from your life. But you won't be able to do that if you don't desire to change your current lifestyle.
+
+If your present way of living is what attracted them to you, you must make it uncomfortable for them to stay by changing how you live.
+
+Demons are like freeloaders. They’re like the stray cat that’ll always come back around once you start feeding it. Once they come in you'll have a difficult time getting them to leave.
+
+The only way you can guarantee to get demons out of your life for good is through a superior Power that will enable you to live a decent clean life. And I already showed you what that superior Power is through the Bible story above. That power belongs to JESUS CHRIST.
+
+Demons are literally terrified of Jesus Christ. And for good reason: He's the One that will ultimately punish them for their wickedness. Just the mere mention of His name gets them riled up and antsy. And if you plan on getting the demons that you invited to leave you alone, you'll need Jesus' help every step of the way.
+
+To underscore my point in all this, the following is an excerpt taken from the autobiography of James Todd Smith, better known as LL Cool J. It's titled I Make My Own Rules.
+
+I was blown away when I read this because it goes to the heart of what I’ve been preaching now for the past few years: that these sex demons are indeed real, and they target both men and women to bring destruction into people’s lives.
+
+IMAGE: LL Cool J’s autobiography published in 1997; detailing his personal encounter with a sex demon 
+
+In this part of his book, LL Cool J was rehashing a supernatural encounter he experienced after dealing with a young woman of Trinidadian and Dominican descent. She had been using voodoo on him and had him totally under her spell. To his credit he talks very candidly about this experience. The whole book was revealing. The book is out of print, but you can still locate a copy on Amazon.
+
+Believing himself to be under some type of witchcraft, a friend educated him on how to deflect spiritual assaults. As he began to put those teachings into practice the young lady who had been using witchcraft on him suddenly died just two weeks later from lung cancer. After her death, while lying on a bed in his grandmother's basement—a place of safety and comfort that he often returned to when needing to clear his thoughts—he recounts this supernatural encounter:
+
+"So, I'm lying there, and all of a sudden I feel this force. Some people may think this is crazy, but it's real. This force--a demon--was in the room, hovering over me. It pinned me to the bed. I couldn't move. I could hardly breathe. It had my arms pinned to the bed, and I felt this presence around my face. It was like the forces of darkness had come to life in my room. I could feel the breath on my face. It said, ‘You can be where you want to be. You can have everything you want. But you have to say yes now.’
+
+At the time I was feeling like I had nothing--no kids, no wife, no friends, no home, no career, nothing. I had the reverse Midas touch--everything I touched was turning to s***. But I knew if I said yes, I would be selling my soul.
+
+It said to me again, ‘Say yes. Just say yes, and it's yours.’
+
+I was fighting, trying to break loose. I screamed, ‘No!’ And as I said no, I felt snakes crawling through me up my rectum, out of my mouth and ears, and then wrapping around my neck, choking me. I heard women giggling all around me. And then--silence. Everything was gone.
+
+I was left lying there sweating, my wrists aching. Even today, sometimes my wrists ache for no apparent reason."
+
+It should be noted that nowhere in the book did LL Cool J ever mention getting delivered from these evil spirits, nor of giving his life to Jesus Christ. And this incident happened after he was already famous and had been making music for some time.
+
+LL Cool J even mentioned elsewhere in the same book how the more debased his sexual activity became the better his music got.
+
+IMAGE: LL Cool J 
+
+So…how many of you were rocking out to this man's songs when he was under the spell of witchcraft and full of demons?! And where does that now leave you? Be careful of what you allow to entertain you; for whatever entertains you eventually enters you.
+
+modern temples of sacred prostitution 
+
+Strip clubs and whore houses are modern temples of sacred prostitution where sex magic is practiced on virtually a daily basis. This is why the writer of the book of Proverbs stringently warned its male readers to avoid darkening the doorway of the prostitute. In Proverbs 5:8, we're told about her that her paths lead to the steps of hell itself.
+
+“Keep your way far from her, and do not go near the door of her house…” [Proverbs 5:8]
+
+“If you follow her, she will lead you down to the world of the dead.” [Proverbs 5:5]
+
+Whenever a man frequents a strip club, he has just entered into a sacred temple of prostitution. I'm using religious sounding language here because this is precisely what it is. All sex is spiritual: including the 'sex' that a person has by him or herself. I speak of masturbation.
+
+Masturbation was always used in conjunction with ritual sex acts designed to invoke outside spiritual entities to empower and indwell the person engaged in the sex act.
+
+There is nothing new under the sun. So just because someone doesn't think that is the purpose of such activity today, the purpose of it has never changed. Masturbation indeed summons evil, unclean and often demonic spirits. What was thought to be a means of self-pleasure and self-indulgence ends up becoming a snare for one’s body, mind and very soul.
+
+Strip clubs are designed to operate much the same way as temples of prostitution did thousands of years ago.
+
+Ever notice that strippers tend to move, wiggle and dance much like the movements of a snake? This is not by accident.
+
+The serpentine-like movements of a woman's body are often seen as seductive: which is what the original ancient serpent from the Garden of Eden did when it approached Eve. It seduced her, as evident in the language used to describe the serpent in Genesis 4.
+
+IMAGE: Strips clubs operate just like ancient demonic temple worship: fornicate and throw money at feet of the temple goddess for a life of fun and pleasure 
+
+Anyone who has ever been involved in stripping, prostitution or making pornography more than likely has an evil spirit either attached to her life that will constantly follow her around: or she has an actual unclean spirit dwelling in her. Only through the liberating power and authority of Jesus Christ can she be set free.
+
+This explains the self-destructive behavior often accompanying the life of a sex worker. There was a saying when I use to date strippers and such in my unrighteous days: 'All strippers are crazy.'
+
+A person has to have some type of deep pain or another type of deep seated dysfunction in their lives that leads them into the life of being a sex worker.
+
+But what we were actually saying without realizing it is that all strippers: no matter how beautiful, sensual or fine they looked—had evil spirits attached to them.
+
+This is why so many of them end up hooked on alcohol and different drugs. Drugs and other intoxicants are associated in the Bible with sorcery—pharmakeia.
+
+It's rare for a woman to enter the sex industry and leave without ever having devolved into deeper levels of sin.
+
+One cannot leave clean once entering the devil's den. That innocent girl trying to pay her way through college by stripping for a few extra bucks on the side ends up in deeper layers of sinful activity: be it drugs, heavy drinking, outright prostitution or escorting, lesbian/bi-sexual activity, sexual orgies and such. All of which are different methods and ways that the ancient gods were summoned or worshiped.
+
+voodoo dancing 
+
+Whenever you see a woman twerking or doing other ritualized sexual dances—butt hiked up in the air gyrating sensually to the sounds of music—you're not really watching that woman. You're most likely watching something in her dancing through her. Let me explain.
+
+IMAGE: Americans are not aware they are performing African Voodoo dance rituals. The Banda voodoo dance is what Americans call twerking 
+
+I have a theory about African Americans. Whenever black folks in America get away from serving Jesus Christ, we will always resort back to serving the spirits and powers of the African Orisha of the native animist religions of West Africa.
+
+Black American culture is steeped in Voodoo (Voudun). And this equally applies to black people from the Caribbean, Central and South America who came to the new world via slave ships and into the different slave ports of the Americas.
+
+Much of this can be seen in our current black gang-sorority-frat life and culture. The black fraternities, sororities, and even large organized street gangs like the ones in Chicago operate from a set of colors, rituals and symbols that all have their roots in voodoo. I did the research and found it to be astounding.
+
+Whether it’s the Kappas and the Vice Lords, or the AKA's and the Q's—you show me the frat or sorority along with their colors and symbols—I can show you which gang their colors and symbols correspond with, along with which demonic principality from voodoo rules the mindset and mental culture of that specific organization.
+
+This is because the persons responsible for establishing those different organizations and groups were themselves already trained and steeped in the foundations of the voodoo religion. And they knew black people would easily adapt to it because it's something many of us are already familiar with culturally and religiously.
+
+This takes us back to the subject of twerking. But before we talk about twerking as a simple dance, something must be understood about dancing as it relates to voodoo and other African-based religions.
+
+In voodoo dancing is part of an elaborate ceremony where spirits known as Loa are conjured up and invoked.
+
+These spirits are believed to be the spirits of deceased loved ones who've now become protectors of the society. Or they can be the actual gods of voodoo themselves manifesting.
+
+Based on the type of dance being performed one can tell which specific voodoo deity has been summoned and is now manifesting through the dancer.
+
+The most popular dance of the spirits within voodoo is one called the Banda dance. This is also known as being mounted or being ridden by the gods.
+
+The interesting thing about voodoo dancing is this: the person doesn't do the dancing. The spirits dance through the person. So when you see someone doing a particular type or style of dance, especially one that has its roots in ritual voodoo, you'll know which god or spirit of voodoo is at work inside of the person via spirit possession.
+
+Some of you have been avid twerkers. And many guys have been avid twerk watchers. Would it surprise you to know that the average twerker is really under the guidance of a demonic spirit associated with voodoo that is entertaining you through the person's body gyrating right before your eyes? Because in many cases that's exactly what's been going on! You just weren't aware of it.
+
+IMAGE: Women at college event twerking 
+
+When you twerk, you are giving your body over to a voodoo Loa (spirit) to enter into your body and cause you to dance seductively in the presence of others. It's not an innocent dance. And why would it be? Nothing about sin and the devil is innocent.
+
+vibrators, dildos, and sex demons 
+
+Greek mythology was filled with gods great and small. One of the lesser known but once very popular gods of the ancient world was one who went by the name of Priapus.
+
+Priapus was a fertility god; meaning his worship usually involved some type of sex ritual along with wild sexual orgies.
+
+Priapus was really popular in the ancient city of Pompeii, and many relics and idols depicting this god of lewdness have been excavated and unearthed.
+
+IMAGE: Ancient sex magic sculptures from Pompeii
+
+The walls of many of the homes and palaces within Pompeii were painted with detailed frescos of very graphic pornographic sexual scenes. Keep in mind that Pompeii was suddenly destroyed and thousands of lives were wiped out in an instant, when a sleeping volcano suddenly erupted and destroyed the entire city and its inhabitants.
+
+When archeologists began to dig many years later, they discovered some very interesting things: the people of Pompeii were completely engulfed in a culture of pornography, homosexuality, wild orgies and the worship of the little god with the huge member known as Priapus.
+
+Priapus had a very distinctive appearance. He was depicted as always having an oversized ever erect penis. We get the medical term 'priapism' from here, which is defined as a man having a painful erection lasting longer than 4-6 hours. Like the warning on those television commercials selling cures for erectile dysfunction to men.
+
+IMAGE: Ancient Priapus statue 
+
+Worship of Priapus included throngs of followers who honored him by offering prayers to and rubbing on the erect phallus of his statue. Those who really wanted his blessings did more than just rub the appendage with their hands...and I'll just leave it at that.
+
+Priapus worship was so popular that even as late as the 1800's in some Italian villages, priests would erect a huge statue in his honor whenever crops were failing.
+
+Right now, in America and Canada there are several branches of an odd religious organization known as the Church of Priapus. The members of these churches worship the male penis as a holy thing. Huge statues of the male sex organ are often found on the premises. And one particular building is actually built in the shape of male genitalia, seen only from an aerial viewpoint.
+
+IMAGE: Ancient Priapus amulet worn by followers for protection against evil, danger, and disease 
+
+Service often includes actual sexual orgies among the members as part of the worship. Almost all adherents to this peculiar faith are gay or bisexual males. Little surprise, Priapus churches are very popular in many homosexual communities around the country.
+
+Many ancient cultures and civilizations much older than the Romans and the Greeks also served similar sex-related gods.
+
+Often times, these gods were the same across different cultures and lands; only the names switched as language barriers got crossed. But much of the rites and practices remained the same.
+
+Archeologists have discovered a fascinating array of sex toys from around the world. They've been found in ancient Egypt, Mesopotamia, Japan, Budapest, the Americas. Some of these objects are believed to be over 25,000 years old!
+
+IMAGE: 25,000 year old ancient Japanese double dildo 
+
+Almost all of the older ones unearthed were life sized: meaning they were more than likely actually used by women during those particular times.
+
+The ancients believed that by masturbating with these items, the spirit of their gods would empower them through the sex toy to have better crops, more fruitful cattle, and make them personally more fertile. Putting it a different way: though they were sex toys, they were believed to actually be links and portals of power between spirits and humans.
+
+This places a new twist on dildos and vibrators today. When the bible says there is nothing new under the sun, that's exactly what it means! [Ecclesiastes 1:9]
+
+Sex is a very spiritual act.
+
+Sex is God's chosen method for bringing into physical existence His own children. But Satan very cleverly determined that sex could also be used to empower demonic entities via human sexual activity. And it's been his chosen method above all others to deceive and destroy humans.
+
+This is why we must not be ignorant of Satan's devices!
+
+Many of you who are reading this have sex toys in your possession right now. And whether you want to accept it as fact or not: those sex toys are an open portal between the demonic realm and your own life.
+
+As long as you have those sex toys in your home, you have a doorway that can allow demons to not only access your life at will, but also to torment you, hinder and destroy certain parts of your life as it relates to sex and your relationships.
+
+fornication tempts god to kill you 
+
+Many times the church fails to give an adequate explanation about why fornication is such a bad sin. It's not that God is trying to keep people from enjoying the pleasures of sex: He's actually trying to avoid destroying you!
+
+"Flee fornication. Every sin that a man does is outside the body; but he that commits fornication sins against his own body. What? know you not that your body is the temple of the Holy Spirit who is in you, whom you have of God, and you are not your own? For you are bought with a price: therefore glorify God in your body, and in your spirit, which are God's." [1 Corinthians 6:18-20]
+
+The New Living Translation version of 1 Corinthians 6:18 puts it like this:
+
+"Run from sexual sin! No other sin so clearly affects the body as this one does. For sexual immorality is a sin against your own body."
+
+See, there is another danger to fornication that goes beyond just giving access to demons and evil spirits, as I've mentioned many times before. And just to be clear—over the next few pages I'd like to explain what that danger is. Because understanding this could very well save your life.
+
+When you give your life to Jesus Christ, technically speaking 'you' no longer belong to just you. Your physical body now belongs to God too. Which means you are NOT free to do whatever you want with your body any more, like you once did prior to knowing Jesus Christ.
+
+Once you get saved and make an actual confession of Christ being your Lord, you have legally placed your body into His hands. You've entered into a legal contract with God, one that involves your body. It's now HIS body—not just yours. He's gracious enough to allow you to still live in it letting you be the caretaker over His body—provided that you honor and respect it by treating it as a holy instrument. But make no mistake about it: your body now belongs to Him.
+
+When you commit fornication, you are basically desecrating the body of Jesus Christ and showing utter contempt for it. You are abusing His holy body!
+
+This would be no different than if you literally spit in His face, or if you were the one punching him and holding the whip that was used to physically rip his flesh open with. You basically might as well just put the crown of thorns on His head yourself!
+
+You might think you're just having a little fun—or catching a quick orgasm—and that no one is aware of what you are doing. But know for sure that God not only sees you; He's about to do something very unpleasant to you unless you quit and repent!
+
+When we commit fornication, that is the only sin we commit that forces the hand of God to have to physically destroy us. None of us is so special that we are beyond God's power of judgment. God will never violate His own Word nor His holy edicts just to accommodate our desire to gratify our flesh with sin.
+
+Fornication is a very serious act of violation against our holy God. It violates our contract with Him when we confessed Jesus Christ as our Lord.
+
+Fornication is the only sin that virtually guarantees that if we indulge in it, God will be forced to destroy us. He said it clearly in His Word:
+
+"Do you not know that you yourselves are God's temple, and that God's Spirit dwells in you? If anyone destroys God's temple, God will destroy him; for God's temple is holy, and you are that temple." [1 Corinthians 3:16-17]
+
+These were not empty words written just to fill the pages of the Bible with. This is a stern warning that carries serious weight.
+
+We are warned that if we destroy God's temple—our physical bodies—via acts of sexual sin; God will in turn destroy us!
+
+Why do you think there are so many sickly, diseased, afflicted and ill Christians these days—so many Christians suffering from diabetes, high blood pressure, strokes, mental problems, cancers, etc? Has God stopped healing? No, but God always keeps His Word and His promises. And He has very clearly promised to physically destroy those that destroy His holy temple.
+
+LET THIS ALSO BE A WARNING TO THOSE OF YOU WHO LOVE TO TEAR UP PEOPLE'S CHURCHES AND MINISTRIES. If you tear up someone's church—know for certain that God will physically tear you up as well, via some type of illness or disease. Maybe even with an early death. This is no joke! So please pay attention to these warnings. Paul warned us many times through His writings of this very thing:
+
+"Anyone who eats this bread or drinks this cup of the Lord unworthily is guilty of sinning against the body and blood of the Lord. That is why you should examine yourself before eating the bread and drinking the cup. For if you eat the bread or drink the cup without HONORING THE BODY OF CHRIST, you are EATING AND DRINKING GOD'S JUDGMENT UPON YOURSELF. That is why many of you are WEAK and SICK and some have even DIED." [1 Corinthians 11:27-30]
+
+Did you catch that??? Paul has warned us that when we disrespect the Body of Christ—including our own bodies which belong to Jesus—we are in essence disrespecting the physical body of Jesus and His holy blood that was shed to provide us with salvation!
+
+Not even demons are stupid enough to go against the blood of Jesus! Yet this is what we do when we engage in fornication, then turn around and pretend like we honor Jesus by partaking in the Lord's Supper.
+
+And doing this has brought on all types of sicknesses and physical ailments into the Body of Christ. According to scripture it's even caused God to bring an early death upon some.
+
+We cannot afford to play around with sins like fornication. It's a very dangerous, deadly type of sin; and unlike all the other sins out there.
+
+"Flee fornication. Every sin that a man does is outside the body; but he that commits fornication sins against his own body. [1 Corinthians 6:18]
+
+And just to be sure: fornication is an old English word that comes from an older Greek word "porneia." Porneia is where we get the word 'pornography' from.
+
+Fornication doesn't just mean sex outside of marriage—it also means using your eyes to look at fornication via the computer screen, as well as using your hands and other objects to masturbate with. It all falls under the umbrella of fornication.
+
+Bottom line: when you fornicate, you are tempting God to kill you. And that's just stupid. There really is no other way to say it. "We should not commit sexual immorality, as some of them did, and in one day twenty-three thousand of them died. We should not test Christ, as some of them did, and were killed by snakes." [1 Corinthians 10:8-9]
+
+Snakes in the Bible are also symbolic of demonic spirits—particularly the kind that bring illness and death. If you're struggling with sexual sin in your own life and would like to stop it: today is the day to ask Jesus Christ to take the wheel over your sexual appetite. You need to surrender your will to His will today—and do it fast.
+
+You may not have as much time to get right with God as you might think. Satan is a master manipulator and an exceptional liar. He'll have you believing you have plenty of time to stop sinning and getting right with God—while being under threat of destruction the whole time.
+
+Many believers are suffering the pangs of cancers, blood disorders, immune deficiencies, body aches, pains and other physical problems—simply because they won't stop masturbating, watching porn, engaging in sex with others, sexting over the internet, and committing other sexual sins. And their troubles won't stop until they do. 
+
+sex trap 
+
+Fornication is a trap! It’s one of the deadliest traps known to man. But it's hard to tell because we live in a sin-soaked environment where fornication, free sex, flirting, lascivious dressing and other forms of sexual deviancy are championed, promoted and made to look like harmless fun.
+
+There is nothing harmless about cutting your physical life short due to carelessness. And that's what happens when we choose to disregard the warnings of God in order to enjoy the pleasures of sin for a season. Sin is only pleasurable for a season. After that comes payday. And the payday for sin is Death. It's the forfeiture of your eternal future and well-being with God.
+
+This isn't about rules and religion: it's about obedience to the laws of Jesus Christ! If you have a problem with obeying higher authority, then don't slow up the next time you're driving fast on the highway and see a police car waiting with his radar gun aimed at traffic. Just keep right on speeding, since you don't respect rules and authority.
+
+But see, you do apply those brakes! Because you understand the implications and repercussions for NOT respecting that cop's authority. How can you have respect for a man's authority, yet no respect for God's?
+
+"Do not be deceived: God is not mocked, for whatever one sows, that will he also reap." [Galatians 6:7]
+
+"well dang! what can we do then?!' 
+
+"But you are not like that, for you are a chosen people. You are royal priests, a holy nation, God's very own possession. As a result, you can show others the goodness of God, for he called you out of the darkness into his wonderful light." [1 Peter 2:9]
+
+"For you are a people holy to the LORD your God. Out of all the peoples on the face of the earth, the LORD has chosen you to be his treasured possession." [Deuteronomy 14:2]
+
+Whenever you start talking about the need for Christians to live holy, someone inevitably asks that all important question that compromised immature babes in Christ always tend to ask:
+
+"Well dang! What CAN we do then?!'
+
+People only ask that question when they still want to do sinful things. No, Christian: you cannot go to the club still once you become a believer! Well, technically you can—Paul said that all things were lawful to him—but the deeper question would be WHY WOULD YOU STILL WANT TO?
+
+What is it about the Christ in you that resonates with the clubbing life? What does Jesus and vodka have in common? What does the Holy Spirit have in common with shots of Patrón, while uber-sexualized music blares over the sound system?
+
+What does booty shorts, tight pants and high heels have in common with Paul's advice to the Christian woman in 1st Timothy 2:9-10:
+
+"And I want women to be modest in their appearance. They should wear decent and appropriate clothing and not draw attention to themselves by the way they fix their hair or by wearing gold or pearls or expensive clothes. For women who claim to be devoted to God should make themselves attractive by the good things they do."
+
+It's hard to convince others that you are living for Christ when you just got done grinding on the dance floor with them! Or when you just got done sexting with them.
+
+AND FOR THE GUYS the same verse goes on to say: "I desire then that in every place the men should pray, lifting holy hands without anger or quarreling..." [1 Timothy 2:8]
+
+Notice it said lifting HOLY hands? Fellas: your hands can't be holy if they were just clutching a blunt or a shot of Henny. Neither can they be holy if they were just clutching yourself in a nude photo sent to some woman you're trying to have sex with! (Use your imagination on this one.)
+
+** Notice too that it also said men should be without anger and QUARRELING?
+
+You'll notice a continuous string of angry quarreling Christian men on social media these days fighting over different points of doctrine, labeling other ministers as false teachers and false prophets, fussing over what proper Hebrew name to call Jesus; each trying to one-up the next man to see who can get the most likes and kudos for their point of view.
+
+True holy men aren't out there attempting to one-up godly messengers or one another!
+
+Your new life in Christ should be a witness to others that draws them to your newfound life: not something that becomes scandalous and a Christ-repellent.
+
+Let's exemplify godliness in all that we do. Or why even bother with Jesus in the first place?
+
+I've always been an all-in or all-out type of guy. Why play around with something as powerful as Christianity when you have no intention on living right? Where's the commitment at? You're better off just remaining a sinner!
+
+"It would be better if they had never known the way to righteousness than to know it and then reject the command they were given to live a holy life." [2 Peter 2:21]
+
+There's plenty you will learn to do that's actually fun and highly enjoyable, as you start to mature in your walk with Christ.
+
+Holiness is far from boring! But you have to first be willing to mature. And you cannot mature until you're willing to make a total break with sinful activity.
+
+Remember: the first command Jesus ever gave was the command to repent. Nothing else happens in your Christian journey until repentance from sinful living first takes place. Repentance is the door that gets you into the fullness of God's Kingdom.
+
+"Repent, then, and turn to God, so that your sins may be wiped out, that times of refreshing may come from the Lord, and that he may send the Messiah, who has been appointed for you--even Jesus." [Acts 3:19-20]
+
+you break the power of demons off your life by living holy 
+
+Brothers and sisters: it's imperative that we live godly Christian lives. Holiness is not a denomination: it's a non-optional lifestyle and a requirement for true Christian living. [1 Peter 1:15-17]
+
+Jesus Christ Himself lived holy; all of His disciples and apostles lived holy; every prophet or prophetess that you read about in His word lived holy. Therefore, we cannot call ourselves believers and saints if our lifestyle does not measure up to theirs. [Luke 6:46 and Hebrews 12:1]
+
+One reason why the church no longer demonstrates or sees the power of God like the saints did of old is because God will not waste His power on those who will use the results of His power to continue living in sin. [James 4:3]
+
+Sin is of the devil. Righteousness is of God. (1 John 3:7-9) This doesn't mean we will live flawless lives. We are flawed because our flesh is flawed; and often so is our understanding. God knows this; which is why He extends His grace to us, covering us for those missteps that we often make.
+
+But grace is by no means a license to go on living a willful sinful lifestyle. [Romans 6:1-2]
+
+Saying things like "God knows my heart" or "He ain't through with me yet" while preparing for a night of sinful indulgence will damn your soul to eternal pain, loss, failure and torment. [1 John 3:6-9]
+
+We must be sincere with God, and not attempt to 'run game' on Him.
+
+God is calling for everyone who names the name of Jesus Christ and who truly love Him to depart from iniquity. [2 Timothy 2:19] All of it. Failure to do so could result in the denial of your prayers, and the denial of your presence into God's Kingdom. [Micah 3:4]
+
+Repentance is the very first part of the gospel message. [Matthew 3:2/4:17/Mark 1:15] Miss the repentance part and you miss the main point of the entire message. Because it's only through repentance first that we can begin the process of entering into Christ's Kingdom and all the goodness that it contains.
+
+I know it can be a struggle to overcome one’s flesh in this hour. I struggled myself for years, teetering back and forth between living right and indulging in pleasurable sin. But along with that sin came lots of misery. Sin is rampant and is made to look tastier by the moment. But those are poisonous apples. And one bite is all it takes to infect your spirit for eternal ruin. [James 1:14-15]
+
+God showed me how to conquer my flesh and how to gain the victory over demons that wage an unholy war against our eternal soul.
+
+And my prayer is that you can live totally free from the bondage of sexual sin. Until you defeat that devil in your life, you haven’t attained the victory. God bless.
+
+ABOUT THE AUTHOR
+
+Mack is the author of several books including:
+
+Hedonism 
+Diva Goddess Queen 
+Dark Frequency 
+WITCH 
+Defeating Antichrist 
+
+Mack’s active readership―in addition to the United States―spans all over the world in places such as South America, Africa, India, Israel and New Zealand: receiving countless testimonials about the lives transformed through his books and articles.
+
+Get Mack’s books at https://edendecoded.com

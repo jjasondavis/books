@@ -260,6 +260,46 @@ original**, converted from the existing Latin-Wikisource raw into proper reading
 `patristics/john-cassian/reading/collatio-12-latin.md` and `collatio-22-latin.md`. English requires the
 copyrighted Ramsey (ACW 57) or Luibheid translation → added to `books_to_purchase.md`.
 
+## books_to_process — bulk library import (added 2026-07-24)
+
+The owner began importing their **entire personal ebook library** (DRM removed for personal use).
+This tranche = **70 EPUBs** extracted via `scratchpad/epub2txt.py`, placed by division (not all dumped
+in `owned-library/`) so the existing architecture holds; the **`CATALOG.tsv` license column** is the
+authoritative PD-vs-owned filter (16 public-domain, 54 owned-copyright this batch). One 2 KB junk
+`.kfx-zip.pdf` (a KFX export error) was skipped. Full per-title detail is in `CATALOG.tsv`; highlights:
+
+- **★ Gap-closer — Evagrius of Pontus, *Talking Back (Antirrhetikos)*** (trans. David Brakke, Cistercian
+  Studies 229) → `patristics/talking-back-antirrhetikos/`. The English of the *Antirrhetikos* (vault had
+  only Syriac/Greek/Serbian) — the "talk back to the thought" method at the core of ChainBreaker,
+  organized by the eight thoughts. This was buy-list Tier-1 #4. Owned-copyright.
+- **Spiritual-warfare / deliverance cluster** (directly relevant to ChainBreaker) → `tradition/`:
+  Hammond *Pigs in the Parlor* / *Obstacles to Deliverance* / *Overcoming Rejection*, Savchuk *Make the
+  Devil Homeless*, Wiersbe *The Strategy of Satan*, Comer *Live No Lies*, plus *The Omega Conspiracy*,
+  *Sex Magic*, *The Truth Behind Ghosts*, *Voices from the Edge of Eternity*.
+- **Devotional / theology** → `tradition/`: Lewis *Mere Christianity*, Tozer *The Pursuit of God*,
+  Chambers *My Utmost for His Highest*, Comer *The Ruthless Elimination of Hurry* (an *acedia*-brief
+  modern witness), Eldredge *Wild at Heart*, Washer, de Mello, Manion.
+- **Orthodox** → `tradition/`: Ware *The Orthodox Church*, *Reading the Bible the Orthodox Way*,
+  Seraphim of Sarov *On the Acquisition of the Holy Spirit*, *My Orthodox Prayer Book*.
+- **Public-domain primary/classics** (tagged public-domain): Jonathan Edwards *Religious Affections* +
+  *Works vol. 1* (`tradition/`); Spurgeon *Parable of the Sower*; Westcott *Numbers: Their Occult Power*
+  (`world-religions/`); and in `classical/`: Milton *Paradise Lost* / *Poetical Works*, Whitman
+  *Leaves of Grass 1855*, Emerson *Self-Reliance*, Dickinson, Frost *The Road Not Taken*, Masters
+  *Spoon River Anthology*, *Fanny Hill* (1749), *The Velveteen Rabbit*, *The Shepherd of the Hills*,
+  *Three Years Among the Comanches*.
+- **Scripture** (owned-copyright translations) → `scripture/`: *The Message*, *NLT One Year
+  Chronological Study Bible*, *The Passion Translation NT*.
+- **Business / tech / self-help** → `business/`, `self-improvement/`: Traction, Rework, Made to Stick,
+  Pitch Anything, StrengthsFinder, Salesforce ×2, SQL Server 2022, Mastering C#/.NET 9, Mastering
+  Windows Server 2022, Mythical Man-Month, Showstopper!, Power of Scrum, Outbound Air, On Writing
+  (King), Your Best Year Ever, Your Perfect Right, Organizing Solutions for ADHD, and more.
+- **Fiction** → `classical/`: *The Night Circus*, *We the Living*, *The Snows of Kilimanjaro*, *Little
+  House 5-Book Collection* (owned-copyright).
+
+*Note:* PD classics in this batch live under `classical/` etc. as per-work folders (`<div>/<slug>/`),
+a slightly different shape from the older author-grouped folders — uniform for the bulk import; the
+catalog remains the real index. `As a Man Thinketh (21st-c ed.)` re-skipped (PD core already present).
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.

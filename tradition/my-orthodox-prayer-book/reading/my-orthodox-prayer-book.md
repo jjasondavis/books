@@ -1,0 +1,2023 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB, DRM removed for personal use). -->
+Source file: My Orthodox Prayer Book_nodrm.epub
+Title/Edition: My Orthodox Prayer Book; Greek Orthodox Archdiocese of America; 2012; owned copyright — personal use, do not distribute.
+
+section-0_1_f36f61fa0cb7fe8d_136a
+
+section-0_1_a6cdf44a425ea53e_1395
+
+My Orthodox Prayer Book
+
+Greek Orthodox Archdiocese of America 
+
+Department of Religious Education
+
+50 Goddard Avenue 
+
+Brookline, Massachusetts 02445
+
+©1985
+
+All rights reserved.
+
+eISBN 978-0866871440
+
+Revised edition 2011
+
+Electronic edition 2012
+
+section-0_1_cc703de36777ac2d_1396
+
+Foreword to 2012 Electronic Edition
+
+My Orthodox Prayer Book was first published by the Greek Orthodox Archdiocese Department of Religious Education in 1985 and has become a beloved devotional tool for thousands, never going out of print for even a short period of time. This book has taught many the beauty of prayer, assisting those who have used it into a deeper relationship with the Almighty God.
+
+Prayer knows no boundaries so “re-creating” this book for a new form of publishing makes perfect sense. The Department of Religious Education is very pleased to see this book enter the new world of e-books. It is largely the same as the printed text; only a few minor modifications have been made. The full use of the technology of e-books can only help more people develop their lives of prayer, thus growing in their fellowship with the Most High God.
+
+The Department of Religious Education is grateful for the work of the Department of Internet Ministries of our Holy Archdiocese to create this new version of My Orthodox Prayer Book, with special thanks to Mr. Theo Nicolakis and Mr. Jamil Samara for their dedication and devotion to the careful creation of this new edition.
+
+Religious Education Department
+
+Greek Orthodox Archdiocese
+
+Feast of All Saints
+
+June 10, 2012
+
+section-0_1_60e5891c1035b63d_1397
+
+Foreword to Original Edition
+
+What is prayer? Prayer is doxology, praise, thanksgiving, confession, supplication and intercession to God. “When I prayed I was new,” wrote a great theologian of Christian antiquity, “but when I stopped praying I became old.” Prayer is the way to renewal and spiritual life. Prayer is aliveness to God. Prayer is strength, refreshment, and joy. Through the grace of God and our disciplined efforts, prayer lifts us up from our isolation to a conscious, to loving communion with God, in which everything is experienced in a new light. Prayer becomes a personal dialogue with God, a spiritual breathing of the soul, and a foretaste of the bliss of God’s kingdom.
+
+How is one to pray? Only the Holy Spirit can guide us to pray as we should. Just as a child learns to walk by walking, one can best learn to pray by praying, trusting in the help of God. Put your whole soul into your prayer. Think about the meaning of every word you pray. Make it your own personal prayer. Be persistent in prayer. Do not yield to carelessness or neglect. Strengthen your prayer through a lively faith in the Lord, a spirit of forgiveness toward others, and genuine Christian living.
+
+As we pray deeply within our hearts we grow in prayer. By the grace of God we suddenly catch a glimpse of the miracle of the presence of the Holy Spirit working within us. At first it is only a spark, but later it becomes a flame freeing and energizing our whole being, provided we do nothing to grieve the Holy Spirit; and if we do sin we repent of our sin immediately and ask for God’s forgiveness. To experience the fire of God’s holy love, to give it space within us to do its cleansing and healing work as a breath of the Holy Spirit, and to use it as light and power for daily living-such are the goals as well as the fruits of true prayer.
+
+My Orthodox Prayer Book is published with the hope that it will help Orthodox Christians in their private and family devotions. Reflecting the treasures of Orthodox worship, it contains basic cycles of daily and other prayers. The language is contemporary yet maintains a liturgical flavor. Traditional prayers have been slightly revised so as to be more readable in English. Some new prayers, many selections from the Psalms, directions for Bible Study and brief explanatory notes are also included. It is humbly offered as an encouragement to Orthodox Christians to pray and to grow in the life of prayer.
+
+Religious Education Department
+
+Greek Orthodox Archdiocese
+
+Holy Pascha
+
+April 14, 1985
+
+section-0_1_9515133610236160_1398
+
+The Trisagion
+
+When you get up in the morning, before beginning your day, offer a fervent prayer to God. Whether standing or kneeling, begin with a moment of silence. Gather your thoughts and feelings as much as you are able and direct them to God. Approach God as a Father who loves you and cares about you personally. Make the sign of the cross and pray without haste by paying close attention to each word of your prayer.
+
+In the name of the Father and the Son and the Holy Spirit. Amen.
+
+Glory to You, our God, glory to You!
+
+Prayer to the Holy Spirit 
+
+Heavenly King, Comforter, the Spirit of Truth, 
+
+present in all places and filling all things, 
+
+the treasury of blessings and Giver of life: 
+
+come and abide in us. 
+
+Cleanse us from all impurity and save our souls, gracious Lord.
+
+The Trisagion
+
+Holy God, Holy Mighty, Holy Immortal, have mercy on us. (3)
+
+Glory to the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+All-holy Trinity, have mercy on us. 
+
+Lord, forgive our sins. 
+
+Master, pardon our transgressions. 
+
+Holy One, visit and heal our infirmities, for the glory of Your name. 
+
+Lord, have mercy. (3)
+
+Glory to the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+The Lord’s Prayer
+
+Our Father, who art in heaven, hallowed be Thy name. 
+
+Thy kingdom come. 
+
+Thy will be done, on earth as it is in heaven. 
+
+Give us this day our daily bread; 
+
+and forgive us our trespasses, as we forgive those who trespass against us; 
+
+and lead us not into temptation, but deliver us from evil.
+
+For Yours is the kingdom, the power and the glory of the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+A Child’s Prayer
+
+Lord Jesus, I thank You for the gift of this new day.
+
+When You came to earth for us, You grew as a child in wisdom and grace.
+
+As Lord You received children in Your arms. 
+
+You blessed them and said that Your kingdom belongs to them.
+
+Dear Jesus, receive me also on this day and hear my morning prayer.
+
+Bless my parents, teachers and all those who love and care for me.
+
+Bless me, also, and protect me from danger and evil.
+
+Give me the strength to be truthful, honest, kind and helpful to others.
+
+Guide me to grow in grace and wisdom as a member of Your kingdom.
+
+You are my Lord and King, and to You I give praise and thanks forever. Amen.
+
+Prayer of Thanksgiving
+
+I praise, bless and thank You, almighty God, the Father of light, that You have again shown to me the light of this day. I entreat You: forgive my sins and accept my prayer in Your great mercy, for I seek refuge in You, the merciful and almighty God. Shine in my heart the light of Christ, the Sun of Righteousness. Enlighten my mind and my whole being that I may live according to Your commandments and serve You in all that I do and say. For You are the source of life and light, and to You I give praise and thanksgiving, to the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Personal Requests
+
+Pray to God also with your own words about personal concerns, for other people, and for God’s guidance and help. Having received God’s blessing, go forth confidently to fulfill your daily tasks in ways that honor God.
+
+A Song of Praise
+
+The Lord is my strength and my song;
+
+He has become my salvation.
+
+This is the day which the Lord has made;
+
+let us rejoice and be glad in it. 
+
+The Lord is God,
+
+and He has given us light.
+
+You are my God, and I will give thanks to You;
+
+You are my God, I will extol You. 
+
+O give thanks to the Lord, for He is good;
+
+for His steadfast love endures forever!
+
+Psalm 118:14,24,27,28-29
+
+section-0_1_443dbdad41555977_1399
+
+Other Morning Prayers
+
+The following prayers can be offered on alternate mornings or each morning after the preceding Trisagion prayers. They provide a more concentrated opportunity for morning prayer and a way for a deeper personal communion with God. Collect yourself in the presence of God and then pray.
+
+Prayers to the Holy Trinity 
+
+Having risen from sleep, I worship You, blessed God, and sing to You, mighty Lord, the angelic hymn: holy, holy, holy are You, O God; through the prayers of the Theotokos have mercy on me.
+
+Glory to the Father and the Son and the Holy Spirit.
+
+Having awakened me from sleep, Lord, enlighten my mind and heart. Open my lips to praise You, Holy Trinity: holy, holy, holy are You, O God; through the prayers of the Theotokos have mercy on me.
+
+Now and ever and to the ages of ages. Amen.
+
+Suddenly the Judge will come and the deeds of all will be revealed. Therefore, early in the morning let us cry out in awe: holy, holy, holy are You, O God; through the prayers of the Theotokos have mercy on us.
+
+Prayer of Glorification
+
+Glory to You, almighty God and King. By Your divine and loving care You have enabled me, a sinner, to rise from sleep and to enter Your holy presence. Accept, Lord, the voice of my prayer as You accept the praises of the holy and spiritual powers. Grant that with a pure heart and a humble spirit I may offer praise to You through my unclean lips. Thus I will become a companion of the wise virgins; and, being clothed with a radiant garment, I will glorify You, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Intercession for the Living
+
+Lord, bless Your servants (names), and grant them health, peace, joy and the grace of Your Spirit. Fulfill their special needs (name them), and guide them in all things with Your loving care. Amen.
+
+Intercession for the Departed 
+
+Lord, remember Your servants (names), who have departed from this life in the hope of the resurrection. Grant them forgiveness of sins, eternal rest among Your Saints, the gift of Your kingdom and the enjoyment of unending life with You. Amen.
+
+Personal Requests
+
+Pray to God also with your own words. Entrust to Him personal matters, family concerns, work obligations and world needs. You might use the following prayer by Metropolitan Philaret of Moscow, d. 1867:
+
+Lord, grant me to greet the coming day in peace.
+
+Help me in all things to rely upon Your holy will.
+
+In every hour of the day reveal Your will to me. 
+
+Bless my dealings with all who surround me.
+
+Teach me to treat all that come to me throughout the day with peace of soul and with firm conviction that Your will governs all.
+
+In all my deeds and words guide my thoughts and feelings.
+
+In unforeseen events let me not forget that all things are under Your care.
+
+Teach me to act firmly and wisely, without embittering and embarrassing others.
+
+Give me strength to bear the fatigue of the coming day with all that it shall bring.
+
+Direct my will, teach me to pray, pray Yourself in me. Amen.
+
+A Song of Praise
+
+I will extol You, my God and King, 
+
+and bless Your name forever. 
+
+Every day I will bless You 
+
+and praise Your name forever. 
+
+Great is the Lord, and greatly to be praised, 
+
+and His greatness is unsearchable. 
+
+One generation shall laud Your works to another, 
+
+and shall declare Your mighty acts. 
+
+Your kingdom is an everlasting kingdom, 
+
+and Your dominion endures forever. 
+
+The Lord is just in all His ways, 
+
+and kind in all His doings. 
+
+My mouth will speak the praise of the Lord, 
+
+and let all bless His holy name forever and ever!
+
+Psalm 145:1-4,13,21
+
+Closing Prayer
+
+Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us and save us. Amen.
+
+section-0_1_4abe964f0748c40c_139a
+
+Morning Bible Study
+
+The Orthodox tradition has developed various forms of “waiting for the Lord in the early morning” (orthrizein pros Kyrion) and “keeping a watchful heart” (phylake kardias) through worship, fasting, the Jesus Prayer, and the reading of the Bible. One of the pillars of Orthodox spirituality is the prayerful study of Scripture. Choose an undisturbed period of fifteen minutes or more to pray and to read the Bible. Find a quiet place, resisting the usual distractions. Offer selections from the above morning prayers. Then sit comfortably and continue to pray:
+
+A Lamp to My Feet
+
+Blessed are those whose way is blameless,
+
+who walk in the law of the Lord! 
+
+Blessed are those who keep His testimonies,
+
+who seek Him with their whole heart,
+
+who also do no wrong, but walk in His ways! 
+
+You have commanded Your precepts to be kept diligently.
+
+O that my ways may be steadfast in keeping Your statutes!
+
+Then I shall not be put to shame, 
+
+having my eyes fixed on all Your commandments.
+
+I will praise You with an upright heart
+
+when I learn Your righteous precepts.
+
+O how I love Your law!
+
+It is my meditation all the day. 
+
+Your word is a lamp to my feet and a light to my path.
+
+Psalm 119:1-7,97,105
+
+Prayer for Enlightenment 
+
+Having received this new day as a gift, I thank You, Holy Trinity, for through Your goodness and patience You were not wrathful with me, an idler and sinner, neither have You cast me down in my sins. But You have shown Your love towards me and have guided me to keep my daily watch and to glorify Your power. Enlighten my mind to study Your word and open my heart to understand Your teachings in Scripture. Help me to apply what I learn and to praise You with all my heart and to glorify Your holy name, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Directions for Bible Study
+
+The prayerful reading of Scripture opens our lives to the presence of God. The purpose of Bible study is not to develop new interpretations of the Bible, but rather to open our minds and hearts to the light of God as we learn His truths in the Bible. Have your own Bible in a helpful translation (such as the Revised Standard Version or Today’s English Version) and follow these guidelines:
+
+Choose one of the Gospels, such as John, or one of the Epistles, such as Ephesians, and resolve to read one or two chapters on a regular basis. You might also wish to read the appointed daily readings according to the Church calendar.
+Read prayerfully and slowly. Concentrate on what you do understand, not on what you do not understand. Your insight will increase by God’s grace.
+Write a striking verse in a special notebook. Memorize it and recall it throughout the day.
+Meditate on how God may be speaking to you through His word in a special way, related to your needs and circumstances.
+During your reading, stop and offer brief prayers of thanksgiving or petition according to the prompting of your heart by the Holy Spirit.
+Seek to apply the truths you have learned from your reading. Specify these truths and the ways you can apply them in your notebook. Then ask God to help you put them into practice.
+If important questions arise, seek guidance from your priest, bishop, or from an informed Orthodox Christian.
+
+At the end of your Bible study offer the following thanksgiving:
+
+Psalm of Thanksgiving
+
+I give You thanks, O Lord, with my whole heart;
+
+before the angels I sing Your praise; 
+
+I bow before Your holy presence
+
+and give thanks to Your name, for Your steadfast love and Your faithfulness;
+
+For You have exalted above everything
+
+Your name and Your word. 
+
+On the day I called, You answered me;
+
+my strength of soul You increased.
+
+Though I walk in the midst of trouble,
+
+You preserve my life;
+
+You stretch out Your hand against the wrath of my adversaries, and Your right hand delivers me. 
+
+The Lord will fulfill His purpose for me;
+
+Your steadfast love, O Lord, endures forever.
+
+Psalm 138: 1-3,7-8
+
+Closing Prayer
+
+Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on me and save me. Amen.
+
+section-0_1_d6137b241c4ee3c4_139b
+
+Evening Prayers
+
+When you prepare to go to sleep, however late it may be, take time to pray to God with a humble, thankful and unhurried spirit. Although tired from the day’s cares, you will find evening prayer a source of peace and comfort. These prayers may also be offered after the evening meal with your spouse and family. Gather your thoughts and feelings before God. After a moment of silence pray with a calm spirit, being attentive to the meaning of the words of your prayer:
+
+Prayers to the Savior
+
+Now that the day has come to a close I thank You, Lord, and entreat that the evening with the night may be sinless; grant this to me, Savior, and save me.
+
+Glory to the Father and the Son and the Holy Spirit.
+
+Now that the day has passed I glorify You, Master, and entreat that the evening with the night may be free of stumbling; grant this to me, Savior, and save me.
+
+Now and ever and to the ages of ages. Amen.
+
+Now that the day has run its course I praise You, Holy One, and entreat that the evening with the night may be undisturbed by evil; grant this to me, Savior, and save me.
+
+A Child’s Prayer
+
+Jesus, my Lord, You received the children who came to You.
+
+Receive me also, Your child, and hear my evening prayer.
+
+Protect me under the shelter of Your wings, that I may sleep in peace.
+
+And awaken me in the morning, that I may glorify You, my loving Lord. Amen.
+
+Prayer of Repentance
+
+Lord, our God, by Your goodness and mercy forgive all the sins I have committed this day in thought, word, and deed. (Specify your sins to God and repent of them.) Grant me peaceful and undisturbed sleep, and deliver me from all temptations and attacks of the evil one. Raise me up again in the morning that I may glorify You. For You are blessed, together with Your Son and Your Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Prayer of St. Ephraim the Syrian
+
+Lord and Master of my life, cast away from me the spirit of laziness, idle curiosity, love of power and vain talk.
+
+But grant me, Your servant, the spirit of moderation, humility, patience and love. 
+
+Yes, Lord and King, grant me to see my own faults and not to judge my brothers and sisters.
+
+For You are blessed forever. Amen.
+
+Prayer of Intercession
+
+Lord, we pray for peace in the world. 
+
+For all the faithful and Orthodox Christians. 
+
+For our Archbishop (name), our Bishop (name), and all our brothers and sisters in Christ.
+
+For our country, our president, and all those in public service.
+
+For our parents, our brothers and sisters, our children, our relatives and friends, and all people.
+
+For those who hate us and those who love us.
+
+For those who work with us and those who serve us.
+
+For those who have asked us, unworthy as we are, to pray for them.
+
+For travelers by land, sea and air. For prisoners and captives.
+
+For those who are hungry, those who are suffering, and those who are sick.
+
+For those departed from this life in the hope of the resurrection.
+
+Through the prayers of our holy Fathers, Lord Jesus Christ, have mercy on us and save us. Amen.
+
+The Lord Is My Shepherd
+
+The Lord is my shepherd, I shall not want;
+
+He makes me lie down in green pastures.
+
+He leads me beside still waters;
+
+He restores my soul.
+
+He leads me in paths of righteousness for His name’s sake.
+
+Even though I walk through the valley of the shadow of death,
+
+I fear no evil; 
+
+for You are with me;
+
+Your rod and Your staff, they comfort me.
+
+Surely goodness and mercy shall follow me
+
+all the days of my life;
+
+and I shall dwell in the house of the Lord forever.
+
+Psalm 23
+
+Closing Prayer 
+
+Into Your hands, Lord Jesus Christ, my God, I commit my soul and my body. Bless me, have mercy on me, and grant me eternal life. Amen.
+
+section-0_1_28277ab5cd717d6b_139c
+
+Evening Bible Study
+
+For many people evening provides the best opportunity for extended prayerful reading of the Bible. Although the day’s fatigue might make it seem an impossible challenge, refreshment and amazing inner strength are born from regular and persistent study of the Scriptures, once the initial heaviness of spirit is overcome through firm resolve and discipline.
+
+A follower of Christ should know and live by God’s word. Our Lord said: “Man shall not live by bread alone, but by every word that proceeds from the mouth of God” (Mt 4.4), and again, “My mother and my brothers are those who hear the word of God and do it” (Mk 8.21). The Saints and Church Fathers, too—St. Athanasios, St. Anthony, St. John Chrysostom, St. Kosmas Aitolos, St, John of Kronstadt and many others-taught that every Christian should read the Scriptures for daily instruction, inspiration and guidance. “To read the Scriptures is to open the gates of heaven,” according to St. John Chrysostom.
+
+Think of reading Scripture as a priority in your life, a special time spent with God. Find a quiet place. Invite another family member to join you, if possible, and read quietly the same or different passages, chapters, even, small books of the New Testament in their entirety. You might talk together about the readings occasionally.
+
+Consult the Directions for Bible Study. Then recite the following prayer before reading the Bible:
+
+Prayer for Enlightenment
+
+Shine within my heart, loving Master, the pure light of Your divine knowledge, and open the eyes of my mind that I may understand Your teachings.
+
+Instill in me also reverence for Your blessed commandments, so that having conquered sinful desires I may pursue a spiritual way of life, thinking and doing all those things that are pleasing to You.
+
+For You, Christ my God, are my light, and to You I give glory, together with Your Father and Your Holy Spirit, now and ever and to the ages of ages. Amen.
+
+After reading the Bible recite the following psalm:
+
+The Sweetness of God’s Word
+
+Lord, Your statutes have been my songs in the house of my pilgrimage.
+
+I remember Your name in the night, 
+
+and keep Your law.
+
+This blessing has fallen to me, 
+
+that I have kept Your precepts. 
+
+The Lord is my portion; 
+
+I promise to keep Your words. 
+
+I entreat Your favor with all my heart;
+
+be gracious to me according to Your promise.
+
+Though the cords of the wicked ensnare me, 
+
+I do not forget Your law.
+
+At night I rise to praise You because of Your righteous ordinances.
+
+I am a companion of all who fear You, 
+
+of those who keep Your precepts. 
+
+How sweet are Your words of my taste, 
+
+sweeter than honey to my mouth! 
+
+Psalm 119:54-63,103
+
+Closing Prayer
+
+Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on me and save me. Amen.
+
+section-0_1_90d187a6ace9eb8_139d
+
+Selections from Vespers
+
+The following selections from Vespers, which is an evening service of psalms, petitions, and hymns, can be read at home as alternate evening prayers:
+
+Blessed is our God, always, now and ever and to the ages of ages. Amen.
+
+Come, let us worship God, our King, and bow down before Him. (prostration)
+
+Come, let us worship Christ, our King and God, and bow down before Him. (prostration)
+
+Come, let us worship Christ, truly our King and God, and bow down before Him. (prostration)
+
+Praise to God the Creator 
+
+Bless the Lord, O my soul!
+
+O Lord my God, You are very great! 
+
+You are clothed with honor and majesty,
+
+and cover Yourself with light as with a garment.
+
+You have stretched out the heavens like a tent
+
+and have laid the beams of Your chambers on the waters.
+
+You make the clouds Your chariot 
+
+and ride on the wings of the wind. 
+
+You make the winds Your messengers, 
+
+and fire and flame Your ministers.
+
+You have set the earth on its foundations 
+
+so that it should never be shaken.
+
+You have covered it with the deep as with a garment;
+
+the waters stood above the mountains.
+
+At Your rebuke they fled;
+
+at the sound of Your thunder they took flight.
+
+The mountains rose, the valleys sank down
+
+to the place which You appointed for them.
+
+You set a bound which they should not pass
+
+so that they might not again cover the earth.
+
+You make springs gush forth in the valleys;
+
+they flow between the hills,
+
+they give drink to every beast of the field;
+
+the wild donkeys quench their thirst. 
+
+By them the birds of the air have their habitation;
+
+they sing among the branches.
+
+From Your lofty abode You water the mountains;
+
+the earth is satisfied with the fruit of Your work.
+
+You have caused the grass to grow for the cattle,
+
+and plants for people to cultivate, 
+
+that they may bring forth food from the earth,
+
+and wine to gladden their heart, 
+
+oil to make their faces shine 
+
+and bread to strengthen their hearts. 
+
+The trees of the Lord are watered abundantly,
+
+the cedars of Lebanon which He planted.
+
+In them the birds build their nests; 
+
+the stork has her home in the fir trees.
+
+The high mountains are for the wild goats;
+
+the rocks are a refuge for the badgers.
+
+You have made the moon to mark the seasons;
+
+the sun knows its time for setting. 
+
+You have made darkness, and it is night,
+
+when all the beasts of the forest creep forth.
+
+The young lions roar for their prey, 
+
+seeking their food from God. 
+
+When the sun rises, they gather together 
+
+and lie down in their dens.
+
+People go forth to their work 
+
+and to their labors until the evening.
+
+O Lord, how manifold are Your works!
+
+In wisdom have You made them all; 
+
+the earth is full of Your creatures. 
+
+Yonder is the sea, great and wide, 
+
+which teems with things innumerable,
+
+living things both small and great. 
+
+There go the ships, 
+
+and Leviathan which You formed to sport in it.
+
+These all look to You 
+
+to give them their food in due season.
+
+When You give to them they gather it up;
+
+when You open Your hand they are filled with good things.
+
+When You hide Your face they are dismayed;
+
+when You take away their breath they die and return to their dust. 
+
+When You send forth Your Spirit they are created;
+
+and You renew the face of the earth.
+
+May the glory of the Lord endure forever,
+
+may the Lord rejoice in His works, 
+
+who looks on the earth and it trembles,
+
+who touches the mountains and they smoke.
+
+I will sing to the Lord as long as I live;
+
+I will sing praise to my God while I have being.
+
+May my meditation be pleasing to Him,
+
+for I rejoice in the Lord.
+
+Let sinners be consumed from the earth
+
+and let the wicked be no more. 
+
+Bless the Lord, O my soul! 
+
+Praise the Lord!
+
+Psalm 104
+
+Prayer of Supplication
+
+Lord, I have cried out to You, hear me.
+
+Hear me, Lord.
+
+Lord, I have cried out to You, hear me.
+
+Give heed to the voice of my prayer when I cry out to You.
+
+Hear me, Lord.
+
+Let my prayer rise up as incense before You,
+
+and the lifting up of my hands as an evening sacrifice.
+
+Hear me, Lord.
+
+Psalm 141:1-2
+
+Prayer for Forgiveness 
+
+Out of the depths I cry to You, Lord! 
+
+Lord, hear my voice!
+
+Let Your ears be attentive to the voice of my supplications!
+
+If You, Lord, should mark iniquities, Lord, who could stand;
+
+but there is forgiveness with You.
+
+I wait for the Lord, my soul waits, and in His word I hope;
+
+my soul waits for the Lord, more than watchmen for the morning.
+
+O people, hope in the Lord!
+
+For with the Lord there is steadfast love,
+
+and with Him is plenteous redemption.
+
+And He will redeem His people from all their iniquities.
+
+Psalm 130
+
+Prayer of Praise
+
+At dawn, noon and night, we sing to You, we bless You, we give thanks to You and we entreat You, Master of all, Lord and lover of all people. Let not our hearts be led to words or thoughts of wickedness, but save us from all who pursue our souls. For all glory, honor and worship belong to You, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Christ the Joyful Light 
+
+O Joyful Light!
+
+Holy Glory of the Father Immortal, 
+
+the heavenly, holy and blessed One!
+
+O Jesus Christ!
+
+Now that we have reached the setting of the sun
+
+and have seen the evening light, 
+
+we sing to God: Father, Son and Holy Spirit.
+
+It is fitting at all times to praise You with glad voices,
+
+Son of God, the Giver of life. 
+
+Behold the universe sings Your glory!
+
+A Closing Prayer
+
+Lord, keep us this evening without sin. 
+
+Blessed are You, Lord, God of our Fathers, and praised and glorified is Your name forever. Amen.
+
+Lord, let Your mercy come upon us, for we have trusted in You.
+
+Blessed are You, Lord; teach me Your commandments.
+
+Blessed are You, Master; grant me understanding of Your commandments.
+
+Blessed are You, Holy One; enlighten me with Your commandments.
+
+Lord, Your love endures forever; do not turn away from the work of Your hands. 
+
+To You belong praise, song and glory, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+section-0_1_4d4a966f431d0743_139e
+
+The Little Compline
+
+The Compline or Apodeipnon is an evening service consisting of psalms and prayers. An opportunity for more concentrated individual or family evening prayer, it may be recited unhurriedly in about twenty minutes. Gather before an icon of Christ and, after a moment of quiet, pray aloud together or taking turns.
+
+Blessed is our God always, both now and ever and to the ages of ages. Amen.
+
+Glory to You, our God, glory to You!
+
+Prayer to the Holy Spirit 
+
+Heavenly King, Comforter, the Spirit of Truth, 
+
+present in all places and filling all things, 
+
+the treasury of blessings and Giver of life: 
+
+come and abide in us. 
+
+Cleanse us from all impurity and save our souls, gracious Lord.
+
+The Trisagion
+
+Holy God, Holy Mighty, Holy Immortal, have mercy on us. (3)
+
+Glory to the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+All-holy Trinity, have mercy on us. 
+
+Lord, forgive our sins. 
+
+Master, pardon our transgressions. 
+
+Holy One, visit and heal our infirmities, for the glory of Your name. 
+
+Lord, have mercy. (3)
+
+Glory to the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+The Lord’s Prayer
+
+Our Father, who art in heaven, hallowed be Thy name. 
+
+Thy kingdom come. 
+
+Thy will be done, on earth as it is in heaven. 
+
+Give us this day our daily bread; 
+
+and forgive us our trespasses, as we forgive those who trespass against us; 
+
+and lead us not into temptation, but deliver us from evil.
+
+For Yours is the kingdom, the power and the glory of the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Come, let us worship God, our King, and bow down before Him. (prostration)
+
+Come, let us worship Christ, our King and God, and bow down before Him. (prostration)
+
+Come, let us worship Christ, truly our King and God, and bow down before Him. (prostration)
+
+Psalm 51 
+
+Have mercy on me, O God, according to Your steadfast love; according to Your abundant mercy blot out my transgressions.
+
+Wash me thoroughly from my iniquity,
+
+and cleanse me from my sin. 
+
+For I know my transgressions, and my sin is ever before me. Against You, You only, have I sinned,
+
+and done that which is evil in Your sight,
+
+so that You are justified in Your sentence
+
+and blameless in Your judgment. 
+
+Behold I was brought forth in iniquity,
+
+and in sin did my mother bear me.
+
+Behold, You desire truth in the inward being;
+
+therefore teach me wisdom in my secret heart.
+
+Purge me with hyssop, and I shall be clean;
+
+wash me, and I shall be whiter than snow.
+
+Fill me with joy and gladness;
+
+let the bones which You have broken rejoice.
+
+Hide Your face from my sins, 
+
+and blot out all my iniquities.
+
+Create in me a clean heart, O God, 
+
+and put a new and right spirit within me.
+
+Cast me not away from Your presence,
+
+and take not Your Holy Spirit from me.
+
+Restore to me the joy of Your salvation,
+
+and uphold me with a willing spirit.
+
+Then I will teach transgressors Your ways,
+
+and sinners will return to You. 
+
+Deliver me from guiltiness, O God, the God of my salvation,
+
+and my tongue will sing aloud of Your deliverance.
+
+O Lord, open my lips,
+
+and my mouth shall show forth Your praise.
+
+For You have no delight in sacrifice; 
+
+were I to give a burnt offering, You would not be pleased.
+
+The sacrifice acceptable to God is a broken spirit,
+
+a broken and contrite heart, O God, You will not despise.
+
+Psalm 70
+
+O God, come to deliver me!
+
+O Lord, make haste to help me! 
+
+Let them be put to shame and confusion
+
+who seek my life!
+
+Let them be turned back and brought to dishonor
+
+who wish me evil!
+
+Let them be turned back in shame who jeer at me, “Aha, Aha!”
+
+May all who seek You 
+
+rejoice and be glad in You! 
+
+May those who love Your salvation 
+
+say evermore, “God is great!” 
+
+But I am poor and needy;
+
+hasten to me, O God!
+
+You are my help and my deliverer; 
+
+O Lord, do not delay!
+
+Psalm 143
+
+O Lord, hear my prayer; in Your truth give heed to my supplication!
+
+In Your righteousness, hear me! 
+
+And enter not into judgment with Your servant;
+
+for no one living is righteous in Your sight.
+
+The enemy has pursued my soul;
+
+he has crushed my life to the ground;
+
+he has made me dwell in darkness 
+
+like those long dead.
+
+Therefore my spirit faints within me; 
+
+my heart within me is distressed.
+
+I remembered the days of old,
+
+I meditated on all Your deeds;
+
+I thought of the works of Your hands.
+
+I stretched out my hands to You;
+
+my soul longs for You like a parched land.
+
+Make haste to answer me, O Lord! 
+
+My spirit fails!
+
+Hide not Your face from me,
+
+lest I be like those who go down to the pit.
+
+Let me hear in the morning of Your steadfast love,
+
+for in You I put my trust. 
+
+Teach me the way I should go, 
+
+for to You I lift up my soul. 
+
+Deliver me, O Lord, from my enemies.
+
+I have fled to You for refuge. 
+
+Teach me to do Your will,
+
+for You are my God!
+
+Let Your good Spirit lead me on a level path.
+
+For Your name’s sake, O Lord, preserve my life.
+
+In Your righteousness bring me out of trouble.
+
+And in Your steadfast love cut off my enemies,
+
+and destroy all those who afflict my soul,
+
+for I am Your servant.
+
+The Doxology
+
+Glory to God in the highest, on earth peace, and good will to all.
+
+We praise You, we bless You, we worship You, we glorify You and we thank You, for the splendor of Your glory.
+
+Lord, King, heavenly God, Father almighty! Lord, only-begotten Son, Jesus Christ! And Holy Spirit!
+
+Lord God, Lamb of God, Son of the Father, who take away the sins of the world, have mercy on us.
+
+For You alone are holy, You alone are the Lord Jesus Christ, to the glory of God the Father. Amen.
+
+Accept our prayer, Lord, enthroned at the right hand of the Father, and have mercy on us.
+
+Every day I will bless You and praise Your name forever.
+
+Lord, You have been a refuge for us from generation to generation.
+
+I said: Lord, have mercy on me and heal my soul, for I have sinned against You. 
+
+Lord, to You I come for help; teach me to obey Your will, for You are my God. 
+
+For with You is the fountain of life and in Your light we shall see light.
+
+Grant Your mercy to those who know You. 
+
+Lord, keep us this night without sin.
+
+Blessed are You, Lord; teach me Your commandments.
+
+Blessed are You, Master; grant me understanding of Your commandments. 
+
+Blessed are You, Holy One; enlighten me with Your commandments.
+
+Lord, Your steadfast love endures forever; do not turn away from the work of Your hands.
+
+To You belong praise, song and glory, to the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+The Creed
+
+I believe in one God, Father Almighty, Creator of heaven and earth, and of all things visible and invisible.
+
+And in one Lord Jesus Christ, the only begotten Son of God, begotten of the Father before all ages; Light of Light, true God of true God, begotten, not created, of one essence with the Father through Whom all things were made.
+
+Who for us men and for our salvation came down from heaven and was incarnate of the Holy Spirit and the Virgin Mary and became man.
+
+He was crucified for us under Pontius Pilate, and suffered and was buried;
+
+And He rose on the third day, according to the Scriptures.
+
+He ascended into heaven and is seated at the right hand of the Father;
+
+And He will come again with glory to judge the living and dead. His kingdom shall have no end.
+
+And in the Holy Spirit, the Lord, the Creator of life, Who proceeds from the Father, Who together with the Father and the Son is worshipped and glorified, Who spoke through the prophets.
+
+In one, holy, catholic, and apostolic Church. 
+
+I confess one baptism for the forgiveness of sins.
+
+I look for the resurrection of the dead, and the life of the age to come. Amen.
+
+The Magnificat
+
+It is truly right to bless you, Theotokos, ever blessed, most pure, and Mother of our God. More honorable than the Cherubim, and more glorious beyond compare than the Seraphim, you incorruptibly gave birth to God the Word. We magnify you, the true Theotokos!
+
+Prayer to Christ
+
+Lord, have mercy. (3)
+
+Christ our God, who at all times and in every hour are worshipped and glorified in heaven and on earth; long-suffering, generous in mercy, and rich in compassion; loving to the righteous and merciful to the sinner; You call all to salvation through the promise of blessings to come; 
+
+Lord, in this hour accept our prayers and direct our lives in the way of Your commandments. Sanctify our souls, purify our bodies, correct our thoughts, cleanse our minds and deliver us from all affliction, evil and distress. Encompass us with Your holy angels, so that guided and guarded by their company we may reach the unity of the faith and the knowledge of Your unapproachable glory, for You are blessed forever. Amen.
+
+May God be merciful to us and bless us; may He shine the light of His countenance upon us and have mercy on us.
+
+Prayer to the Theotokos
+
+O spotless, undefiled, unstained, chaste and pure Virgin, Lady and Bride of God!
+
+Through your wondrous birth giving you have united God the Word with humanity; you have brought together our fallen nature and the things of heaven.
+
+You are the hope of the hopeless, the help of the assaulted, the ready protection of those who hasten to you, the refuge of all Christians.
+
+Do not despise me, a sinner, having wholly defiled myself with unclean thoughts, words and deeds; and having become through an indolent will a slave to life’s evil pleasures.
+
+But as the Mother of the loving God, show loving mercy to me, a sinner and prodigal, and accept this prayer from my impure lips.
+
+In your maternal boldness, entreat your Son, our Master and Lord, to open to me the depths of His loving kindness; to overlook my countless transgressions; to lead me to repentance and to make me a worthy keeper of His commandments.
+
+Since you are merciful, compassionate and loving, be my constant companion.
+
+In this life be my fervent champion and helper, repulsing the assaults of my adversaries and leading me to salvation.
+
+At the time of my death, embrace my soul and drive far away from me the dark figures of the evil demons.
+
+And in the awesome day of judgment, deliver me from eternal punishment and make me an heir of your Son’s unspeakable glory.
+
+May I be worthy of this glory, my Lady, all-holy Theotokos, through your intercession and help, and by the grace and love of your only begotten Son, the Lord and God, and our Savior Jesus Christ, to whom belong all glory, honor and worship, together with His Father who is without beginning, and His all-holy, good and life-giving Spirit, now and ever and to the ages of ages. Amen.
+
+Prayer to Christ
+
+O Master, to us who are about to lie down to sleep grant rest of body and soul; and keep us from the dark sleep of sin and from any impure pleasure roaming in the darkness of night.
+
+Still the assaults of evil passions quench the fiery darts of the evil one which are cast insidiously against us, calm the rebellious commotions of our flesh and put away from us all earthly and worldly thoughts.
+
+Grant us, O God, a watchful mind, chaste thoughts, a sober heart and gentle sleep, free from all fantasies of Satan.
+
+And raise us up again at the hour of prayer, established in the practice of Your commandments and holding steadfast within us the remembrance of Your righteous judgments.
+
+Grant us to sing Your glory all night long; to praise, bless and glorify Your all-honorable and magnificent name of the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Prayer to the Theotokos
+
+Most glorious, ever-virgin and blessed Theotokos, present our prayer to your Son, and our God, and through your intercession entreat Him to save our souls.
+
+Prayer to the Holy Trinity
+
+The Father is my hope. The Son is my refuge. The Holy Spirit is my protection. Holy Trinity, glory to You!
+
+Prayer to the Theotokos
+
+All my hope I place in you, Theotokos; keep me in your care.
+
+section-0_1_29f02028ec90ae49_139f
+
+Mealtime Prayers
+
+Each meal is an image of the Eucharist, a thanksgiving for all of God’s blessings. We thank God for our daily bread and pray for the heavenly bread of His grace. The time just before the opening or closing prayer of the evening meal is also an excellent opportunity to read the appointed daily readings (Epistle and Gospel) according to the Church calendar or to read sequential passages from a book of the Bible.
+
+Before Meals
+
+In the name of the Father and the Son and the Holy Spirit. Amen.
+
+The Lord’s Prayer 
+
+Our Father who art in heaven, hallowed be Thy name, 
+
+Thy kingdom come.
+
+Thy will be done, on earth as it is in heaven.
+
+Give us this day our daily bread;
+
+and forgive us our trespasses, as we forgive those who trespass against us;
+
+and lead us not into temptation, but deliver us from evil.
+
+Glory to the Father and the Son and the Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Lord, have mercy. (3)
+
+Christ our God, bless the food and drink of Your servants, for You are holy always, now and ever and to the ages of ages. Amen.
+
+Other Prayers before Meals 
+
+Lord Jesus Christ our God, You blessed the five loaves in the wilderness and fed the multitudes of men, women and children. 
+
+Bless also these Your gifts and increase them for the hungry people in the world.
+
+You are the One who blesses and sanctifies all things and to You we give glory forever. Amen.
+
+The hungry shall eat and shall be satisfied. 
+
+Those who seek the Lord shall praise Him; their hearts shall live forever. 
+
+Bless us, Lord and these Your gifts which we are about to receive. 
+
+For You are blessed and glorified forever. Amen.
+
+After Meals
+
+We thank You, Christ our God, that You have satisfied us with Your earthly blessings. Deprive us not of Your heavenly kingdom. As You came among Your disciples after the resurrection, O Savior, and gave them peace, come also among us, grant us peace and save us. Amen.
+
+Glory to You, Lord and King! You have gladdened our hearts through Your earthly gifts. Fill us also with the gift of Your Holy Spirit, that we may abound in every good work to the glory of Your name. Amen.
+
+We thank You, Lord, Giver of all good things, for these Your gifts and all Your mercies, and we bless Your holy name forever. Amen.
+
+Prayers for the Lord’s Day
+
+On Saturday evening and Sunday, which mark the day of the Lord’s resurrection, light a candle at the table and pray as follows. If two or more people are at the table take turns reciting the verses of the prayers.
+
+For Saturday Evening
+
+In the beginning was the Word, and the Word was with God, and the Word was God.
+
+In Him was life and the life was the light of all people.
+
+The light shines in the darkness and the darkness has not overcome it.
+
+The Lord God has raised up His Son, the light of the world, to begin the new creation. 
+
+Blessed is the name of the Lord!
+
+Christ our God, by Your great mercy we have been born anew to a living hope through Your resurrection, and to an inheritance which is eternal.
+
+Lord, bless the food and drink of Your servants, for You are blessed always, now and ever and to the ages of ages. Amen. 
+
+For Sunday
+
+This is the day of the Lord! Let us rejoice and be glad in it!
+
+Let us thank the Lord for daily food, health and the blessings of home.
+
+Let us love one another in the Lord.
+
+Now we live in Christ through the Holy Spirit and we look for the day when we will dwell with Him in His glorious kingdom.
+
+Savior, bless these Your gifts which we receive from Your hand.
+
+May the light of Your resurrection shine in us and through us to all, for Your honor and glory. Amen.
+
+section-0_1_a32a00d7cdab4426_13a0
+
+The Jesus Prayer
+
+Lord Jesus Christ, Son of God, have mercy on me.
+
+or
+
+Lord Jesus Christ, Son of God, have mercy on me, a sinner.
+
+The Jesus Prayer is an invocation to the living Christ. In the Jesus Prayer we confess Christ as Lord and ask Him for His mercy. The Jesus Prayer combines St. Paul’s doxology (Phil 2:11), the tax collector’s spirit of repentance (Lk 18:33), and the blind man’s plea for enlightenment (Mk 10:47,51). “The divine name of Jesus Christ holds in itself the whole gospel truth,” wrote the author of The Way of a Pilgrim.
+
+The Jesus Prayer is appropriate for every Christian and may be recited in all circumstances-while kneeling, sitting, standing, walking, eating, traveling, working, or falling asleep. It may be offered at regular prayer times, during breaks at home and office, even in the bustle of commuting to and from work or while shopping and preparing meals. Its brevity makes it useful as a way of centering the inner consciousness on Christ, guarding against temptations and finding ready spiritual strength.
+
+The effectiveness of the Jesus Prayer comes from the power and the grace of Christ who hears our fervent invocation, cleanses our heart from evil and comes to dwell in us as personal Lord. The fruits of the Jesus Prayer are repentance, contrition, forgiveness, joy, peace and above all, as the pilgrim put it, “a burning love for Jesus Christ and for all God’s creatures. “Developed to maturity, the Jesus Prayer becomes a mystical prayer of the heart, an unceasing breath of the Holy Spirit praying within the believer, an inner spiritual fire energizing the Christian in all things.
+
+From the believer’s side the Jesus Prayer requires a sincere and humble spirit rather than a particular method. In quiet moments of concentrated prayer it may be recited rhythmically in order to establish inner attention. (Pray “Lord Jesus Christ, Son of God,” while breathing in, and “have mercy on me,” while breathing out.) But far more important are the constant attention to the words of the prayer and the fervent personal appeal to Christ for whom the soul yearns. Trust in the love and mercy of God. Seek the presence of Christ in your heart. Pray to Christ calmly and unhurriedly by enclosing your thoughts and feelings in each word of the Jesus Prayer.
+
+section-0_1_b3013d218f0c2cb5_13a1
+
+Occasional Prayers
+
+Prayer during the Day
+
+Christ my Lord, You came among Your disciples after the resurrection and granted them peace. You also poured upon them the gift of the Holy Spirit on the day of Pentecost. Bestow upon me at this hour Your grace and make me worthy to enter Your presence. Teach me how to pray. Show me the path on which I should walk. Guide my life in all things that I may not be deceived by worldly pursuits but rather seek the treasures in heaven. Lord, let Your Holy Spirit lead me in the way of Your teachings and in the remembrance of Your glorious coming kingdom. Blessed and praised is Your name among Your Saints, now and ever and to the ages of ages. Amen.
+
+Prayer of Metropolitan Philaret of Moscow
+
+Lord, I know not what to ask of You. 
+
+You alone know what my true needs are. 
+
+You love me more than I myself know how to love.
+
+Help me to see my real needs which may be hidden from me.
+
+I dare not ask for either a cross or a consolation.
+
+I can only wait upon You; my heart is open to You.
+
+Visit and help me in Your steadfast love. 
+
+Strike me and heal me; cast me down and raise me up.
+
+I worship in silence Your holy will.
+
+I offer myself to You as a living sacrifice. 
+
+I put all my trust in You.
+
+I have no other desire than to fulfill Your will. 
+
+Teach me to pray. Pray Yourself in me. Amen.
+
+Prayer to Your Guardian Angel 
+
+Holy Angel, heavenly companion of my life, do not abandon me, a sinner, nor leave room to evil demons to overwhelm me through my weaknesses. But rather take hold of my weak hand and guide me on the path of salvation. Yes, holy Angel of God, guardian and protector of my soul and body, overlook all the things by which I have grieved you. Guard me also during the night and protect me from every influence of Satan that I may not fall into sin. Intercede to the Lord for me that He may grant me forgiveness of sins and help me to be worthy of His goodness. Amen.
+
+Prayer for Travel
+
+Lord Jesus, You traveled with the two disciples to Emmaus after the resurrection and set their hearts on fire with Your grace.
+
+Travel also with me and gladden my heart with Your presence.
+
+I know, Lord, that I am a pilgrim on this earth, seeking the citizenship which is in heaven.
+
+During my journey surround me with Your holy angels and keep me safe from seen and unseen dangers.
+
+Grant that I may carry out my plans and fulfill my expectations according to Your will. 
+
+Help me to see the beauty of creation and to comprehend the wonder of Your truth in all things.
+
+For You are the way, the truth and the life, and to You I give thanks, praise and glory forever. Amen.
+
+When a Child Is Born
+
+Lord and Savior, born of the holy Theotokos and placed in a manger as an infant, I (we) thank You for the birth of this child and for the joy of a new person coming into the world. Bless and protect him (her), for You have brought him (her) into being. You have shown to him (her) the physical light. Grant that in due time he (she) may be made worthy of the spiritual light of baptism and be counted among Your holy flock. For You, Lord, are our life and light and to You I (we) give praise and glory. Amen.
+
+Before Study
+
+Christ, the true light, who enlightens and sanctifies every person coming into the world, let the light of Your countenance shine upon me (us) that I (we) may see Your unapproachable light; and guide my (our) steps in the way of Your commandments, through the intercessions of Your all-holy Mother and of all the Saints. Amen.
+
+Lord our God, the source of all wisdom and truth, send down upon me (us) the Spirit of truth, the Spirit of wisdom, the Spirit of discernment. Enlighten the eyes of my (our) soul(s) with the light of Your knowledge, that I (we) may learn from Your wisdom and grow in virtue, to the glory of Your name. Amen.
+
+After Study
+
+I (we) thank You, Lord our God, that again on this occasion You have opened my (our) eyes to the light of Your wisdom. You have gladdened my (our) heart(s) with the knowledge of truth. I (we) entreat You, Lord, help me (us) always to do Your will. Bless my (our) soul(s) and body(ies), my (our) words and deeds. Enable me (us) to grow in grace, virtue and good habits, that Your name may be glorified, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Before Any Task
+
+Lord Jesus Christ, my God, You have said, “Apart from me You can do nothing.”
+
+In faith I embrace Your words, Lord, and I entreat Your goodness.
+
+Help me to carry out the work I am about to begin, and to bring it to completion.
+
+To You I give glory, Father, Son and the Holy Spirit. Amen.
+
+My Lord and Savior, You became man and labored with Your hands until the time of Your ministry.
+
+Bless me as I begin this work. 
+
+Help me to bring it to completion. 
+
+Lord, enlighten my mind and strengthen my body, that I may accomplish my task according to Your will.
+
+Guide me to bring about works of goodness to Your service and glory. Amen.
+
+After Any Task
+
+Thank You, Lord, for Your strength and guidance in my work.
+
+You are the fulfillment of all good things.
+
+Fill also my soul with joy and gladness, that I may praise You always. Amen.
+
+A Student’s Prayer
+
+Christ my Lord, the Giver of light and wisdom, who opened the eyes of the blind man and transformed the fishermen into wise heralds and teachers of the gospel through the coming of the Holy Spirit, shine also in my mind the light of the grace of the Holy Spirit. Grant me discernment, understanding and wisdom in learning. Enable me to complete my assignments and to abound in every good work, for to You I give honor and glory. Amen.
+
+Prayer of a Single Person
+
+Jesus my Lord, who became man and graced us with the beauty of Your life and with the example of faith, purity and love; help me, I pray, to love You with all my mind, heart and soul,and to live according to Your teachings. Strengthen me when temptations strike, that I may remain pure in thought and steadfast in virtue, doing such things as are pleasing to You. Grant me faith, courage and love, that I may serve You in holiness all the days of my life, through the prayers of the Theotokos and of all the Saints. Amen.
+
+Prayer of Married Persons 
+
+Lord Jesus Christ, by Your presence You blessed the wedding in Cana and showed us that You are the true priest of mystical and pure marriage. We thank You for the day on which by Your heavenly benediction You joined us in the sacrament of marriage. Lord, continue to bless and enrich our marriage in love, companionship, mutual support, oneness of heart and progress in faith and life. Protect our holy wedlock from sin, evil and danger. Foster between us the spirit of understanding, the spirit of forgiveness and the spirit of peace, that no resentment, quarrel or other problem cause us to stumble and fall. Grant us to see our own faults and not to judge each other. Keep our bond of love always new. Gladden our lives with the joys of marriage, that with one heart we may praise and glorify You. Amen.
+
+For Your Parents
+
+Lord and Savior, You have taught us to honor our fathers and mothers, and to show love and obedience toward them.
+
+From the depth of my heart I fervently pray to You, sweet Jesus, my God: hear my prayer. 
+
+Bless my parents who have raised me up with the help of Your grace.
+
+Protect them from evil, harm and sickness. 
+
+Grant them faith, health and joy.
+
+Bless all their works that they may give You honor and glory all the days of their lives. Amen.
+
+A Businessperson’s Prayer 
+
+Master and Lord, You have promised an abundance of fruits to those who follow You faithfully.
+
+Bless me in my endeavors and help me to achieve success by Your grace. 
+
+Lord, I commit my business to You, both to will and to work according to Your good pleasure, for my benefit and the benefit of others.
+
+Fill my heart with Your grace that I may act with faith, honesty and courage in all my dealings.
+
+Guide me that I may abound in every good work to Your praise and glory. Amen.
+
+Prayer in Time of Need 
+
+Almighty God, the Father of mercies and God of all comfort, come to my help and deliver me from this difficulty that besets me. I believe, Lord, that all trials of life are under Your care and that all things work for the good of those who love You. Take away from me fear, anxiety and distress. Help me to face and endure my difficulty with faith, courage and wisdom. Grant that this trial may bring me closer to You, for You are my rock and refuge, my comfort and hope, my delight and joy. I trust in Your love and compassion. Blessed is Your name, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Prayer against Demonic Influence 
+
+Almighty God, who delivered Your people from the bondage of the adversary, and through Your Son cast down Satan like lightning, deliver me also from every influence of the unclean spirits. Command Satan to depart far from me by the power of Your only begotten Son. Rescue me from demonic delusion and darkness. Fill me with the light of the Holy Spirit that I may be guarded against the snares of the crafty demons. Grant that an angel always go before me and lead me to the path of righteousness all the days of my life, to the honor of Your glorious name, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Prayer for a Sick Person 
+
+Heavenly Father, physician of our souls and bodies, who have sent Your only begotten Son and our Lord Jesus Christ to heal every sickness and infirmity, visit and heal also Your servant (name) from all physical and spiritual ailments through the grace of Your Christ. Grant him (her) patience in this sickness, strength of body and spirit, and recovery of health. Lord, You have taught us through Your word to pray for each other that we may be healed. I pray that You heal Your servant (name) and grant to him (her) the gift of complete health. For You are the source of healing and to You I give glory, Father, Son and Holy Spirit. Amen.
+
+Prayers in Time of Sickness 
+
+Jesus Christ, my Lord and Savior, You became man and died on the cross for our salvation.
+
+You healed people of sickness and affliction through Your love and compassion.
+
+Visit me, Lord, and grant me strength to bear this sickness with which I am afflicted, with patience, submission to Your will and trust in Your loving care.
+
+I pray that You will bless the means used for my recovery and those who administer them.
+
+Grant that my sickness may be to my spiritual benefit and that I may live the rest of my life more faithfully according to Your will.
+
+For You are the source of life and healing and to You I give praise and glory, now and ever and to the ages of ages. Amen.
+
+Merciful Lord, the true comfort and hope of those who suffer, I entreat that You accept the prayers which I offer to You in my affliction. Grant that this sickness which You have permitted to come upon me may bring me closer to You and lead me to a more righteous life. Master, You send down upon us both affliction and consolation. You are the Lord of life and health. You alone can raise me up from my bed of sickness. Without Your gracious help I cannot hope to recover. It is true that I am a sinner unworthy of Your mercy. But because of Your goodness You receive everyone who turns to You with a humble heart and a repentant spirit. My Lord, Jesus Christ, have mercy on me. Say to me as You said to the sinful woman, “Your sins are forgiven.” Surely I will not forget Your warning to the paralyzed man, “Sin no more, that nothing worse befall you.” My health is in Your hands. You need say only the word and I will get well again. Yet Your will, not mine, be done. You know best what leads to my health and my salvation. You have bestowed many blessings upon me throughout my life, and I pray that You will not forsake me now, in this time of sickness. I bless and glorify Your name, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+Thanksgiving after Recovery
+
+Almighty God and heavenly Father, You are the fountain of life and healing.
+
+I bless Your holy name and offer to You thanks for having delivered me from sickness and restored me to health. 
+
+Grant me Your abiding grace, I pray, that I may live a new life in true obedience to You. 
+
+Guide me to do Your will in all things devoting my life to Your service.
+
+Thus living for You may I be found worthy of Your kingdom, where You dwell in glory with Your Son and Your Holy Spirit forever. Amen.
+
+Prayer for Enemies
+
+Lord Jesus Christ, in Your great mercy You prayed for the forgiveness of those who crucified You, and You taught us to love our enemies and to pray for those who persecute us. Lord, I pray that You forgive those who treat me unjustly and speak out against me, and that You bless them and guide them according to Your will. Take away any bitterness I may have in my heart against them. Lord, may Your forgiveness, goodness and love be revealed in all of us, to Your praise and glory. Amen.
+
+Prayers for the Dead
+
+Christ our Lord, grant rest to Your servant (name) among Your Saints, where there is no pain, sorrow or suffering, but everlasting life.
+
+With the righteous who have reposed in Your peace, grant rest, Savior, to the soul of Your servant (name), and bestow upon him (her) the blessed life which is from You, merciful Lord.
+
+Lord, remember Your servant (name) who has fallen asleep in the hope of the resurrection. Forgive him (her) every transgression he (she) has committed in thought, word or deed. Grant him (her) peace and refreshment in a place of light where Your glory delights all the Saints. For You are the resurrection, the repose and the life of Your departed servant (name), and to You I give glory, now and ever and to the ages of ages. Amen.
+
+Prayer for Peace
+
+Almighty God and Creator, You are the Father of all people on the earth.
+
+Guide, I pray, all the nations and their leaders in the ways of justice and peace.
+
+Protect us from the evils of injustice, prejudice, exploitation, conflict and war.
+
+Help us to put away mistrust, bitterness and hatred.
+
+Teach us to cease the storing and using of implements of war.
+
+Lead us to find justice, peace and freedom. 
+
+Unite us in the making and sharing of tools of peace against ignorance, poverty, disease and oppression.
+
+Grant that we may grow in harmony and friendship as brothers and sisters created in Your image, to Your honor and praise. Amen.
+
+Prayer of Thanksgiving
+
+Jesus Christ, my Lord and God, I give You thanks for Your loving kindness and all the blessings You have richly bestowed upon me.
+
+I fall down in worship and adoration before You, the King of glory.
+
+I praise You, I glorify You, I bless You and I give thanks to You for Your great goodness and tender mercy.
+
+To You I come, my sweet Lord and loving Master.
+
+Shine in my heart the light of Your grace. 
+
+Enlighten my mind, that I may walk uprightly all my life by keeping Your commandments. 
+
+Glorified and exalted is Your holy name, now and ever and to the ages of ages. Amen.
+
+section-0_1_b8e8cab4a121d7f5_13a2
+
+Confessional Prayers
+
+The Scriptures exhort us to repent and confess our sins. “Repent and turn from all your transgressions ... and get yourselves a new heart and a new spirit” (Ez 18:30-31)! “Wash yourselves; make yourselves clean. . .cease to do evil, learn to do good” (Is 1:16-17). “The time is fulfilled, and the kingdom of God is at hand; repent, and believe in the gospel” (Mk 1:15). “If we confess our sins, God is faithful and just, and will forgive our sins and cleanse us from all unrighteousness” (1 Jn 1:9).
+
+Like faith, repentance is a turning from self and the world to God as the source of life. The biblical words for repentance suggest a complete “turning around” (shub), a radical “change of mind” (metanoia), abandoning evil thoughts and deeds and adopting by God’s grace a new way of life. Jesus emphasized the joy of repentance because of its results: forgiveness, reconciliation, renewal of life and personal communion with God. The Church Fathers speak of repentance as “a gateway to heaven,” “second baptism,” “new birth,” and “renewal of the soul.” They also teach that repentance is a permanent part of Christian life and that, since no person is perfect, everyone needs to repent and confess his or her sins frequently.
+
+Repentance is a gift of God. However, it definitely lies within our powers to seek repentance. The prodigal son “came to himself’ and said, “1 will arise and go to my father” (Lk 15:17-18)! Acting upon his decision he went forth, confessed his sin and was joyfully welcomed by his father as one who had come alive from the dead (Lk 15:22-24).
+
+Come to God in repentance whenever you are burdened by sin and guilt, or whenever you feel lost and separated from God. Confess to Him your sins. Be specific and resolve to do your utmost not to repeat them. Trust that God will receive you with open arms and that there will be more joy in heaven over your repentance than over ninety-nine righteous who do not need repentance (Lk 15:7).
+
+Prayers to Christ 
+
+Lord Jesus Christ, Son of the living God, Shepherd and Lamb, You offered Your life on the cross to take away the sins of the world.
+
+You granted forgiveness to Peter and to the harlot who turned to You in tears. You forgave the debts of the two debtors and also said, “him who comes to me I will not cast out.” Lord, receive me, a sinner, and hear my prayer of repentance. (Confess to the Lord your specific sins.) I acknowledge my sins and transgressions, voluntary and involuntary, known and unknown. I firmly resolve, with the help of Your grace, to turn away from my sins and to amend my life according to Your teachings. Help me to walk in the way of the righteous and to offer praise to Your glorious name forever. Amen.
+
+Sweet Jesus, my Lord and Master, through Your holy passion You have healed my evil passions, and through Your sacred wounds You have cured my sinful wounds. Grant me, who have greatly sinned against You, tears of compunction. Purify my body with the fragrance of Your life-giving Body, and sweeten my soul with Your sacred Blood, casting out the bitterness with which the adversary has fed me. Lift up my earthbound mind to You and take me out of the pit of perdition. I have no sincere repentance, I have no true compunction, I have no consoling tears to lead me as a child of God to my spiritual inheritance. My mind has been darkened through worldly passions. I cannot look up to You in grieving remorse. I cannot warm myself with tears of love for You. But, Lord Jesus Christ, the treasury of blessings, grant me thorough repentance and a diligent heart to seek You. Grant me Your grace and renew in me the form of Your image. I have forsaken You; but, Lord, do not forsake me. Come out to seek me; lead me to Your pasture; number me among the sheep of Your chosen flock and nourish me with the food of Your sacred mysteries, through the intercessions of Your all-pure Mother and of all the Saints. Amen.
+
+Prayer of St. John Chrysostom 
+
+Lord, deprive me not of Your heavenly and eternal blessings.
+
+Lord, deliver me from everlasting torments. 
+
+Lord, if I have sinned in word or deed, in mind or spirit, forgive me.
+
+Lord, deliver me from all distress, ignorance, forgetfulness, laziness and stony hardness of heart.
+
+Lord, deliver me from all temptations and spiritual abandonment.
+
+Lord, enlighten my heart which has been darkened by evil desire.
+
+Lord, being human, I sin; but You, being God, have mercy on me.
+
+Lord, take heed of the weakness of my soul, and help me with Your grace, that Your holy name may be glorified in me.
+
+Lord Jesus Christ, inscribe the name of Your servant in the book of life, granting me a blessed end.
+
+Lord my God, I have done nothing good; yet by Your compassion help me to make a new beginning.
+
+Lord, refresh my heart with the dew of Your grace.
+
+Lord, God of heaven and earth, remember me, who am sinful, wretched, evil and impure, in Your kingdom, according to Your steadfast love.
+
+Lord, receive me in repentance and do not forsake me.
+
+Lord, put me not to the test.
+
+Lord, grant me good thoughts.
+
+Lord, grant me tears of repentance, remembrance of death and contrition.
+
+Lord, grant me sincere confession of my thoughts.
+
+Lord, grant me humility, deliverance from my own will and obedience.
+
+Lord, grant me patience, forbearance and meekness.
+
+Lord, implant in me Your holy fear, the source of all blessings.
+
+Lord, enable me to love You with all my soul, my mind and my heart; and my neighbor as myself.
+
+Lord, protect me from evil people and demons, from impure passions and all unseemly things.
+
+Lord, as you command; Lord, as You know all things; Lord, as You desire in Your goodness: let Your will be done in me.
+
+Lord, let Your will, not mine, be done, through the intercessions of the all-holy Theotokos and of all the Saints, for You are blessed forever. Amen.
+
+The Prayer of Manasseh
+
+This prayer is a classic prayer of repentance attributed by tradition to Manasseh, a wicked king of Judah (2 Chr 33:11-13), who pleaded God’s forgiveness for his many sins.
+
+Lord almighty, God of our fathers, of Abraham and Isaac and Jacob and of their righteous posterity,
+
+You have made heaven and earth with all their adornment.
+
+You have bound the sea with Your word of command.
+
+You have confined the abyss and sealed it with Your fearful and glorious name.
+
+All things shudder and tremble before Your power.
+
+The magnificence of Your glory cannot be endured.
+
+The wrath of Your threat against sinners cannot be resisted.
+
+Yet immeasurable and unsearchable is Your promised mercy.
+
+For You are the Lord Most High, compassionate, long-suffering and merciful, turning away from the evils of people.
+
+You, Lord, according to the abundance of Your goodness, have promised repentance and forgiveness to those who have sinned against You;
+
+and in the multitude of Your loving kindness You have appointed repentance for sinners unto salvation.
+
+Surely, Lord, God of the heavenly Powers, You have not appointed repentance for the righteous, for Abraham and Isaac and Jacob, who did not sin against You;
+
+but You have appointed repentance for me a sinner.
+
+For the sins I have committed are more in number than the sand of the sea.
+
+My transgressions are multiplied, Lord, they are multiplied!
+
+I am unworthy to look up and see the height of heaven because of the multitude of my iniquities.
+
+I am weighed down with many evil bonds and cannot lift up my head because of my sins. 
+
+I have no relief because I have provoked Your wrath and have done evil before You, not doing Your will, nor keeping Your commandments, but setting up abominations and multiplying offenses.
+
+And now I bend the knee of my heart, beseeching Your goodness.
+
+I have sinned, Lord, I have sinned and I know my transgressions.
+
+Do not be angry with me forever or store up evils for me; and do not condemn me to the depths of Hades.
+
+For You, Lord, are the God of those who repent, and to me You will show Your goodness.
+
+Unworthy as I am, You will save me in Your great mercy and I will praise You continually all the days of my life.
+
+For all the powers of heaven sing Your praises and Yours is the glory forever. Amen.
+
+section-0_1_144183036659a0a2_13a3
+
+Preparation for Holy Confession
+
+The gift of God’s forgiveness is received through private prayer, corporate worship, the disciplines of prayer and fasting, penitential services and above all through the sacrament of Holy Confession.
+
+The value of Holy Confession is twofold. First, through this sacramental act of the ordained priest and the Christian believer we have the assurance of divine forgiveness, according to the words of Christ (Jn 20:23). Secondly, Holy Confession provides the opportunity to talk about one’s deep concerns, to receive counsel and to be encouraged toward spiritual growth, all of which are universally recognized as extremely beneficial to personal life.
+
+Holy Confession is appropriate whenever an Orthodox Christian feels the need for it. It is also a part of our total spiritual preparation during the fast periods leading up to the great feasts of Easter, Christmas, the Falling Asleep of the Theotokos and the Feast of the Twelve Apostles. However, Holy Confession is especially necessary a) when a serious sin has been committed; b) when a habitual sin has overwhelmed a Christian, or c) when a Christian has stopped growing spiritually and needs a reexamination of priorities.
+
+We confess our sins to God and the power of forgiveness is God’s. However, the gift of God’s forgiveness, although assured, is not magical. It does not automatically spare us from spiritual struggle-the continual vigilance against evil and the unceasing warfare against sin. Holy Confession will bear fruits in the Spirit only when the believer hates evil, utterly rejects sin and patiently cultivates positive habits of the life in Christ. “So you also must consider yourselves dead to sin and alive to Christ Jesus .... Do not yield your members to sin as instruments of wickedness, but yield yourselves to God as those who have been brought from death to life” (Rm 6:11,13).
+
+How can one prepare for Holy Confession? Preparation for Holy Confession is a prayerful examination of feelings, thoughts, words, acts, attitudes, habits, values, priorities, goals, direction and way of life. This prayerful self-examination includes not only the personal religious life, but also family relationships, social activities, job conduct, business dealings, political commitments and even recreational pursuits, because our entire existence should be lived in Christ. The goal of this sincere search of conscience under the light of the Holy Spirit is not to condemn ourselves, but to affirm our true selves in Christ who has given us access to God’s mercy and forgiveness, and who has taught us to live for God’s glory.
+
+Pray and think about your confession over several days. Ask God to help you perceive your sins and to make a thorough confession of them. Sometime before the sacrament of Holy Confession, offer selected prayers from the previous Confessional Prayers, Psalm 51, or the following prayer of repentance: 
+
+A Prayer of Repentance
+
+O Lord my God, I confess that I have sinned against You in thought, word and deed.
+
+I have also omitted to do what Your holy law requires of me.
+
+But now with repentance and contrition I turn again to Your love and mercy.
+
+I entreat You to forgive me all my transgressions and to cleanse me from all my sins. 
+
+Lord, fill my heart with the light of Your truth. 
+
+Strengthen my will by Your grace.
+
+Teach me both to desire and to do only what pleases You. Amen.
+
+Now, without justifications or self-pity, make a prayerful examination of your conscience regarding all things. As a help, reflect on your life in the light of the Ten Commandments and the Beatitudes. Take pencil and paper and specify your sins so that, at the time of the sacrament, you will be able to make a thorough confession from the list, without confusion or lapse of memory.
+
+The Ten Commandments
+
+I am the Lord your God, and you shall have no other gods before me.
+
+Has God been the source, center and hope of my life? Have I put myself, others or things before God? Have I failed to trust in God’s existence, love and mercy? Have I failed to pray to God, to worship Him and to thank Him for His blessings? Have I tried to serve God and keep His commandments faithfully? Have I murmured or complained against God in adversity? Have I praised and glorified God through my words and deeds?
+
+You shall not make for yourself a graven image in order to worship it.
+
+Have I valued anyone or anything above God? Have I given to anyone or anything the love, honor and worship that belongs to God alone? Have I made an idol of any person, idea, occupation, or thing?
+
+You shall not take the name of the Lord your God in vain.
+
+Have I blasphemed God’s holy name in any way? Have I sworn a false oath? Have I broken any solemn vow or promise? Have I entered into an agreement, promise or contract against God’s law? Have I cursed or used foul language?
+
+Remember the Sabbath day to keep it holy.
+
+Have I worshiped regularly on Sundays and major feast days and have I helped others to do the same? Have I worked unnecessarily on Sundays or major feast days or caused others to do so? Have I spent the Lord’s Day in wholesome and edifying ways? 
+
+Honor your father and mother.
+
+Have I loved and respected my parents as I should? Have I neglected them or failed to help them? Have I disobeyed them, deceived them or caused them pain by my words or deeds? Have I treated all my family members with patience and love?
+
+You shall not kill.
+
+Have I caused the harm, injury or death of anyone? Have I wished my own or anyone’s harm or death? Have I been cruel to animals or destroyed any life unnecessarily?
+
+You shall not commit adultery.
+
+Have I committed any immoral acts alone or with others? Have I caused others to commit immoral acts? Have I committed immoral acts in my heart?
+
+You shall not steal.
+
+Have I taken anything that was not mine from anyone or from anywhere? Have I cheated anyone? Have I caused others to steal or cheat? Have I tried to find the owners of lost things I have found? Have I damaged or destroyed anything that belonged to another? Have I defrauded anyone of rightful wages? Have I paid my debts? Have I given to the poor and to philanthropic causes in proportion to my means?
+
+You shall not bear false witness.
+
+Have I given false testimony against anyone? Have I spoken evil, told lies or spread rumors about anyone? Have I disclosed to anyone the sins and faults of another? Have I made careless statements or done anything else to harm the name and reputation of another? Have I engaged in idle gossip?
+
+You shall not covet.
+
+Have I looked with envy, jealousy or hatred toward the possessions, talents or achievements of others? Have I desired the downfall or loss of others out of evil intent that I might benefit? Have I grieved that God has bestowed greater blessings on others than on me?
+
+The Beatitudes
+
+Blessed are the poor in spirit, for theirs is the kingdom of heaven.
+
+Have I truly recognized my complete dependence on God? Have I been proud, arrogant and self-righteous in my ways? Have I been selfish, possessive and self-seeking? Have I sought after status, power and wealth?
+
+Blessed are those who mourn, for they shall be comforted.
+
+Have I endured difficulties and afflictions with faith and patience? Have I felt sadness for the sufferings of the poor, the hungry, and addicted; the sick, the lonely and the sinful of the world? Have I truly been sorrowful for my sins and faults?
+
+Blessed are the meek, for they shall inherit the earth.
+
+Have I tried to serve or rather to dominate others at home, school, work, office, Church and elsewhere? Have I nursed hatred in my heart or desired revenge against anyone? Have I been resentful, bitter, unforgiving or insulting and abusive to others? Have I loved my enemies?
+
+Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
+
+Have I truly yearned for God’s will to be done in all things? Have I worked for justice in my family, society and the world in ways within my reach? Have I tried to cultivate a righteous life through prayer, fasting, worship, receiving Holy Communion and deeds of love toward others?
+
+Blessed are the merciful, for they shall obtain mercy.
+
+Have I shown compassion and help toward the poor, hungry, lonely and needy around me? Have I tried to understand and forgive others? Have I been indifferent, judgmental or legalistic?
+
+Blessed are the pure in heart, for they shall see God.
+
+Have I loved goodness, purity and holiness? Have I succumbed to evil motives and intentions? Have I given way to impure thoughts, words or deeds? Have I been guilty of bias and prejudice? Have I been hypocritical, pretentious or self-indulgent to sinful passions?
+
+Blessed are the peacemakers, for they shall be called sons of God.
+
+Do I have God’s peace in my heart? Have I been unfairly angry, aggressive or impatient? Have I worked for peace at home, work, Church and in society? Have I been irritable, polemical, or divisive?
+
+Blessed are those who are persecuted for righteousness sake, for theirs is the kingdom of heaven.
+
+Have I complained when persecuted for God’s sake? Have I prayed for my persecutors? Have I failed to defend anyone in the truth for fear of humiliation or persecution? Have I had the courage to stand up for what is right despite criticism, ridicule or persecution?
+
+Blessed are you when they revile you and persecute you on my account; rejoice and be glad, for your reward is great in heaven.
+
+Is the joy of Christ in my heart even in trying moments? Have I been pessimistic, despondent or despairing? Have I truly delighted in the promise of God’s treasures in heaven?
+
+section-0_1_ed3fa38974d004a5_13a4
+
+Preparation for Holy Communion
+
+“It is no longer I who live, but Christ who lives in me” (Gal 2:20). The heart of the Christian life is a personal relationship with Christ. A Christian is a person in whom Christ abides. We experience our life in union with Christ through faith, prayer, love, acts of witness, service to others and above all through the Liturgy and the reception of Holy Communion.
+
+The Liturgy is an unceasing celebration of the life and saving work of Christ, the center of the life of the Church. As we pray the Liturgy, Christ comes in our midst. When the Gospel is read we receive the words as coming from Christ Himself and we praise Him: “Glory to You, O Lord, glory to You!” When the Eucharistic gifts are brought out during the great entrance we sing: “Let us receive the King of all!” When we approach the chalice we confess: “Behold, 1 draw near to Christ, our immortal King and God!” When we receive Holy Communion we are united with Christ, with each other as brothers and sisters, and with the entire communion of Saints, all making up the mystical Body of Christ.
+
+Holy Communion is the highest moment of our life in Christ. Through the Liturgy the whole local Church comes into the presence of the risen Lord to worship Him and to receive Him as the Bread of Life. The Orthodox Church has never tried to analyze precisely how Christ is present in the Eucharistic gifts. We hold by faith that through Holy Communion we partake of Christ in His personal presence. The change of the Eucharistic gifts is not physical and chemical, because after Holy Communion we still taste the qualities of bread and wine. Rather the change of the bread and wine into the Body and Blood of Christ is mystical and sacramental (mysteriake). Holy Communion is a mystical and sacramental eating and drinking of the glorified humanity of Christ which cleanses and glorifies us by grace (theosis).
+
+Frequent Holy Communion is a natural part of Orthodox life. The celebration of the Liturgy is completed, so Orthodox theologians have said, “only after the reception of Holy Communion, not without it.”Prepare and receive Holy Communion frequently. As part of your preparation offer the following Psalm and prayers during your evening prayer. Anticipate the Liturgy as a new and energizing coming of Christ into your local parish and your own personal life. Seek to go to the Liturgy with a warm and expectant heart. Let the whole Liturgy and the receiving of Holy Communion be a true experience of new creation in Christ for your parish and you, a source of new vision, inspiring you to witness in the world, to share the good news of God’s love in Christ, to help the needy and to work for justice and peace.
+
+Psalm 24
+
+The earth is the Lord’s and the fullness thereof,
+
+the world and those who dwell therein;
+
+for He has founded it upon the seas, 
+
+and established it upon the rivers.
+
+Who shall ascend the hill of the Lord? 
+
+and who shall stand in His holy place?
+
+He who has clean hands and a pure heart,
+
+who does not lift up his soul to what is false,
+
+and does not bear false witness. 
+
+He will receive blessing from the Lord, 
+
+and vindication from the God of his salvation.
+
+Such is the generation of those who seek Him,
+
+who seek the face of the God of Jacob.
+
+Lift up your heads, O gates!
+
+and be lifted up, O ancient doors! 
+
+That the King of glory may come in!
+
+Who is the King of glory?
+
+The Lord, strong and mighty, 
+
+the Lord, mighty in battle! 
+
+Lift up your heads, O gates!
+
+That the King of glory may come in!
+
+Who is the King of glory? 
+
+The Lord of hosts, 
+
+He is the King of glory!
+
+A Prayer of St. John of Damascus 
+
+Lord Jesus Christ, my God, You alone have the power to forgive sins. In Your love and goodness forgive all the sins that I have committed, whether in knowledge or in ignorance, in word or in deed. Make me worthy without condemnation to receive Your divine, glorious, pure and life-giving mysteries. Grant that my communion of Your Body and Blood be not unto my punishment or increase of sins but unto my cleansing of soul, purification of body, protection against adversaries and pledge of eternal life in Your kingdom. For You are the God of mercy and compassion, and to You I give glory, Father, Son and Holy Spirit, now and ever and to the ages of ages. Amen.
+
+A Prayer of St. John Chrysostom 
+
+O Lord, my God, I know that I am not worthy that You should enter into my soul’s habitation because it is desolate and in ruins. You will find no fitting place therein to lay Your head.
+
+But as from on high You humbled Yourself and came to us, so now submit to the measure of my lowliness. As You consented to lie in a manger, consent now to come into the manger of my soul and body. As You did not scorn to enter and to dine with sinners in the house of Simon the leper, scorn not to enter into the house of my humble soul, although I, too, am a sinner and leper. As You did not cast out the sinful woman, a harlot, when she approached to touch You, so have also compassion on me, a sinner, as I approach to touch You.
+
+Lord and Master, let the burning fire of Your holy Body and precious Blood be unto me for cleansing, enlightenment and strengthening of my soul and body; for relief of the burden of my many transgressions, protection from all diabolical influence, restraint of my sinful habits and the putting to death of my evil passions; for help in obeying Your commandments, growth in Your grace and attainment of Your kingdom.
+
+I come to You, Christ my God, not in presumption but taking courage from Your loving goodness, and that I may not, by long abstaining from Your communion, become prey to the adversary. I entreat You, my Lord, who alone are holy, sanctify my soul and body, my mind and heart, my feelings and emotions. Renew me wholly, implant Your awe in my being, and imprint Your mark of holiness on me. Become my helper and protector, guide my life in peace and make me worthy to stand with Your Saints at the right hand of Your glory, through the intercessions of Your pure Mother, of the heavenly Powers and of all Your Saints. Amen.
+
+section-0_1_523b8588c4883186_13a5
+
+At the Time of Holy Communion
+
+I believe and confess, Lord, that You are truly the Christ, the Son of the living God, who came into the world to save sinners, of whom I am the first.
+
+I also believe that this is truly Your pure Body and that this is truly Your precious Blood. 
+
+Therefore I pray to You, have mercy upon me and forgive my transgressions, voluntary and involuntary, in word and in deed, known and unknown.
+
+And make me worthy without condemnation to partake of Your pure mysteries for forgiveness of sins and for life eternal. Amen.
+
+You have set me on fire, O Christ, and with Your divine love You have changed me. Burn away my sins with Your grace and make me worthy to be filled with Your joy, that rejoicing in Your goodness I may magnify You forever.
+
+How shall I, who am unworthy, enter into the splendor of Your Saints? If I dare to enter into the bridal chamber, my clothing will accuse me, since it is not a wedding garment; and being bound up, I shall be cast out by the angels. In Your love, Lord, cleanse my soul and save me.
+
+Loving Master, Lord Jesus Christ, my God, let not these holy gifts be to my condemnation because of my unworthiness but for the cleansing and sanctification of soul and body, and the pledge of the future life and kingdom. It is good for me to cling to my God and to place in Him the hope of my salvation.
+
+Receive me today, Son of God, as a partaker of Your mystical supper.
+
+I will not reveal Your mystery to Your adversaries.
+
+Nor will I give You a kiss as did Judas.
+
+But as the thief I confess to You: Lord, remember me in Your kingdom.
+
+Behold, I draw near to Christ, my immortal King and God.
+
+Having been made worthy to receive the Body and Blood of Christ, offer to Him the following prayers of thanksgiving.
+
+section-0_1_ef0600275ecd0f45_13a6
+
+Thanksgiving after Holy Communion 
+
+Glory, to You, O God.
+
+Glory, to You, O God.
+
+Glory, to You, O God.
+
+I thank You, loving Master, benefactor of my soul, that on this day You have again made me worthy of Your heavenly and immortal mysteries.
+
+Direct my way on the right path. 
+
+Establish me firmly in Your fear. 
+
+Guard my life.
+
+And make my endeavors safe, through the prayers of the glorious Theotokos and ever virgin Mary and of all Your Saints. Amen.
+
+Lord Jesus Christ, my God, let Your sacred Body be unto me for eternal life and Your precious Blood for forgiveness of sins.
+
+Let this Eucharist be unto me for joy, health and gladness.
+
+And in Your awesome Second Coming make me, a sinner, worthy to stand at the right hand of Your glory;
+
+through the intercessions of Your pure Mother and of all Your Saints. Amen.
+
+I thank You, Lord my God, that You have not rejected me, a sinner, but have made me worthy to partake of Your holy mysteries. I thank You that You have permitted me, although I am unworthy, to receive Your pure and heavenly gifts. O loving Master, who died and rose for our sake, and granted to us these awesome and life-giving mysteries for the wellbeing and sanctification of our souls and bodies: let these gifts be for the healing of my own soul and body, for the averting of every evil, the illumination of the eyes of my heart, the peace of my spiritual powers, a faith unashamed, a love unfeigned, the fulfilling of wisdom, the observing of Your commandments, the receiving of Your divine grace and the inheritance of Your kingdom. Preserved by them in Your holiness, may I always be mindful of Your grace and no longer live for myself, but for You, our Master and Benefactor. May I pass from this life in the hope of eternal life, and attain to the everlasting rest, where the voices of Your Saints who feast are unceasing and their joy beholding the ineffable beauty of Your countenance is unending. For You, Christ our God, are the true joy and gladness of those who love You and all creation praises You forever. Amen.
+
+section-0_1_a145f341e1e73e48_13a7
+
+Index
+
+Any need
+
+Prayer of Metropolitan Philaret of Moscow
+
+Prayer in Time of Need
+
+Any task
+
+Birth of a Child
+
+Businessperson
+
+Christ, the Joyful Light
+
+Compline
+
+Communion
+
+Creed
+
+Deliverance
+
+Demonic Influence, against
+
+Departed, for the
+
+Doxology
+
+Ephraim’s Prayer
+
+Enemies, for
+
+Forgiveness
+
+Prayer for Forgiveness
+
+Prayers to Christ
+
+Glorification
+
+Guardian Angel
+
+Guidance
+
+Personal Requests
+
+Prayer for Enlightenment
+
+Prayer During the Day
+
+Holy Spirit
+
+Intercession
+
+Incercession for the Living
+
+Incercession for the Departed
+
+Prayer for Intercession
+
+Jesus Prayer
+
+Lord’s Prayer
+
+Magnificat
+
+Marriage
+
+Meal Time
+
+Parents
+
+Peace
+
+Praise
+
+A Song of Praise (Ps 118)
+
+A Song of Praise (Ps 145)
+
+Praise to God the Creator
+
+Prayer of Praise
+
+Protection
+
+The Lord Is My Shepherd (Ps 23)
+
+Prayer to Christ
+
+Repentance
+
+Prayer of Repentance
+
+Psalm 51
+
+A Prayer of Repentance
+
+Sickness
+
+Prayer for a Sick Person
+
+Prayers in Time of Sickness
+
+Single Person
+
+Study
+
+Before and After Study
+
+A Student’s Prayer
+
+Supplication
+
+Psalm 143
+
+Prayer to the Theotokos
+
+Prayer to Christ
+
+Thanksgiving
+
+Prayer of Thanksgiving
+
+Psalm of Thanksgiving (Ps 138)
+
+Prayer of Thanksgiving
+
+Travel
+
+Vespers
+
+section-0_1_990e96868789713f_13a8
+
+Acknowledgments
+
+My Orthodox Prayer Book was compiled, translated and arranged for the Religious Education Department of the Greek Orthodox Archdiocese by Fr. Theodore Stylianopoulos, Theological Consultant to the Department and Professor of New Testament at Holy Cross Greek Orthodox School of Theology in Brookline, MA.
+
+Psalms 51, 118, 119, 138 and 145 are quoted from the Revised Standard Version of the Bible, copyrighted 1946, 1952, 1971, 1973, with special permission granted to use “in this publication” the You-Your-Yours forms of personal pronoun in the address to God. Psalms 23, 24, 70, 104, 130, 141 and 143, as well as the Prayer of Manasseh, were adapted from the Revised Standard Version of the Bible by permission.
+
+In the work of translation and arrangement the compiler gratefully acknowledges also help from the following works: A Manual of Eastern Orthodox Prayers (Fellowship of St. Alban and St. Sergius); Prayers for Orthodox Christians (The Romanian Orthodox Episcopate of America); A Pocket Prayer Book for Orthodox Christians (The Antiochian Orthodox Christian Archdiocese), and Byzantine Daily Worship (Alleluia Press). The compiler is grateful to Fr. Nicholas Triantafilou for his valuable suggestions.
+
+section-0_1_af48a78779003a27_13a9
+
+Table of Contents
+
+Foreword to 2012 Electronic Edition
+
+Foreword to Original Edition
+
+The Trisagion
+
+Other Morning Prayers
+
+Morning Bible Study
+
+Evening Prayers
+
+Evening Bible Study
+
+Selections from Vespers
+
+The Little Compline
+
+Mealtime Prayers
+
+The Jesus Prayer
+
+Occasional Prayers
+
+Confessional Prayers
+
+Preparation for Holy Confession
+
+Preparation for Holy Communion
+
+At the Time of Holy Communion
+
+Thanksgiving after Holy Communion
+
+Index
+
+Acknowledgments

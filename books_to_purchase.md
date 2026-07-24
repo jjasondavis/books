@@ -17,13 +17,13 @@ are flagged where DRM status is known; verify per-page, since publishers change 
    Buying it will **not** close the vault gap — I can't read a DRM-locked EPUB. It's a personal-reading
    purchase only. (No public-domain English exists; the vault holds the 1782 Greek first edition as base text.)
    [Vol 5 listing](https://www.ebooks.com/en-us/book/210534131/the-philokalia-vol-5/g-e-h-palmer/)
-2. **★ Rebecca DeYoung, *Glittering Vices*** — the best modern scholarly treatment of the seven deadly
+2. **✓ ACQUIRED — Rebecca DeYoung, *Glittering Vices*** — the best modern scholarly treatment of the seven deadly
    sins / eight thoughts; a direct peer and foil for the whole project.
    [listing](https://www.ebooks.com/en-us/book/579468/glittering-vices/rebecca-konyndyk-deyoung/)
 3. **Angela Tilby, *The Seven Deadly Sins*** — explicitly traces the seven back to Evagrius's eight
    thoughts, your exact frame.
    [listing](https://www.ebooks.com/en-us/book/1394279/the-seven-deadly-sins/angela-tilby/)
-4. **Evagrius, *Talking Back (Antirrhetikos)* (trans. Brakke)** — English of the *Antirrhetikos* (the vault
+4. **✓ ACQUIRED — Evagrius, *Talking Back (Antirrhetikos)* (trans. Brakke)** — English of the *Antirrhetikos* (the vault
    has only Syriac/Greek/Serbian). It *is* the "talk back to the thought" method at the book's core.
    [listing](https://www.ebooks.com/en-us/book/96477592/talking-back/evagrius-of-pontus/)
 

@@ -1,0 +1,460 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB, DRM removed for personal use). -->
+Source file: Obstacles to Deliverance_ Why Deliverance Sometimes Fails_nodrm.epub
+Title/Edition: Obstacles to Deliverance: Why Deliverance Sometimes Fails; Frank Hammond; 2014; owned copyright — personal use, do not distribute.
+
+07uEVovqRK_lfWXW2zTKCA1
+
+07uEVovqRK_lfWXW2zTKCA10
+
+07uEVovqRK_lfWXW2zTKCA21
+
+Obstacles to Deliverance & Why Deliverance Sometimes Fails
+
+by Frank Hammond
+
+ISBN 10: 0-89228-238-X
+
+ISBN 13: 978-089228-238-8
+
+Copyright © 2002. Revised 2011
+
+Impact Christian Books
+
+Impact Christian Books, Inc.
+
+332 Leffingwell Ave., Suite 101
+
+Kirkwood, MO 63122
+
+(314) 822-3309
+
+www.impactchristianbooks.com
+
+All passages are from the King James Bible unless otherwise noted.
+
+ALL RIGHTS RESERVED
+
+07uEVovqRK_lfWXW2zTKCA49
+
+Contents
+
+Why Deliverance Sometimes Fails
+
+Obstacles to Deliverance
+
+Conclusion
+
+07uEVovqRK_lfWXW2zTKCA60
+
+PART ONE
+
+Why Deliverance Sometimes Fails
+
+Why does deliverance sometimes fail? In answering this question, several things must be taken into account. This is, in essence, the same question raised by Jesus’ first disciples. When these disciples were unable to cast out a spirit of epilepsy, they were puzzled and asked Jesus the reason for their failure. Jesus gave a multi-part answer which leads us to take into account the petitioner’s faith, the deliverance minister’s capability, the spiritual qualifications that must be met, the strength of the spirit confronted and the strategy of warfare employed. First, let us consider the importance of faith.
+
+Lack of Faith
+
+The father of an epileptic boy complained to Jesus,
+
+“I brought him to Your disciples, but they could not cure him.”
+
+Matt. 17:16
+
+To which Jesus replied, “O faithless and perverse generation…” (Matt. 17:17). The word generation (genea) means “race” and refers to the Jewish people who, for the most part, refused to believe Jesus was the Messiah. Jesus was identifying the father of the epileptic son as part of that “faithless and perverse generation.” In Mark’s account, the context reveals that the unbelieving scribes were disputing with the disciples over their failure to cast the deaf and dumb spirit out of the boy (Mark 9:14-17). The disciples were surrounded by an unbelieving multitude.
+
+The unbelieving father besought Jesus, “If You can do anything, have compassion on us and help us” (Mark 9:22). Jesus answered the unbelieving father,
+
+“If thou canst believe, all things are possible to him that believeth.”
+
+Mark 9:23
+
+Thus, Jesus was showing that the disciples’ failure was due to the unbelief of the one seeking deliverance. Jesus had encountered the same problem in Nazareth where…
+
+“He did not do many mighty works there because of their unbelief.”
+
+Matt. 13:58
+
+When confronted over his unbelief,
+
+“The father of the child cried out and said with tears, ‘Lord, I believe; help my unbelief!’”
+
+Mark 9:24
+
+Whereupon Jesus rebuked the unclean spirit, and it came out.
+
+Another parent who came to Jesus for a child’s deliverance was the Syrophonecian mother. Jesus refused her request for deliverance until she expressed faith, whereupon Jesus said,
+
+“O woman, great is thy faith: be it unto thee even as thou wilt. And her daughter was made whole from that very hour.”
+
+Matt. 15:28
+
+Jesus had given His disciples absolute authority to cast out all demons:
+
+“Then he called his twelve disciples together and gave them power and authority over all demons.”
+
+Luke 9:1
+
+How could they fail? The twelve failed because they had been influenced by the “unbelieving and perverse generation” and had lost their own faith to cast out demons. Therefore, Jesus addressed His disciples directly on the importance of faith, explaining their inability to cast out the demon:
+
+“Because of your unbelief: for verily I say unto you, if ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall be removed; and nothing shall be impossible unto you.”
+
+Matt. 17:20
+
+It is important that both petitioner and minister have faith that when a spirit is commanded to go in the name of Jesus, it must go. Authority to cast out demons is contingent upon faith. Both God and demons know whether active faith is present. A teaching or instructional time that precedes deliverance provides an opportunity to build faith. Jesus did not tell His disciples that their faith must be gigantic. A mustard seed-sized of faith is sufficient so long as it is genuine faith.
+
+Lack of Spiritual Discipline
+
+Let us also consider the capability and qualification of the deliverance minister. Jesus also said,
+
+“This kind can come out by nothing but prayer and fasting.”
+
+Mark 9:29
+
+The NU Greek New Testament omits “fasting.” We know at this time the disciples of Jesus were not required to fast. When the scribes and Pharisees brought this up, Jesus explained,
+
+“Can you make the friends of the bridegroom fast while the bridegroom is with them? But the days will come when the bridegroom will be taken away from them; then they will fast in those days.”
+
+Luke 5:34–35
+
+Jesus, our Bridegroom, is not with us now, so prayer and fasting are spiritual prerequisites for successful encounters with demons. The deliverance minister must be a man of prayer and fasting; not a ritual prayer but a life of personal prayer accompanied by fasting. This is not a requirement that the deliverance minister fast before every deliverance situation, otherwise those who minister deliverance daily would be on a perpetual fast. A spiritually disciplined person is needed; one who is strong in prayer and has a fasting life-style. These two spiritual disciplines equip a minister and insure the anointing necessary for effective ministry!
+
+Varying Strength of Demons
+
+Notice that Jesus made a distinction between spirits. “This kind” indicates that some demons are stronger and more determined than others, and we have found this to be a certainty. Demons are personalities, and just as some people have stronger wills than others, so it is with demons. We are commissioned to “wrestle” against Satan’s host, and most wrestling contests are not won in a flash. Wrestling denotes putting pressure on the enemy until he is conquered. Failure can result from the deliverance minister giving up rather than pressing through.
+
+Conditions Not Met
+
+The candidate for deliverance must meet certain criteria:
+
+1. Forgiveness
+
+He must forgive all who have trespassed against him, otherwise, he is “turned over to the tormentors” (Matt. 18:35), and he cannot be liberated until he has met God’s condition to forgive.
+
+2. Repentance
+
+He must repent of all sin. Repentance is the prelude to deliverance. I recall a deliverance case where a man refused to confess homosexuality as a sin. He could not receive deliverance because he held on to this particular sin. Another example is the sin of abortion, which must be confessed as a sin of murder.
+
+3. Occult Objects
+
+He must destroy all paraphernalia that give demons a legal right. Deliverance can be blocked by ungodly things a person possesses. We were unsuccessful in ministering deliverance to a gentleman when the Lord called my attention to a Masonic ring he was wearing. Acting on the explanation that I gave him as to the ring’s demonic ties, he agreed to remove the ring. The moment he slipped the ring from his finger the demons began to come out of him. As deliverance was taking place through Paul’s ministry in Corinth, “Many of them also which used curious arts brought their books together, and burned them before all men” (Acts 19:19). One must be willing to renounce and destroy all cult, occult and idolatrous books and paraphernalia in his possession.
+
+4. Prior Involvement in Occult & False Religions
+
+He must renounce and ask God’s forgiveness for all involvement in idolatry, the occult, cults and Eastern Religion (including the martial arts and Yoga exercises which cannot be separated from heathen religious connections).
+
+5. Desire to be Delivered
+
+He must want deliverance. “Whoever calls upon the name of Lord shall be delivered” (Joel 2:32). Oddly enough, there are some who prefer bondage to deliverance. Some have descended into mental illness as an escape from the memories of abuse and other traumas, and others have chosen to escape the responsibilities of life. For example, they may be institutionalized, and there they are housed, fed and clothed and others care for their every need. Should they be delivered they would have to go to work and provide for themselves. To some, this is an unacceptable option.
+
+Another common escape is into childishness. There will be a “little boy” or “little girl” spirit that locks the individual into childish behavior. Behind this escape is the fear of growing up with its resultant responsibilities.
+
+Still others relish the attention they are getting through receiving deliverance ministry. Such individuals will never admit to a breakthrough. They will always require additional deliverance because it is a special time of getting attention which they have heretofore lacked.
+
+Passivity
+
+Some deliverance attempts end in failure because the counselee is passive. This can be due to tranquilizing drugs that render the individual from getting his will involved in the ministry. It is very important for the one seeking deliverance to have his will involved. When medications are found to be a barrier, it may be necessary to have that person taper off his medications — under the advice of a doctor — and come back for deliverance at a later time. Suspension of medications is a short-time requirement to facilitate deliverance. If a doctor has prescribed tranquilizing drugs, let the doctor decide that this person does not require them any longer.
+
+In some cases, the person’s will power is weak. He has never adequately strengthened his will in making life-changing choices. He needs to be taught and required to take a stand. Lead him to vocalize confessions and prayers of deliverance. Have him declare his appropriation of God’s promises and command demons to go. Such activation of the will is in keeping with the Word of God which declares,
+
+“Submit to God. Resist the devil and he will flee from you.”
+
+Jas. 4:7
+
+Unteachable
+
+Occasionally, there will be an individual who challenges the deliverance minister’s authority and counsel. He intends to make the minister think that the minister is the one with a problem rather than himself. A basic requirement for receiving deliverance is a teachable spirit. A deliverance minister functions like a spiritual doctor. It is his job to diagnose the problem and then prescribe God’s remedy. He is unable to perform the spiritual “surgery” of removing the troubling demons without the counselee’s cooperation.
+
+Control
+
+Then there is the case of the one seeking deliverance having his own agenda. If he is to receive help it must be on his own terms. He comes in with his own need diagnosed and dictates his conditions for receiving help. This control attitude will abort a ministry. The minister who is dependent upon the leading of the Holy Spirit cannot be hamstrung by the counselee’s desire to control what and how deliverance takes place.
+
+Self Deception
+
+Self-deception is one of the most powerful of strongholds. It is a basic compensation for inferiority. The devil offers a false sense of importance to those who have been rejected and feel of less value in comparison to others. They are deceived into believing that for one reason or another they have found something of worth to which they can cling. This “something” may be a doctrine, a ministry gift, a revelation or a guidance technique…
+
+“A person will cling to a deception because it appears valuable. It seems to offer security, recognition, acceptance, approval or love. Since the deception seems so important, it is stoutly defended. When the deception is challenged, the person feels threatened. He becomes determined that no one will take away the one thing that makes him feel important or secure. Therefore, he had rather suffer persecution than give up his deception. Only by the grace of God will the seriously self-deceived person escape his bondage.”1
+
+Not Understanding How Satan’s Kingdom Functions
+
+One must take into account that in deliverance we are not dealing with spirits singly but with a network or kingdom of spirits. This truth is found in the word “principalities” (Eph. 6:12), which signifies spirits working together in rank as a company of soldiers.
+
+Scripture also reminds us that Satan’s kingdom is not divided:
+
+“And if Satan cast out Satan, he is divided against himself; how then shall his kingdom stand?”
+
+Matt. 12:26
+
+If Satan’s kingdom is not divided then it is unified; unified by a common propensity to evil. Also, the ruler spirit must be subdued. Jesus demonstrated the priority of dealing with “the strong man.”
+
+“Or else how can one enter into a strong man’s house, and spoil his goods, except he first bind the strong man? and then he will spoil his house.”
+
+Matt. 12:29
+
+Failure to Seek the Lord’s Battle Plan
+
+We might conjecture that the disciples had fallen into a pattern of deliverance, relying upon previously discovered methods to deal with demons. If this was the case, it was an unfortunate mistake often made by deliverance workers. In each deliverance situation we need to seek the Holy Spirit’s battle strategy. It is best to approach each case as different, remaining flexible to the Spirit’s leading. Allow Him to set the battle plan. Let Him tell you where to begin, how to proceed, and when and how to terminate each session.
+
+Lack of Knowledge Concerning Deliverance
+
+The deliverance minister’s knowledge of deliverance, gained from Spirit-taught Bible revelation, is the basis for successful deliverance. Some of our first attempts at deliverance were failures. Although we had zeal it was not according to knowledge. For example, we did not realize that a person could have more than one spirit. We were gullible in believing what spirits spoke through a person, as when one spirit announced, “If Jesus were here, I would have to leave. But He is not here.” Instead of rebuking the lying spirit, we pled for Jesus to return!
+
+“All scripture is given by inspiration of God... that the man of God may be ... thoroughly furnished unto all good works.”
+
+2 Tim. 3:16-17
+
+Learning from our Failures
+
+The disciples were genuinely concerned over their failure to cast out the epileptic spirit, so they did a very wise thing: they turned to Jesus for help. We, too, should be very concerned when we encounter deliverance failures. We need to know “why?” After all, Jesus has given us power and authority over all demons just as He did the twelve apostles (Luke 9:1) and the seventy disciples (Luke 10:19). We must remain humble and teachable. Was the failure due to some lack on the minister’s part, or was it due to some unmet condition by the one ministered unto? When there is failure for any reason, we must go to Jesus for His assessment.
+
+Each person is important, and his deliverance need is legitimate. We want to be at our very best so that every captive will be set free. We are dealing with the lives of those for whom Christ laid down His life.
+
+If the fault lies with the deliverance minister, he must find the reason and correct it. If the failure is on the part of the deliverance seeker, he needs all the help he can get and is willing to receive. We cannot settle for partial success but must press on to full potential.
+
+1 See Overcoming Rejection, Chapter 5, by Frank Hammond. Available at www.impactchristianbooks.com
+
+07uEVovqRK_lfWXW2zTKCA170
+
+To watch a short video of Frank Hammond teaching on the obstacles to deliverance, visit the website listed below:
+
+07uEVovqRK_lfWXW2zTKCA187
+
+PART TWO
+
+Obstacles to Deliverance:
+
+“Questions in the Mind of Man”
+
+So far, we have covered the topic of why deliverance sometimes fails. It is worth concentrating further on one particular block to the deliverance ministry — the mind and theology of man.
+
+There are myths, misunderstandings and misinformation concerning the ministry of deliverance. 2 The first battleground is in the minds of men, where Satan has sown questions, doubts and fears that become hindrances to involvement in this valid, biblical ministry.
+
+We need not spend time with those who are unteachable and argumentative. Jesus sometimes gave a simple, straightforward answer to His critics, but spent His time ministering to the people who were receptive and teaching His disciples. We will do well to follow His example.
+
+Those who want an answer should be given an answer. Ignorance, prejudice and fear are hurdles that some sincere Christians must get over before they are willing to become involved in spiritual warfare. We must teach those who are receptive.
+
+The only way to deal with the devil and demons is through direct confrontation. Furthermore, God has given the Christian and His Church the commission to cast out demons (see Matthew 10:1; Luke 10:17–19; Mark 16:17). Some believers have false opinions that prevent them from accepting deliverance as a vital ministry. Before one can bring himself to obedience to deal with the devil and demons, the following obstacles must be overcome in one’s mind.
+
+2 For additional information, see the teaching DVD Obstacles to Deliverance by Frank Hammond, available at www.impactchristianbooks.com
+
+07uEVovqRK_lfWXW2zTKCA204
+
+Obstacle 1:
+
+Fear and Terror at the Mention of Demons, the Devil or Deliverance
+
+THE TRUTH…
+
+The perceptions of demons held by many have been taken from fiction, mythology and superstition rather than from Scripture. The fear that some have of deliverance has been fostered in part through such films as The Exorcist and Rosemary’s Baby, which are designed to create mystery, sensationalism, violence and fear rather than to convey truth.
+
+The Christian should look at his resources and know that he is stronger than the enemy. Light dispels darkness. Fear and terror will leave when people embrace the truth. Faith overcomes fear 
+(Rom. 10:17).
+
+07uEVovqRK_lfWXW2zTKCA216
+
+Obstacle 2:
+
+Unbelief: There is No Such Thing as the Devil or Demons
+
+THE TRUTH…
+
+Wrong concepts of the devil have been programmed by the world. He is not running around in a red suit with a pitchfork. He is not the ruler over hell. One day he will become the chief prisoner in hell 
+(Rev. 20:10).
+
+The Bible is filled with truth about Satan and demon spirits. Jesus said, “Ye shall know the truth, and the truth will make you free” 
+(John 8:32). If we expect to be free we must know the truth about the devil. The Bible is the basis for our beliefs.
+
+When Jesus spoke about demons He was not, as some contend, accommodating Himself to the opinion of men or the culture of the day. The Word of God is true. Demons exist.
+
+07uEVovqRK_lfWXW2zTKCA227
+
+Obstacle 3:
+
+Demons are Real, But Too Powerful for Us to Confront
+
+THE TRUTH…
+
+We must not think that the devil is void of power and weapons, yet we must not think of him as having unlimited access into our lives.
+
+The devil can do no more than he is allowed to do. He must work through accusation, deception and temptation.
+
+Jesus defeated Satan through the cross and the resurrection. We are seated with Christ and have power over the devil (Eph. 1:18-2:7).
+
+As believers in Christ, we have complete power over the devil and his demons. We can tread upon them and they are powerless to retaliate (Luke 9:1; 10:19).
+
+07uEVovqRK_lfWXW2zTKCA239
+
+Obstacle 4:
+
+Deliverance is Valid; However, it Should be Left to the Experts
+
+THE TRUTH…
+
+Who exactly is an expert? We agree that a Christian should have knowledge of demons and deliverance. If one thinks deliverance is for experts then he should become one! Jesus expects all believers to cast out demons (Matt. 12:30).
+
+Christ’s commission is given to the Church. Mark 16:17 says that those who believe shall cast out demons. Deliverance is a part of the Gospel of salvation that is for the whole man ­— spirit, soul and body. Casting out demons is a simple, basic sign that should accompany the ministry of witnessing believers (Mark 16:15,17).
+
+07uEVovqRK_lfWXW2zTKCA249
+
+Obstacle 5:
+
+Christians Cannot Have Demons
+
+THE TRUTH…
+
+In the Bible no distinction is made between believers and unbelievers having demons. The reason: both alike can have demons.
+
+Deliverance is called “the children’s bread” (Matt. 15:21-28; Mark 7:24-30), which means it is for God’s own sons and daughters; purchased by the blood of Jesus. Therefore, a distinction is made as to who is qualified for deliverance. It is for God’s children – for believers.
+
+When demons are cast out of a person, the “house” must be filled (Matt. 12:43-45). How could an unbeliever fill his house? He is void of spiritual resources. Therefore deliverance is only meant to be ministered to the Christian.
+
+The Christian is a temple of the Holy Spirit (1 Cor. 6:19). Believers in the New Covenant are likened to the Temple under the Old Covenant. A quick look at the Temple in Jerusalem unlocks the rich meaning behind this metaphor…
+
+There were three areas to the Temple, and there are three areas in us. Body, soul and spirit are parallel to the Outer Court, the Holy Place and the Holy of Holies. When the Temple was dedicated, God’s presence indwelled the Holy of Holies. When we are saved, our spirit is quickened and indwelled by God. Thus Jesus sets up His throne in our spirit – our personal Holy of Holies.
+
+And yet, even though God’s presence filled the Holy of Holies in the Old Testament, Jesus still had to cleanse the temple during His earthly ministry. He “cast out” all that defiled it.
+
+However, note that only the outer court needed cleansing. It had become a “den of thieves” (Matt. 21:13). God’s presence was still undisturbed and reigning in His Temple — in the Holy of Holies.
+
+According to Matt. 8:16–17, deliverance and healing are provisions of Christ’s atoning blood. This means they were part of what Jesus was accomplishing on the cross, the same cross where we also receive our eternal salvation. The benefits of the cross are for those who accept the work of the cross.
+
+When evening came, many who were demon-possessed were brought to him, and he drove out the spirits with a word and healed all the sick. This was to fulfill what was spoken through the prophet Isaiah:
+
+“He took up our infirmities and bore our diseases.”
+
+Matt. 8:16–17
+
+Likewise, if it were impossible for a Christian to have a demon, then neither could he become sick, for both healing and deliverance are benefits of the cross (Matt. 8:16–17).
+
+Logic tells us that it is better to acknowledge that you have a demon (if you do), and cast it out rather than deny you have a demon and keep it. Whatever torments you is most likely rooted in some form of demonic bondage.
+
+We also learn in 2 Cor. 10:3-5, a verse addressed to Christians, that we can have “strongholds” in our minds. These are the devil’s strongholds. The remedy requires spiritual weapons to pull down the devil’s strongholds.
+
+Also in Second Corinthians is a warning to Christians that it is possible to “receive another spirit” other than the Holy Spirit 
+(2 Cor. 11:4).
+
+07uEVovqRK_lfWXW2zTKCA278
+
+Obstacle 6:
+
+Demons Have no Activity in Civilized Countries
+
+THE TRUTH…
+
+This obstacle lies in the belief that demons are active only in remote countries where witchcraft and idolatry prevail.
+
+It is true that demonic activity is intense in countries where witchcraft and idolatry prevail. However, witchcraft and the occult have made great inroads into all civilized countries.
+
+There are many possible ways to expose oneself to demons other than through witchcraft and the occult. This is one of Satan’s deceptions: as long as one thinks he is too intelligent or cultured to be demonized, he is blind to how demons gain entrance and how they function. There are demons in every culture.
+
+07uEVovqRK_lfWXW2zTKCA289
+
+Obstacle 7:
+
+Demons Will Come Back Seven Times Worse
+
+THE TRUTH…
+
+The Bible does not teach that demons WILL come back in greater numbers and force, but that it is POSSIBLE for them to do so. It is true that we need to be wise as to whom we minister deliverance. How would a lost man have anything with which to fill his “house?” Therefore, based on this scripture (Matt. 12:43–45), deliverance is only for the believer in Jesus Christ and he or she has nothing to fear.
+
+Furthermore, as mentioned, deliverance is “the children’s bread” (Matt. 15:21–28; Mark 7:24–30). We should not fear partaking of deliverance-bread any more than we would in eating physical bread. Each are good for us!
+
+07uEVovqRK_lfWXW2zTKCA299
+
+Obstacle 8:
+
+Deliverance Must Never be Done in Public
+
+THE TRUTH…
+
+Jesus consistently cast out evil spirits in public. There is no clear reference to private deliverance in His ministry. So, the scriptural pattern actually favors public ministry. We have witnessed miracles and breakthroughs in both public and in private. Both types of ministry are valid.
+
+Furthermore, fear makes some people seek private deliverance. They have fear of demon manifestations, offending others, exposure of their private life and things getting out of control in general. The minister, likewise, may fear possible failure (nothing will happen), or fear his own exposure (something in himself brought to light).
+
+07uEVovqRK_lfWXW2zTKCA309
+
+Obstacle 9:
+
+Deliverance is Just a Matter of Faith
+
+THE TRUTH…
+
+By this some mean that if they have enough faith then God will automatically take care of all demons. But, God has given us authority and responsibility to deal with demons directly (Matt. 10:1; Luke 9:1; Mark 16:17).
+
+It is true that faith is important to deliverance, for we must believe that when we speak to a demon it must obey. Demons know when we do not have faith and take advantage of it (Acts 19:13-17).
+
+The disciples were unable to cast out a certain demon because of their unbelief. This implies that they were not to believe that the demon would just “go away,” but that they could – and should – cast it out.
+
+It is also the case, according to Jesus, that fasting and prayer builds faith to cast out demons (Matt. 17:14-21).
+
+“Faith, if it has no works, is dead” (Jas. 2:17). What is the meaning of this verse? The one who has active faith will be active in the world around him. Hence, he will be speaking to the “mountains” in his way. Demonization should be considered a “mountain” to be removed by speaking in faith (Mark 11:22–23).
+
+Passive faith is contrary to Scripture’s command that we engage in warfare and “wrestle” against principalities and powers, “resist” the devil and “cast out” demons (Eph. 6:12, Jas. 4:7, Matt. 10:1).
+
+07uEVovqRK_lfWXW2zTKCA323
+
+Obstacle 10:
+
+Deliverance Must be With (or Without) Manifestations
+
+THE TRUTH…
+
+There were manifestations when Jesus ministered deliverance. For example, a young man was thrown to the ground as though having a seizure; a demon spoke through a man in the synagogue; and spirits cried in loud voices (Lk. 9:39; Mk. 1:26; 9:20,26). Therefore, we should not expect all manifestations to be eliminated.
+
+However, there are often unnecessary manifestations. Demons will manifest when given the opportunity. They are prideful beings, and they enjoy attention. In spiritism, for instance, demons manifest because they are given permission, and manifestations are sought. The same will occur in deliverance when demon manifestations are courted. The goal of deliverance is not to get demons to manifest but to cast them out!
+
+Manifestations are not the criteria for judging the validity of deliverance. Peace and freedom from bondage are the earmarks of successful deliverance. Manifestations should not be sought or required.
+
+07uEVovqRK_lfWXW2zTKCA334
+
+Obstacle 11:
+
+Demonology and Deliverance Glorify the Devil, We Should Keep our Minds on Jesus
+
+THE TRUTH…
+
+This sounds good, but it is false reasoning. The Bible does not teach us to ignore the devil but to confront, resist, wrestle, stand against and cast him out (Eph. 6:12).
+
+Jesus is glorified when we are engaged in spiritual warfare because we are exalting His Name, His precious blood and His Word. We often battle with praise and worship. We also battle through fasting and prayer. Most of all, we battle through the ministry of deliverance. Satan gets no glory through being defeated. All the glory goes to the One who is stronger than the devil, and the devil is humiliated when his house is spoiled.
+
+07uEVovqRK_lfWXW2zTKCA344
+
+Obstacle 12:
+
+Those Who Get Involved in Deliverance Suffer Personal Attacks from the Devil
+
+THE TRUTH…
+
+This error has actually been promoted by a few ministers of deliverance. Sometimes ministers wrestle against flesh and blood and get wounded. As is always the case, wisdom and discernment are needed when battling the enemy. Thankfully, this why we have the Holy Spirit.
+
+To say that demons can retaliate is contrary to Luke 10:19. We can tread upon serpents and scorpions, and they can in no way harm us.
+
+This obstacle has a way of becoming a self-fulfilling prophecy. If the deliverance minister is fearful or doubts his own authority it will give demons grounds to attack him. Fear is to be soundly defeated on all grounds.
+
+We are equipped with “the whole armor of God” (Eph. 6:11). If one is wounded in spiritual battle he should check his armor to be sure it is all in place.
+
+07uEVovqRK_lfWXW2zTKCA356
+
+Obstacle 13:
+
+Jesus Did it All For Us — We Don’t Need to Fight
+
+THE TRUTH…
+
+The devil would like for us to adopt this position. It would mean that he could work against us without challenge.
+
+We very much agree that a person can become too demon-conscious. We are to be Jesus-conscious, and rejoice because our names are written in heaven (Luke 10:20).
+
+There is widespread misunderstanding as to what is meant by Jesus defeating the devil. Jesus did not destroy the devil; he destroyed the “works” of the devil (1 John 3:8). The devil has not yet been chained and put into the bottomless pit. He is still “roaming about” 
+(1 Pet. 5:8). He remains the “god of this world” (2 Cor 4:4), where he rules as “the prince of the power of the air” (Eph. 2:2). The Church has been commissioned to destroy him in his “gates” (Matt 16:18).
+
+Conclusion
+
+There was once a man in the synagogue who had a demon. When Jesus cast the demon out, it caused much questioning among the people. They asked, “What is this? What new doctrine is this?” (Mark 1:27).
+
+Today, these same questions, and others, come up when deliverance is taught or witnessed. Jesus patiently answered the inquiries of those who were sincere, but He did not allow Himself to be pulled into debate by those who were obstinate and unteachable.
+
+The teaching given here is with the prayer and hope that any whose unsettled questions have prevented his involvement in deliverance will now be able to go forth in obedience to the Lord. God has not called us to debate deliverance but to do it! For …
+
+“These signs shall follow them that believe; In my name shall they cast out demons…”
+
+Mark 16:17
