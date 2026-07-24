@@ -4,6 +4,12 @@ Execution layer under `COLLECTION-ROADMAP.md`. This file is what the capture age
 
 ## Operating policy
 
+- **Quoting policy (fair use) — owned-copyright is quotable, briefly.** Public-domain **and**
+  `owned-copyright` texts may be **quoted short and cited** in the briefs/manuscript under U.S. fair use:
+  a sentence or two (at most a short paragraph), for commentary, with a `path:line` citation, not the
+  "heart" of a short work. **Do not tag owned-copyright works as un-quotable** — quote them short,
+  paraphrase anything longer; reserve PD sources for long or central quotations. Working convention, not
+  legal advice; the published manuscript gets an IP review. See `CLAUDE.md` for the full statement.
 - **Text-first. Skip image-only scans.** Capture clean transcriptions (Gutenberg, CCEL,
   Wikisource, Standard Ebooks, New Advent). Do NOT capture image-only PDFs expecting to OCR
   them for quotation. The existing Greek scans (Philokalia 1782, Climacus PG 88) stay as

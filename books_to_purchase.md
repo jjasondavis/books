@@ -6,6 +6,12 @@ DRM / ACSM) is encrypted and locked to Adobe Digital Editions — I *cannot* ope
 so buying it helps only your own personal reading, not the vault or the research briefs. Titles below
 are flagged where DRM status is known; verify per-page, since publishers change formats.
 
+**Fair-use note:** owned-copyright texts already in the vault can be **quoted briefly and cited** in the
+briefs/manuscript (see `CLAUDE.md` quoting policy), so "buy it to be able to quote it" is rarely the
+reason to purchase. Buy for: (a) content **not in the vault at all** (e.g. Cassian Conf. 12 & 22 in
+English), (b) a genuinely **public-domain** text when you expect to quote at length, or (c) a clean
+non-OCR reading copy. Short cited quotation does **not** require buying a second copy.
+
 ---
 
 ## Tier 1 — closes the biggest gaps the briefs named
@@ -37,15 +43,17 @@ are flagged where DRM status is known; verify per-page, since publishers change 
    Conferences **XII (On Chastity)** and **XXII (On Nocturnal Illusions)** in English. *Confirmed
    2026-07-24:* the public-domain Gibson/NPNF translation prints "Not translated" / "This Conference is
    omitted" for these two, so **no PD English exists** — the vault now holds only the Latin
-   (`collatio-12-latin.md`, `collatio-22-latin.md`). Buy DRM-Free if possible (your Kindle Topaz copy is
+   (`collatio-12-latin.md`, `collatio-22-latin.md`). This is a genuine buy: the English simply isn't in
+   the vault at all. Once owned, short fair-use quotes from it are fine in the briefs; a full-conference
+   reproduction would need permission or the Latin. Buy DRM-Free if possible (your Kindle Topaz copy is
    DRM-locked and unreadable by current tools).
 7. **~ PARTLY CLOSED — John Climacus, *The Ladder of Divine Ascent*** — a complete **English** *Ladder*
    (Nun Christina translation, 2024) is now in the vault at
    `patristics/john-climacus/reading/ladder-of-divine-ascent-english.md` (all 30 steps, incl. Step 13
-   "On Acedia"). It is **owned-copyright**, so it closes the *reading/search* gap but is not
-   PD-quotable. A **public-domain** *Ladder* (e.g. an older Lazarus Moore / pre-1930 translation) is
-   still worth acquiring if the book needs to quote it freely; the Luibheid/Russell edition remains a
-   clean paid option.
+   "On Acedia"). It is **owned-copyright**, but under the fair-use policy it is **quotable
+   short-and-cited** in the briefs, so it covers most needs. Only acquire a **public-domain** *Ladder*
+   (older Lazarus Moore / pre-1930 translation) if you expect to quote it **at length**; the
+   Luibheid/Russell edition remains a clean paid option for reading.
 8. **The Sayings of the Desert Fathers (trans. Benedicta Ward)** — the standard English *apophthegmata*
    (vault has only Budge's 1907 OCR).
 9. **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** — the *vainglory* brief's flagged
