@@ -108,3 +108,18 @@ OCR) — the medicalization endpoint (vice → diagnosis).
     "Automatic thoughts" + trained answering = the direct clinical analogue to desert *antirrhesis*.
 22. **David D. Burns, *Feeling Good: The New Mood Therapy*** — the popular CBT primary (the "thought
     record" drill in plain form); *optional* now that Beck is in — buy only if you want the popular voice.
+
+## Tier 6 — "thoughts: from spirits, or from a broken brain?" (the demons→disorders capstone)
+
+For the proposed capstone brief (modern rejection of thoughts-from-spirits → the "broken person"
+fixed by pills/CBT, not Scripture). The vault covers the medical pole (DSM-5, Beck) and the demonic
+pole (spiritual-warfare brief + deliverance cluster); the missing piece is the explicit
+"Scripture-not-psychology" thesis voice and its secular critic (verify DRM-Free):
+
+23. **★ Jay E. Adams, *Competent to Counsel*** (and **David Powlison**, e.g. *Seeing with New Eyes* /
+    *The Biblical Counseling Movement*) — the founding "nouthetic"/biblical-counseling argument that the
+    person's problem is moral-spiritual and the cure is Scripture, not the medical/psychological model.
+    This is the exact thesis the vault currently lacks a primary voice for.
+24. **Thomas Szasz, *The Myth of Mental Illness*** — the secular anti-psychiatry classic arguing the
+    medical model is a category error; a powerful *non-religious* ally for the "medicalization overreached"
+    half of the argument.
