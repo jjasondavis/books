@@ -135,6 +135,34 @@ temptation-to-remedy pairs. That book exists in the Puritan corpus (Thomas Brook
 Remedies Against Satan's Devices* is exactly this, device by device) but is **not currently in the
 vault** — see Gaps.
 
+**— Update 2026-07-24 —** Brooks is now in the vault, and he is the piece that actually completes
+this section: **Thomas Brooks**, *Precious Remedies Against Satan's Devices* (1652, Grosart
+*Complete Works* vol. I text; public-domain OCR — quotes below verified verbatim against the file),
+is structured, start to finish, as Satan's "devices" each answered by a set of numbered "remedies" —
+the identical catch-the-specific-move-then-counter-it unit Evagrius runs, systematized into a
+teaching manual for Protestant lay readers. Brooks names the device first, in the same bare,
+nameable-move register as Evagrius's "against the thought that says...":
+> "His first device to draw the soul to sin is, Device (1). To 'present the bait and hide the hook;
+> to present the golden cup, and hide the poison; to present the sweet, the pleasure, and the profit
+> that may flow in upon the soul by yielding to sin, and by hiding from the soul the wrath and
+> misery that will certainly follow the committing of sin.'"
+> (`tradition/thomas-brooks/reading/precious-remedies-against-satans-devices.md:608-613`)
+
+He then answers it with the first of several enumerated, one-at-a-time remedies — the same
+numbered-countermove form that structures the whole book:
+> "Remedy (1). First, Keep at the greatest distance from sin, and from playing with the golden bait
+> that Satan holds forth to catch you; for this you have Rom. xii. 9, 'Abhor that which is evil,
+> cleave to that which is good.'"
+> (`precious-remedies-against-satans-devices.md:655-658`)
+
+The structural parallel is exact, not merely thematic: Evagrius answers *thought→Scripture*; Brooks
+answers *device→remedy* — both name the specific move first, then fire a specific (often
+Scripture-anchored) countermove at it, then move on to the next entry, entry after entry, for the
+length of the book. Brooks, not Owen or Gurnall, is the true Puritan analogue to the
+*Antirrhetikos*'s catalogue form, and he becomes the centerpiece of this section; Owen's watch and
+Gurnall's worked example remain valuable for the two halves of the drill each supplies, but Brooks
+alone supplies what neither of them does — the systematic, device-by-device catalogue itself.
+
 ### 4. Modern popular-Christian revival — the method rediscovered under its own name
 Two recent owned-copyright books show the antirrhetic method being independently rediscovered and
 explicitly re-branded for a contemporary evangelical audience — still fully theological, not yet
@@ -203,6 +231,33 @@ can itself become another restless activity of the "mind-leg," not a resolution 
 genuinely useful complication for ChainBreaker's argument, not just a confirming witness: it shows
 the tradition's own diagnostic tools (acedia as restlessness) can be turned on the modern technique
 that claims to have replaced them.
+
+**— Update 2026-07-24 —** The clinical primary source is now in the vault, and it upgrades this leg
+from popularization to origin. **Aaron T. Beck**, *Cognitive Therapy and the Emotional Disorders*
+(1976, owned-copyright — quoted a sentence or two at a time), is where "self-talk" (as EI 2.0 later
+popularized it) actually comes from: the systematic training of a patient to catch a specific
+"automatic thought" the instant it occurs and answer it. Beck states the trained procedure as one of
+the concrete steps of therapy:
+> "training the patient in identifying negative thoughts, challenging them, and giving reasonable
+> answers to them. This technique is implemented through homework assignments."
+> (`self-improvement/cognitive-therapy-and-the-emotional-disorders/reading/cognitive-therapy-and-the-emotional-disorders.md:2211`)
+
+The homework itself is a self-monitoring drill built to Evagrius's exact grammar — one column for the
+provoking situation, one for the named thought, one for the counter-statement:
+> "The patient uses three columns to write down (a) the situation that elicited unpleasant feeling,
+> (b) the negative automatic thought, (c) the corrective response to the negative thought."
+> (`cognitive-therapy-and-the-emotional-disorders.md:2213`)
+
+This is the direct clinical analogue to desert *antirrhesis*, not merely an adjacent parallel: catch
+the specific thought the moment it surfaces, then answer it with a specific counter-statement,
+logged and repeated — Evagrius's and Brooks's unit exactly. Where it differs is precisely in the two
+blanks the drift-section already tracks: Beck's counter-word is sourced from reason and reality-
+testing rather than Scripture — the patient is trained to "regard the idea as a hypothesis or
+inference, rather than accept it as fact" (`cognitive-therapy-and-the-emotional-disorders.md:1787`) —
+and the aim is symptom relief (relief of the depressive or anxious episode), not purity of heart or
+nearness to God. *Emotional Intelligence 2.0* remains useful as the popular echo of this
+technique for a lay readership, structurally identical but two removes from the clinical source;
+Beck, not Bradberry & Greaves, should now carry the argument for this section.
 
 ### 6. The inverted descendant — New Thought affirmations (cross-reference only)
 This brief will not re-litigate the New Thought material the logos brief already documents in
@@ -291,11 +346,14 @@ inversion applied to the *heart* rather than the *word*.
   the vault at `tradition/thomas-brooks/reading/precious-remedies-against-satans-devices.md` (Grosart
   *Complete Works* vol. I, 1652 text; PD, OCR-verify). It is the structurally closest English analogue
   to the *Antirrhetikos* — Brooks lays out Satan's "devices" each paired with numbered "remedies" —
-  and **§3 (Puritan) should be enriched from it** rather than leaning on Owen/Gurnall alone.
+  and **§3 (Puritan) has now been enriched from it** (device/remedy quoted verbatim, `precious-
+  remedies-against-satans-devices.md:608-613,655-658`), with Brooks now the centerpiece of that
+  section rather than Owen/Gurnall alone.
 - ~~**No primary CBT text is in the vault**...~~ **— RESOLVED, Update 2026-07-24 —**
   **Aaron T. Beck, *Cognitive Therapy and the Emotional Disorders*** (1976), the clinical source of the
   method, is now in the vault (`self-improvement/cognitive-therapy-and-the-emotional-disorders/`,
-  owned-copyright). **§5 should be upgraded from it** — Beck's "automatic thoughts" and the patient's
+  owned-copyright). **§5 has now been upgraded from it** (`cognitive-therapy-and-the-emotional-
+  disorders.md:2211,2213`) — Beck's "automatic thoughts" and the patient's
   trained answering of them is the direct clinical analogue to *antirrhesis*; the leg no longer needs to
   rest on the *EI 2.0* popularization. (Burns's popular *Feeling Good* remains optional.)
 - **— Update 2026-07-24 — The DSM-5 is now in the vault** (`reference/dsm-5/reading/dsm-5.md`; APA
