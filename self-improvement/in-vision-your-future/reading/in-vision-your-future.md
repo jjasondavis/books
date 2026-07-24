@@ -1,0 +1,1532 @@
+<!-- Text extracted from the owner's personal-library copy (EPUB, DRM removed for personal use). -->
+Source file: IN-VISION YOUR FUTURE_ 7 Ways to Architect the Future & Unleash Potential_nodrm.epub
+Title/Edition: In-Vision Your Future: 7 Ways to Architect the Future; Niel Magsombol; 2023; owned copyright — personal use, do not distribute.
+
+c1GR
+
+c1F3
+
+ALL RIGHTS RESERVED
+
+Copyright © 2023
+
+N-VISION YOUR FURTURE
+
+7 Ways to Architect the Future & Unleash Potential
+
+By Niel Magsombol
+
+ACKNOWLEDGMENT 
+
+I would like to thank my mentor, Eric Newble, for inspiring me to write this book, and inspiring me to pursue my purpose ever since we met years ago. 
+
+I would also like to thank Mark Wingfield Du Bois for his unwavering support and guidance.
+
+And of course, I want to thank my soulmate, dream girl, and wife Angela for being my partner in life.
+
+c1F8
+
+MY SPECIAL THANKS
+
+Special thanks to my writing coach, Dr Oliver Reid and Dr. Muriel Fuqua and her team at U-Will Grow Inc for editing and helping me publish this book.
+
+c1EP
+
+Table of Contents
+
+Foreword …………Apostle Eric D. Newble, Sr
+
+Introduction
+
+Chapter 1…………...In-Vision: Inspired Vision
+
+Chapter 2……................…Opportunity Knocks,
+
+Are You Listening
+
+Chapter 3……….…... Potential is Future Tense
+
+Chapter 4…………..…Redefine The Paradigm
+
+Chapter 5………….…..…Impossible Possible:
+
+Little By Little
+
+Chapter 6……………..….…... Little By Little
+
+Doing Big Things In Life
+
+Chapter 7…………………………. The Zone
+
+References
+
+c1EZ
+
+Foreword by Eric D. Newble, Sr.
+
+It is with great anticipation and joy that I have the opportunity to write this forward, and more importantly, to have been a part of Niel Magsombol’s evolutionary journey these last 30 plus years. I affectionately pen these words with humility, respect, and true excitement of this great accomplishment: In-Vision the written and published book. 
+
+Niel embodies In-Vision, as well as the passion of helping others with their vision. When observing Niel, it is obvious to see that he has worked extremely hard to develop an Inspired DNA. This Inspired DNA is visible in every area of his life: family, husband, father, martial arts instructor, ministry leadership and Executive Coaching. 
+
+Niel’s Inspired DNA is 3-fold: self-discipline, student & teacher of knowledge, and his passion for potential achieved. Niel possesses an uncanny ability to see something in its current state, and then In-Vision the metamorphosis of it, while working side by side with it. The process of transforming individuals, teams and organizations seems to ignite an even greater contagious energy of accomplishment. I’ve watched him in action and have been a recipient of these three dynamic strengths. It’s a joy to have him on my team for so many years, and it’s been vital to the SUCCESS of my family’s personal vision as well our corporations. Our TEAMS are better because of Niel. A true asset. 
+
+Niel is a FINISHER! The countless hours of research of every chapter, and then being coached by two separate writing coaches, speaks to the value of the information contained in these pages. This is not another book of (just) motivation, but it’s an impregnated model of knowledge, experience, infused with Inspiration to change you! This is NOT a book that you read and then file, but one that will be used in Executive Boardrooms regularly. Take a deep breath. Prepare yourself to enter the vortex of In-Vision. 
+
+Inspiring People To Pursue Their Purpose, 
+
+Eric D. Newble, Sr 
+
+Senior Pastor Inspiring 
+
+Ministries International 
+
+CEO Eric Newble Ministries
+
+c1EV
+
+Introduction
+
+I am so pleased that you have chosen to engage in the reading of book. Whether you are trying to imagine a new future state for your company, you're an employee at a company and you're trying to advance your career, you have a nonprofit or you work for a nonprofit, or maybe you want to be a better parent, spouse, significant other, or your own personal growth, this book contains principles that have been researched and implemented for the last several decades in the study of human potential across numerous fields of study.
+
+This book is designed to help you IN-VISION Your Future. However, one of the biggest challenges to being able to IN-VISION Your Future is being able to see past your current state. 
+
+When my boys were younger, they were playing baseball, and every time they came up to bat, I would go behind the batting cage and video them. I would send it to their grandparents and other relatives who may not have been able to be there. I would also post it on Facebook and keep it for posterity’s sake. During one of these games, one of the boys, Princeton, got a solid hit, and of course I would shout out “Great job!  Good hit, woo hoo!” at the top of my lungs (Yes, I am that guy at kids sporting events). Then Ethan came up to bat. He was not quite as athletically gifted as Princeton, but this time he really hit the ball hard and far. And just before I could shout out like I normally do; I became all choked up and nearly broke out into tears. I was really embarrassed. I couldn’t break out crying in front of all the other parents. After all, according to Tom Hanks, there’s no crying in baseball.  So, I took a deep breath, and it was all I could do to meekly muster “Good job son…” as my voice cracked about three octaves higher than usual.  I couldn’t understand why I got so emotional over a little league game. After some reflection, I remembered my first year playing baseball. I had practiced in my backyard for weeks before the season, read books, and watched VHS instructional videos (Yes, I am that old) on baseball. And I remember having so many butterflies when I came up to bat. The pitcher threw the pitch, but I swung and missed. The next pitch, the same thing happened. I stepped out of the box and took a deep breath like I saw major leaguers do on TV. I came back in, tapped the bat on home plate, and stared at that pitcher, like I was about to rip the cover off that ball. He threw the pitch, and with a mighty swing, I hit nothing but air. “Strike three, you’re out!” the umpire screamed! The next at bat, I struck out again and again, and again. I struck out almost the entire season. 
+
+I had similar negative experiences in football, track, and seemingly anything I did. Subsequently, it was not just sports, but academics were just as bad.  My penmanship was horrible. I remember my 4th grade teacher holding my hand and trying to help me write better, and it still looked like I was writing in a strange ancient language. It was so bad that I was the only one in the school the teachers told to stop writing in cursive and only print. And of course, all the kids made fun of me for how bad my writing was.  I grew up in an Asian American family that stressed academics and achievements. One of my aunts is a doctor, her husband is a lawyer, and their children were lawyers, doctors, a VP of Toyota, a professor in college, and all did very well in school. So, you can imagine what it was like when in 7th grade I brought home a D in algebra. My father was furious and my mother in tears. And that wasn’t the worst part. We had so many aunts, uncles, and cousins, growing up that I literally thought the whole nation of the Philippines was part of our family. And somehow, before the age of social media and things went viral, my family had a lightning-fast system of sharing the latest news and gossip. Therefore, in a very short time everyone knew I received a D.  It literally felt like I had greatly shamed my entire family, which made family gatherings extremely difficult. My aunts and uncles would look at me with such disappointment and say, “Niel, I heard you’re doing so bad in school.” Failure seemed to dominate all the white space upon the canvas that was my life, and by age 13, I thought I was destined for failure.
+
+It was so difficult to see myself succeeding at anything.  Every time I would try to do something, I was filled with fear, anxiety, and flashbacks of failing at everything.  There was a burning desire inside to try to accomplish something, or not be a failure, yet these thoughts and emotions would swoop in and flood my being and paralyze me. I would ultimately end up failing and consumed with ensuing depression. It was a vicious cycle of self-fulfilling prophecy. 
+
+I have helped numerous organizations undergo transformations: mainly in the digital space. Not only does technology change, but also the culture must change to realize the benefits of the transformation. There is always a corresponding need to adopt a more agile mindset in their business practices to meet rapidly changing market demands. The most difficult hurdle for people within these organizations is to be able to see past their current state of canvas that is typically filled with unnecessarily complex bureaucratic ways of doing business that impede ability to deliver value to the customer. They have been mired in these ways for so long that it is hard for them to imagine another way. Though these processes may be suboptimal, they are familiar and give them a sense of comfort and control. 
+
+Whether it’s an individual desiring personal growth, our human nature is to focus on the difficulty of the change, rather than the benefit of the change. W. Edwards Deming, who was very influential to Post World War II Japan’s economic boom, once said, “It is not necessary to change. Survival is not mandatory.” The Harvard Business Review states, “Research shows that since 2000, 52 percent of companies in the Fortune 500 have either gone bankrupt, been acquired, or ceased to exist as a result of digital disruption.” To overcome this, we must paint a picture of the future that is so compelling, that it inspires people to want to change, even when difficulty hits and it would be easy to revert to prior ways of operation.  We need an Inspired Vision. Hence, we need to “IN-VISION Our Future.”
+
+c0
+
+Chapter 1
+
+IN-VISION: Inspired Vision
+
+Years ago, I was working in a small non-for-profit, making $6.49 an hour. Don’t laugh. It was a step up from the $5.35 I was making working in a factory, gluing vacuum bags. It was a great use of my college education. I found an empty area where I could do my menial paperwork. While I was writing my seemingly insignificant reports (that I always wondered who would read), I would drift off into daydreams. But this time was different: suddenly, I started to see something so clearly and compelling: It was as if the area that I was in was completely transformed into a beautiful new modern office, and I saw myself looking out of the window at the top floor of this very tall building.  It was like an out of body experience where I could see a version of myself across the way in this office, and I was wearing a very nice suit, looking at what appeared to be very important documents. I put the documents down, as I peered out the window, smiling. I picked up the phone and started talking about closing a major business deal.  Then the scene switched: I saw myself on stage speaking to thousands of people, motivating, and inspiring them. It felt so real. It felt like I was transported into the future, and I could see and feel myself being this businessman. It was as if I was speaking to audiences across the globe.  And then it hit me:  I said, “I'm going to be a businessman and I am going to be a motivational speaker to the nations!”
+
+Ironically, I did not get a business degree, or ever thought I would go into the business world. As a matter of fact, the only business class I ever took was an 8:00AM economics class in college, and I think I slept through half of the class. I did pass the class however, with a very solid C-, and that was based on an extremely generous curve. I went to college to walk on the football team (more on that later) and eventually coach football. After graduation I could not find a teaching/coaching job, so I took a job as a counselor at this nonprofit social work agency, after a short stint gluing vacuum bags. There was nothing in me that had any desire to get into the business world. I thought I was destined to be poor my whole life. And then I had this vision: and it changed everything. It guided my life over the course of several years, and it inspired me to eventually build a consulting business where I now work with multi-billion-dollar organizations as a transformation architect helping them transform to more modern ways of operating.
+
+King Solomon once said, “Where there is no vision, the people perish” (Holy Bible: King James Version). Vision can be an incredibly powerful guiding force. It provides us a glimpse into our future that inspires us to pursue it.  Along the way, we can discover who we were really meant to be. I have dedicated my life to helping people discover the vision for their lives and help them achieve it. That’s why: “My Vision Is To Help You Fulfill Yours.” My desire for this book is that everyone who reads it will discover the vision for their lives and begin to work towards it.
+
+Vision can be defined as:
+
+1.      A thought, concept, or object formed by the imagination.
+
+2.      Unusual discernment or foresight
+
+3.      An experience in which a personage, thing, or event appears vividly or credibly to the mind, although not actually present, often under the influence of a divine or other agency
+
+4.      The ability to think about or plan the future with imagination or wisdom.
+
+Having a vision can change the trajectory of our lives forever. Canfield asserted that he had used vision boards in one form or another since the 1970’s. He recalled the following: My first “vision board” was a $100,000 bill that I made myself. I taped it to the ceiling above my bed so that I would see it every day when I woke up. I set the goal for myself that I wanted to make $100,000 in one year. At that point, I was making $8,000 a year so this was more than 12 times my annual income. Every morning when I woke up, I would visualize that. I would close my eyes and visualize my $100,000 lifestyle.
+
+●       What would it be like?
+
+●       Where would I live?
+
+●       What Navajo rugs were I going to buy and put on my walls?
+
+●       What little lake house would I have?
+
+●       What car would I own?
+
+●       And everything else I could think of…
+
+Guess what happened? Within about 30 days, I started having hundred-thousand-dollar ideas for the first time in my life. Within a year I had earned $92,000. It was an amazing breakthrough!
+
+At the end of that year, my wife asked me, “Do you think it’ll work for a million dollars?”
+
+I said, “I don’t know, it worked for $100,000. So, let’s do it.”
+
+We made a million-dollar bill and put that on the ceiling. Within a few years, I received my first $1,000,000 check for a book royalty for the first Chicken Soup for The Soul (Canfield).
+
+However, it is difficult to paint the picture of the future upon the canvas of today. Quite simply, our current state canvas is a collection of thoughts, beliefs, and experiences to date. But it does not necessarily dictate our future state.  However, it can contain clues, but you must know what to look for, because those clues are not always apparent and can give us glimpses into potential. Too often human nature wants to write off people without truly understanding the dormant abilities that may lie beneath the surface.
+
+To illustrate this let’s look at a young boy who grew up in the UK. He had quite a critical eye, and at the age of 5, when noticing his mother wearing a white fuzzy pillbox hat, he said “Mum, you look like a poodle.”  He was described as “a determined and often difficult child.”
+
+In the words of this now, adult man, "I was so obnoxious and so badly behaved [growing up. I suppose the naughtiest thing I did when I was about 12," he explained. "We had these pea guns, and I was living in England in a place called Radlett and I wanted to go to Watford, which was ten miles away. So, I got on this bus — and as a joke, it was a joke, I put the gun to the driver's head and I said 'take me to Watford.' And I remember thinking 'God, he's really playing the part here because we're not stopping." Eek! 
+
+“When the bus arrived, police were there waiting, and Cowell and his accomplice were apprehended at the scene. "We were thrown into these cells and eventually this policeman came in and said, 'where did you get the guns?' And I said, 'A toy shop, they're pea guns.' He added. "My mum and dad came in and my mum was actually worse than the police...She was furious with me" (Gralia).
+
+By age 16 he had dropped out of high school. His mother filled out an application and got him a job in the mailroom of a music company. But he soon became frustrated at not being able to get promoted. Promotion was quite difficult for someone without a high school degree. However, he fell in love with the music industry and started his own music company. Unfortunately, he nearly went bankrupt a few years later, and ended up living in his parents’ basement.  He eventually landed a job as an Artist & Repertoire (A & R) Consultant. He then later worked with a group of individuals to produce a show called “Pop Idol” where he served as a judge to find the next music star. His brutally honest and snarky attitude caught the eye of Fox, and he starred on a show called “American Idol.”  He later created shows such as X Factor and America’s Got Talent, and many other shows. His name is Simon Cowell, and his net worth in 2018 was estimated to be approximately $486 million USD. In 2004 & 2010, TIME named him one of the 100 most influential people in the world, and in 2018 he received a star on the Hollywood Walk of Fame.  He went on to say: “I really feel bad for people who are like myself who were told if you don’t achieve this by the age of 16, 18, 21 your life is going to be a failure.”  Simon Cowell revealed how he wanted his son to work for him in just five years’ time (Devon Live).
+
+If we looked at a couple facts of his early life it would look like this:
+
+●       Was very mouthy at a young age.
+
+●       Constantly in trouble in school and arrested at 12.
+
+●       High school dropout at age 16
+
+●       Started minimum wage; couldn’t move up in the company.
+
+●       Went bankrupt and ended up living in parent’s basement.
+
+These would not seem to indicate great success in the future.  That’s why it is very dangerous to assume our current state canvas can predict our future state.  No one can judge what is on the inside of you. Oftentimes our potential is hidden to the outside world, waiting to be revealed. Wherever we are in life, we can change it for the better. “Every single negative can lead to a positive. In any negative situation, don’t get too down about it – you’ll work it out. You learn it as you go along. You don’t get smart at 17. You just don’t unless you’re one of a billion. It will happen over time and it’s the getting there that will be the most fun. My dad said to me, ‘Work hard and be patient.’ It was the best advice he ever gave me. You must put the hours in” (Cowell).
+
+Inside every one of us are dormant talents and abilities that we may not recognize. Years ago, when I was barely making above minimum wage, I had a vision that felt so real, yet was so completely contradictory to my current state at the time. I really wrestled with it and quite honestly tried to dismiss it. “Me, a successful businessman. Hah!  Yeah right…”  The purpose of vision is to get a glimpse of what we can be, to open possibilities.  Therefore, vision is beyond us, and by pursuing it, it becomes clearer as we move towards it, and causes us to grow and develop in ways we never thought imaginable.
+
+I did not realize it at the time, but when I had my vision, I was tapping into the Reticular Activating System. David Allen, in his book Getting Things Done, wrote: “When you focus on something, that focus instantly creates ideas and thought patterns you wouldn't have had otherwise. The reticular formation is basically the gateway to your conscious awareness; It’s the switch that turns on your perception of ideas and data (Allen).
+
+“Once you give it a definite goal to achieve, you can depend upon its automatic guidance system to take you to that goal much better than ‘you’ ever could by conscious thought. “You” supply the goal by thinking in terms of end results. Your automatic mechanism then supplies the means whereby” (Maltz).
+
+Something automatic and extraordinary happens in your mind when you create and focus on a clear picture of what you want.
+
+To give you a simple example of how the RAS works, years ago I wanted to buy a car, and saw a specific color that I really liked, called flame blue.  I had never seen it before, until I started researching new cars. When I would drive around, I began to see cars on the road with that exact color! I saw that color on cars while driving on the highway, side streets, and in parking lots. It was as if I had a vision for this car and suddenly, these other cars started magically appearing. This is what happened. My reticular activating system was initiated to this color, and now I started becoming aware of cars with that color, and eventually got one myself.
+
+We can utilize this for so much more than getting a car. We need to utilize our inherent visualization abilities to create an awareness of an incredible future state that maximizes our potential, not only for ourselves as individuals, but for our families, our communities, businesses, cities, and nations.  It all starts with having a vision. This ability to visualize is encoded into our DNA to where a strong enough vision can affect us physiologically. When there is a strong enough image in your mind, your body can't tell the difference between when you're imagining something and when you're doing it. 
+
+Sports psychologist Judd Biasiotto wrote: Simply put, the brain and/or nervous system cannot distinguish between an experience that is real and one that is imagined. It only follows then, that an imaginary experience is as much a conditioner of attitudes, habits, and responses as a real experience. Consequently, if an individual closes his eyes and vividly visualizes himself performing a particular behavior, his brain will process that information in the exact same manner as if he had performed that behavior in real life (Biasotto).
+
+Sherman Smith, a researcher at the University of Texas discovered that not only will mental imagery condition our mind, but it will also condition our body. What Smith found was that when the brain conceives of an idea, it generates impulses throughout the body that facilitate neurons to perform the idea being conceived. For example, Smith showed that when weightlifters visualized themselves performing a lift, the imagery resulted in subliminal activity in the muscles associated with the imagined performance.
+
+Dr. Biasiotto details how he used visualization to become a world class powerlifter and eventually lift 600 lbs. in the squat, setting a new world record despite weighing only 132 lbs., at age 44, after back surgery.
+
+Natan Sharansky was a computer specialist who spent nearly a decade in a prison in the USSR after being accused of spying. While he was put in solitary confinement, he played mental chess, and he said, “I might as well use this opportunity to become the world champion.” He had become so proficient using his imagination to play a game of chess that later in his life, he beat a world champion! (Sharansky)
+
+Michael Jordan once said that the game came easy to him because he played the game in his mind. He played every situation that could possibly happen, numerous times, over and over. And when it was time to step on the court, he was automatically responded to what he programmed himself to do. 
+
+There was also a young boy who grew up poor and abused by his father who was dealing with PTSD from World War II. He visualized himself winning bodybuilding championships and making movies.  When he lifted weights, he would visualize his biceps as mountains. He then visualized himself becoming a millionaire and becoming a politician. His name was Arnold Schwarzenegger.
+
+A January 2011 Forbes Article by Carmine Gallo exemplifies the power of vision: A young software developer, back when computers were first becoming more and more popular, went to one of the more prominent tech companies at the time for an interview and he asked them “What is your vision for the personal computer?’ and they responded, “We think it could be the next big thing on everyone's wish list for the holiday season. That company was Radio Shack. And after years of struggling, they finally filed bankruptcy in 2015. This young man went to another tech giant, and he asked the same question, "what is your vision for the personal computer?" And they emphatically said, “We think it could help our stock rise above $2 a share!”
+
+That company was Commodore, makers of the Commodore 64. Believe it or not, the Commodore 64 was once one of the world's best-selling computers. And they were at the forefront of the home computer industry. They eventually declared bankruptcy in 1994. Discouraged, this young developer met a CEO from a new upstart company, and he asked him the same question -- what is your vision for the personal computer? For the next hour, this man talked about how personal computers were going to change the world. He painted a picture of how it would change everything about the way we worked, educated our children, and entertained ourselves.  And that young CEO summed up his vision in a very rare, obscure video and said, “We're building tools that amplify human ability.”  That young CEO was Steve Jobs (Gallo).
+
+The power of visualization is not limited to an elite group of people operating in ideal circumstances. It is an inherent ability available to all of us. I had studied visualization for athletics for years, but I really began to apply it in a professional context.  In order to supplement the $6.49/hr. income I was making years ago, I got a second job as an engineer, a custodial engineer to be exact.  You can imagine how my parents felt as their son with a college degree was a janitor at a gym in addition to his other minimum wage job. While I was on my hands and knees wiping the floor that was filled with sweat stains, I looked upstairs at the Personal Training Director’s office, and I began to visualize myself being a personal trainer, and not just a personal trainer, but the Personal Training Director.
+
+This was a huge gym, and The PT Director was second in charge of the whole facility.  I began to research exercise science, and began to get in better shape, and earned numerous certifications, including the top one in the field, Certified Strength & Conditioning Specialist. I eventually was able to move from janitor to personal trainer.  To build my clientele, I not only had to know exercise science, but I also had to learn the business side.  Fortunately for me, the General Manager of the gym, Steve Nohns appreciated my work ethic and took me under his wing and taught me the business side of the fitness industry. I ended up being the #1 trainer at the #1 Gold’s Gym in the world.  I was eventually promoted to Director, not only at that facility, but over several facilities. I was in several newspapers and featured in numerous commercials.
+
+When you have a strong compelling vision, it will inspire you. Then it will become IN-VISION, or Inspire Vision. Inspiration is a key component that helps birth the vision in our souls and continually energizes us to fulfill that vision.  Inspiration can be defined as:
+
+1.      The process of being mentally stimulated to do or feel something, especially to do something creative.
+
+2.      A force or influence that inspires someone.
+
+3.      A sudden brilliant, creative, or timely idea.
+
+The Harvard Business Review published an article by Scott Kaufman, entitled “Why Inspiration Matters.” Excerpts from the article indicates, “Inspiration awakens us to new possibilities by allowing us to transcend our ordinary experiences and limitations.  Inspiration propels a person from apathy to possibility and transforms the way we perceive our own capabilities.” (Kaufman)
+
+Chances are, if you're taking part in this program, it's probably because you're not satisfied with your current state. You want to improve. Inspiration can help you In-Vision a new and better future state.  It can provide the impetus to launch out beyond your current state into an exciting journey towards our future state.  And not only launch out but provide the energy to fuel the persistence needed to stay the course.
+
+17th century author and historian Thomas Fuller once said, “The real difference between men is energy. A strong will, a settled purpose, and invincible determination can accomplish almost anything. And in this lies the distinction between great men and little men.”  Inspiration can help give us the incentive to keep pursuing our dream. 
+
+An inspired vision is something so moving to your soul that it literally breathes life into you, and you cannot help but act towards your future. You may be asking yourself, where does inspiration come from?
+
+In ancient times, inspiration was said to have come from divine beings. In Greek mythology, inspiration was said to have come from the muses, Apollos, or Dionysus. In Norse mythology, it was said to have come from Odin. in Judeo-Christian faith, it comes from Jehovah, God, Yahweh.  One of the Latin root words is spirit. 
+
+One of the best TED talks on this subject was from award winning author Elizabeth Gilbert who wrote the book Eat, Pray, Love, which later became a movie starring Julia Roberts. In this TED Talk, she explains creative inspiration (though she used the term creative process). She gives incredible information and detail. She explained that in Ancient Rome, when an artist did something fantastic or they created a work of art that was just spectacular, it was said that within the walls there was spirit being called a genius. And this genius was the one who inspired the artist to create this piece of work.
+
+Inspiration can come from anywhere.  Here are a few suggestions to help you get inspired.  Number one, we must intentionally make time to find and cultivate inspiration. If we don't, we will succumb to the tyranny of the urgent:  our day-to-day struggles. The tyranny of the urgent can completely overwhelm us and consume our energy. I see this within companies and nonprofits as well as individuals that I coached: “We're too busy to improve. We're too busy to imagine a future state. We're too busy to change.” By not tapping into the fullness of our potential, we can become frustrated, unsatisfied, or worse, irrelevant. We must make an intentional effort to be able to seek inspiration, to be able to seek a vision of  a new future.
+
+You may be asking, “how do I get a vision, how do I get inspired?” There are a multitude of ways to get inspired.  For Arnold Schwarzenegger it was seeing a magazine cover of a body builder starring in a movie.  For you it could be closing your eyes and just listening to some good music or sitting in a quiet park. You could also read inspirational books, articles, or any other material.  Much of the material that went into this book is from decades of research. The key thing is as Elizabeth Gilbert described, whatever activity you choose, intentionally carve out time and intentionally seek out inspiration.
+
+I recommend that you engage in any type of physical activity, even if it’s just a walk.  When I need some inspiration, I exercise.  When you exercise, your body starts producing endorphins. For example, a runner's high is when one experiences a euphoria when they are running, sometimes also called a second wind.  That can kick start your brain to become inspired to help you be creative.  I find some of my best ideas for talks often come while I’m swimming or running or lifting weights.
+
+The second thing, you always must have something to capture ideas, whether that's a notepad or maybe a recording app on your phone or your tablet or your computer, whatever it is, make sure you are constantly capturing those new ideas, those creative ideas, those witty inventions.  As basic as it may sound, I am often amazed at how many people don’t capture down ideas.   Earl Nightingale once said, “Ideas are like slippery fish. They seem to have a peculiar knack of getting away from us.” Make sure you copy down everything when you are really meditating, when you're really using your intentional time. Make sure you jot down notes and take down ideas, they may end up being like bricks when building a house, and that house is a new future.
+
+Thirdly, you must be around inspired people who are going somewhere.  Author and speaker Jim Rohn says, “You are the average of the five people you spend the most time with.”  It is very difficult to be inspired when you are around uninspiring people.  I am always seeking to be around people who are highly motivated and working towards a vision.  My mentor, Eric D. Newble, Sr. is the most inspirational person one can possibly find.  He has inspired me and countless others around the world to pursue their purpose in life.  I am also a proud member of the John Maxwell Leadership Certified Team, the top leadership training organization in the world.  I make it a point to attend the International Maxwell Conference every year to be with thousands of passionate people.  It absolutely recharges me. 
+
+Fourth, we must meditate and rehearse repeatedly. That’s how we can constantly have our vision evolve and ultimately become realized.  We must continually rehearse this over and over and over. That is how you engage your reticular activating system and make it become a part of us. It's by continually rehearsing it over and over and over. If you've written that down, maybe you can google some images to help you visualize.   And as you repeatedly read and look at it, and you constantly keep telling yourself, “I'm going to be a millionaire, I'm going to be the CEO of a company, I'm going to have a nonprofit that is going to reach my community,” whatever that thing is, you must rehearse it continually.
+
+Finally, if you do these three things, if you carve out time to really get inspired, if you carve out time to get a vision, and you make sure that you are recording things during that time, and you are continually meditating and rehearsing these things, you can In-Vision a new future.
+
+My desire for this book is that you can harness The Power of Vision to transform your life. I agree with Eleanor Roosevelt when she said, “The future belongs to those who believe in the beauty of their dreams.”
+
+c1EH
+
+Chapter 2
+
+Opportunity Knocks, Are You Listening?
+
+Let Intuition Be Your Guide.
+
+“When you see an opportunity to improve your lot, act quickly and resolutely - You may never get another chance.”  (Ancient Proverb around 8 A.D.) 
+
+Opportunity can be defined as: 
+
+A good chance for advancement or progress  
+
+An appropriate or favorable time or occasion  
+
+An occasion or situation that makes it possible to do something that you want to do, or must do, or the possibility of doing something 
+
+I believe one reason so many people miss out on opportunities is because they don’t recognize opportunities. Many have an idea of what a perfect opportunity is, however that idea of perfection may be blinding us. Destiny rarely calls us at a time of our choosing. I call this the Paradox of Perfection.  A paradox is: A statement or proposition that, despite sound or apparently sound reasoning from acceptable premises, leads to a conclusion that seems senseless, logically unacceptable, or self-contradictory. 
+
+Perfect can be defined as: 
+
+Being entirely without fault or defect: FLAWLESS  
+
+Satisfying all requirements: ACCURATE  
+
+Lacking in no essential detail: COMPLETE  
+
+Most people think they will pursue their vision when they have everything figured out. However, that thinking is severely flawed.  Vision is aspirational, it is a glimpse into your future.  Although we want it to be vivid and clear, you will rarely, if ever, have #3 on the list above, every detail. Helping people realize that their vision won’t have all the details up front is a major cultural mindset shift when I work with large publicly traded companies.  Oftentimes I am working with senior leaders of companies who have various backgrounds in engineering, data science, accounting, or finance and they suffer from analysis paralysis.  They want to figure out all the detailed requirements at the start of a project when they know the least amount about said project. They are operating under the premise that by figuring out everything up front, it will reduce risk.  Understandably, when you’re dealing with millions, sometimes billions of dollars, you must minimize risk.  However, trying to get all the details up front does not reduce risks, it only provides a false sense of security because no one can predict all of the variables that will occur.  Ironically attempting to do that is counterproductive and leads to failure:  The Standish Group reports 84% of IT projects fail costing companies $81 Billion USD.  Even worse, trying to figure everything out first can cause people to miss out on opportunities.  We can kill an idea before it gets off the ground because things aren’t perfect: 
+
+In one of history’s biggest missed opportunities, there is a reason why little is known about the third cofounder of Apple, Ronald Wayne. The third wheel of the now trillion-dollar company was brought in as an adult supervisor by Steve Jobs and Steve Wozniak, who were 25 and 21 at the time. Wayne is believed to have drafted the first agreement and designed the first logo of the company. However, after realizing that the financial burden (if the company fails) would fall on him (because the two Steve’s were broke), he decided to part ways and selling his 10 percent shares back to his co-founders for $800. Today, 10 percent stake in Apple would be worth more than $100 billion. (CNBC) 
+
+Seth Godin states, "You should be prepared, but you will never be ready.” Because what it means to be 'ready' is that it [your business idea] is going to work. When Gutenberg launched the printing press, 94 percent of the people in Europe were illiterate. So, it was a stupid time to launch the printing press. 
+
+"When Carl Benz launched the car, it was against a lot of laws, there were no roads and no gas stations. It was a dumb time to launch the car. "He couldn't possibly be ready. So, what I'm arguing is not that you should ship something that's sloppy, or flawed, what I'm saying is, if the thing that's holding you back is you're saying to yourself, 'It's not ready, it's not perfect . . .. ' Those are the symptoms of fear, and you'll never get over that fear” (Elliot).
+
+The Paradox of Perfection nearly prevented us from having a family. I had an image in my mind of what a perfect son would be. I thought I would have a child that would have very similar skin color, very similar hair color, and very similar eye color. I thought I would have a son that would look like me. However, it didn't quite happen that way. My wife and I were not able to have kids naturally. After much disappointment, we attempted to adopt a child from the Philippines. However due to a technicality, we were not able to do that either. I was distraught and thought we would never have a family.   
+
+My wife became inspired in one of the most unlikely ways:  by getting an oil change. She was at the shop and there was a woman there with an infant that did not look like her biological daughter. They began a conversation and the woman shared that she and her husband were foster parents. Something clicked inside my wife, and she told me about it. In a previous chapter, I mentioned I worked at a nonprofit agency. It was for young adults who had a myriad of emotional, psychological, and behavioral issues. Many of them had been through the foster care system. I did not want to relive those days in my own home. I was completely against it. But my wife did not hesitate to act upon what she was compelled to do. She filled out the paperwork and started that process. 
+
+Several months later I was in Newark airport waiting for a flight home from a client meeting. According to the JD Powers report, this was the worst airports to fly from, because of constant delays. My wife called me and said the foster care agency was dropping off a boy. Suddenly, I wanted to skip the line at TSA, run like a madman through the airport, find the pilot and tell him to fly that plane at supersonic speeds, so I could get home immediately. Then I realized I would be detained by authorities and further delay meeting our new foster son. I got in late that night. The next morning, sitting on the bed was a blonde-haired, blue-eyed boy, smiling at us. His name was Ethan.  He was so full of energy and quickly endeared himself to our hearts. 
+
+We eventually adopted Ethan and are in the process of adopting an adorable baby girl. And now, thanks to my wife, we have a beautiful, amazing family. All of this was not how I pictured having a family, but I can't imagine our lives without these beautiful children.  
+
+The question we must ask is this: If you had everything laid out in front of you, is that vision worth pursuing? That journey would be extremely boring! A major part of pursuing vision is the discovery of your potential along the way. You discover who you really are and who you were meant to be. The details become evident as we progress towards our vision. 
+
+Opportunity comes from the Latin phrase ob portum veniens "coming toward a port," in reference to the wind.  Sometimes the winds of inspiration can be unpredictable. Just ask any artist or writer. But if we learn how to recognize opportunity we can capitalize.   
+
+One of the keys to recognizing opportunity is by using your intuition. Intuition isn’t a spooky esoteric concept. Just do a simple Google search and type in ‘Forbes Intuition,’ and you will come up with nearly five million hits in less than .51 seconds. Forbes has published numerous articles such as: 
+
+Intuition Is the Highest Form Of Intelligence  
+
+4 Ways Trusting Your Intuition Is A Superpower   
+
+The Importance of Foresight:  Why Intuition 
+
+Imagination Will Be Critical In the Future of Work  
+
+In another article, Alexandra Mysoor defined intuition as: The ability to know something without analytic reasoning, bridging the gap between the conscious and non-conscious parts of our mind. (Forbes) 
+
+Even the Pentagon became intrigued with intuition. TIME Magazine published an article by Annie Jacobson that states: In 2014, the Office of Naval Research embarked on a four-year, $3.85 million research program to explore the phenomena it calls premonition and intuition, or “Spidey sense,” for Sailors and Marines. If the researchers understand the process, there may be ways to accelerate it, and possibly spread the powers of intuition throughout military units,” says Dr. Squire. The Pentagon’s focus is to maximize the power of the sixth sense for operational use. If we can characterize this intuitive decision-making process and model it, then the hope is to accelerate the acquisition of these skills,” says Lieutenant Commander Brent Olde of ONR’s Warfighter Performance Department for Human and Bioengineered Systems (TIME).
+
+Over the decades, wars change location and weapons design evolves, while man’s perceptual capacities remain relatively close to what they have been for thousands of years. Fifty years ago in Vietnam, Joe McMoneagle used his sixth sense to avoid stepping on booby traps, falling into punji pits, and walking into Vietcong ambushes. His ability to sense danger was not lost on his fellow soldiers, and the power of his intuitive capabilities spread throughout his military unit. Other soldiers had confidence in this subconscious ability and followed McMoneagle’s lead. In a life-or-death environment there was no room for skepticism or ignominy. If it saved lives, it was real (McMoneagle).
+
+Intuition is often synonymous with that gut feeling. Scientists are just beginning to understand the gut brain connection. Did you know that you have a second brain? And that it’s located inside of your gut? This is what causes you to feel emotions like getting butterflies when you’re excited or nervous and feeling sick to your stomach when scared or emotional. This second brain is called the Enteric Nervous System (ENS). The ENS is made up of two thin layers that contain more than 100 million nerve cells (Loconti).
+
+Intuition is something that all of us have, but I personally believe it is severely underutilized. Einstein himself said, “The intuitive mind is a sacred gift, and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.”  I spoke with a director of analytics, and he stated that he encourages his data scientists to really dig into the data, but at the end of the day, to trust their gut instinct. 
+
+Almost every executive I have ever worked with boldly declared they wanted “innovative, out of the box thinkers,” but had no idea how to find those people or develop those attributes. The key is in allowing people to use their intuition.  However, I believe our intuition is being drowned out by all the noise of today’s busy society. Our calendars are jam packed, being double and triple booked. We live in the information age, and we are bombarded with stimuli from streaming TV services, social media, the internet, and the like.  We think multitasking between all these things will make us more productive, and being a good multitasker is perceived as a badge of honor. However, it is counterproductive. The term multitasking is a misnomer. People can't do more than one task at a time. Instead, we switch tasks. So, the term that is used in the research is "task switching." If you do a lot of switching in a day, it can add up to a loss of 40% of your productivity (Weinschenk).
+
+Matthew Skelton & Manuael Pais use the term “Cognitive Load.” When we talk about cognitive load, it’s easy to understand that any one person has a limit on how much information they can hold in their brains at any given moment (Skelton & Pais).
+
+This leaves us stressed out and our brains overloaded, and our day-to-day lives have us feeling like we are just trying to survive, versus to thrive.  To use our intuition, we must intentionally create some white space in our daily agenda to allow for deep thought and reflection. Quiet time away from the noise of our days is a necessity. Oftentimes following our intuition often requires us to pay attention to that subtle, still small voice. I believe hearing the voice of intuition will guide you to IN-VISIONING Your Future. 
+
+To illustrate the power of intuition, in 1998, a young man recently became a Vice President at Compaq, which at that time was the largest personal computer maker in the world, with $38 Billion in revenues and ranked #42 in the Fortune 500. He received a phone call from a struggling company that had just lost $1 Billion and was offered a job. In the article, Cook went on to state: Any purely rational consideration of cost and benefits lined up in Compaq's favor, and the people who knew me best advised me to stay at Compaq. On that day in early 1998 I listened to my intuition: not the left side of my brain or for that matter even the people who knew me best. In making the decision to come to Apple, I had to think beyond my training as an engineer. Engineers are taught to make decisions analytically and largely without emotion. But there are times in our lives when the careful consideration of cost and benefits just doesn’t seem like the right way to decide. There are times in all of our lives when a “reliance on gut or intuition” just seems more appropriate. When a particular course of action just feels right. And interestingly I’ve discovered it’s in facing life’s most important decisions that intuition seems the most indispensable to getting it right. If my intuition had lost the struggle with my left brain, I’m not sure where I would be today, but I’m certain I would not be standing in front of you (Cook).
+
+Apple has thrived under Tim Cook’s leadership. In January 2022, Apple became the first US company to reach a $3 trillion dollar market cap. “Apple just made more money than any company ever”  (Cook). Conversely, Compaq was acquired by Hewlitt Packard, and eventually Compaq brand name was discontinued in the US by 2013.               
+
+What amazes me is that he was trained as an engineer to be analytical, and the data at that time clearly implied he should stay with Compaq. However, it was his intuition that helped guide him to help make Apple what it is today.   
+
+The first step in developing our ability to hear our intuition is to turn down the noise of our day. We must be intentional about allotting quiet time in our schedule. We must be very firm with this because the temptation will be to discard that time and use it for something else when the busyness of life begins to scream at us. When I work with large companies, every three months I try to implement two weeks of time where they can focus on professional growth and idea generation or innovation. For individuals, I recommend people pick a consistent time of the day. I am a morning person and that’s when I do my meditation/devotions.   
+
+If there is a recurring thought that keeps coming to you, act on it. Obviously, I am not implying that you quit your job, leave your family, or anything that would harm someone else. For example, if someone keeps coming to your mind, reach out to that person, just to say hello. Due to my busy schedule, I have a routine when I go to the gym to work out in the morning after doing my devotions/meditation (or meditate while I’m running or swimming). I usually stick to the routine so I can be home and ready to start my client meetings. 
+
+On one occasion, I kept thinking about going to Starbucks. This is highly unusual for me because I normally go straight to the gym and straight back home when I’m finished. I am also not a coffee drinker. However, my wife loves coffee. So, I looked up the nearest Starbucks and bought her favorite coffee. She was very pleasantly surprised and told me how much she appreciated the thoughtfulness.  I realized how hard my wife had been working to take care of our home and the kids while I was traveling and conducting my numerous trainings. I started looking for other opportunities to bless her and it helped deepen our relationship. 
+
+One day, I was coming back from the gym early so I could be on time for a virtual meeting with an Executive Vice President of one of the largest Financial Companies in the world. He scheduled this meeting, and there was no agenda provided, so I was going in cold. However, as I was in the car, I suddenly had a vision of how to restructure his organization. As soon as I got home, I created the diagram I had seen in my mind. 
+
+When we met, we had a wonderful conversation, and towards the end he said, “Niel, as you can tell from our conversation, I want to accomplish some big things with my organization, so if you come up with any ideas, please send them to me.” I told him, I had put something together, and asked if I could pull it up. 
+
+I showed him the diagram and walked him through the changes I thought he should make, and he was impressed! Following our intuition allows us to be proactive. I am a martial artist and I know from experience that pro-action will beat reaction. Oftentimes a fight is predicated on the person who can be first, or who can strike first. Therefore, this is where we get the term, “beat them to the punch.”  In business, it is extremely beneficial to be proactive and be “A First Mover,” as defined by Investopedia.  
+
+According to Investopedia, a first mover is a service or product that gains a competitive advantage by being the first to market a product or service. Being first typically enables a company to establish strong brand recognition and customer loyalty before competitors enter the arena. Other advantages include additional time to perfect its product or service and setting the market price for the new item. (Investopedia.com)
+
+​Bill Gates dropped out of college to start his business. He had been obsessed with computers and coding software since high school and knew he wanted to be a pioneer of the personal computing revolution. He felt that staying in school was delaying his dreams. He said he was "a little worried" that the revolution of putting personal computers in every home, office, and now, pockets across the world wouldn’t happen without him (Investopedia.com).
+
+For our own personal lives, we do not have to be first in relation to someone else per se, but it is about being proactive with a sincere desire that your intuition is prompting you to move on. Many individuals I coach are unfulfilled and long to do something new or different. Our initial sessions are often filled with rationalizations of why they are not pursuing their goals. I hear their internal struggle of wanting to do something more with their lives, and why they seemingly can’t or more importantly won’t. Of course, a major reason why people say they are not pursuing their goals is because they do not have the time. The funny thing about time is that whether you are Warren Buffett, Lebron James, Jennifer Lopez, or me, way back when I was making minimum wage, is that we are all given the same 24 hours, 365 days a year. It’s all about what we do with that time.  “If you always do what you’ve always done, you’ll always get what you’ve always got.” (Milwaukee Sentinel)
+
+A deeper probe on these rationalizations are usually deep-rooted fears and anxieties. Many people are afraid of failing. When faced with fears, we often hear of the “fight or flight syndrome.” However, I have found there is another component that is not talked about much: freeze. Freeze happens when we are overwhelmed and indecisive, and we hesitate. In Marvel Studio’s Black Panther, Okoye told T’Challa (Black Panther) not to freeze. Later when Shuri asked if he did, Okoye said, “Like an antelope in headlights.”
+
+Hesitation is not to be confused with being patient and taking the time to consider options. Hesitation is usually what happens when we are anxious and afraid and filled with self-doubt. Oftentimes these fears come with very real legitimate concerns, such as being a single parent and providing for a family, health insurance, and the like. When we are stressed out, our bodies get flooded with chemicals such as adrenaline and cortisol. Our heart rates increase, and our emotions become elevated where it overrides or hijacks our rational brain, or prefrontal cortex. This can cause us to be like the deer in the headlights where we hesitate, and get stuck in place. Eric Newble has an acronym for STUCK:  Severely Trapped Under Contemptible Knowledge (Newble.) 
+
+I think this leads to people developing a learned helplessness. Helplessness is a phenomenon in which repeated exposure to uncontrollable stressors results in individuals failing to use any control options that may later become available. Essentially, individuals are said to learn that they lack behavioral control over environmental events, which in turn, undermines the motivation to make changes or attempt to alter situations. Research revealed that by assaying corticoid levels, animals were very stressed. 
+
+According to this theory, people repeatedly exposed to stressful situations beyond their control develop an inability to make decisions or engage effectively in purposeful behavior. I believe this is why it’s so important to have that quiet time away from the stressful noise of our days, even if it’s just 15-30 minutes. If not, our stress response becomes increasingly more reactive. Most of us are not facing life threatening situations every day, however many of us have conditioned ourselves to respond as if we were.   
+
+What I do encourage people to do is proactively do some initial research and begin investigating it. Sometimes just doing some research and investigation on their field or topic of interest will energize people, because they are taking small, low risk steps towards their goals. 
+
+I never coach people to just quit their job and follow their passions tomorrow. It’s never that black and white, nor is that sensible. What I often do is help them reframe their perspective. For example, I was coaching an individual who wanted to advance his career and be part of the C Suite, such as Chief Technology Officer, Chief Information Officer, Chief Operating Officer, etc. Then he told me what he really wanted to do. He wanted to open a coffee shop. He was really struggling with these two desires and spent a majority of our session detailing that struggle. Once he finished explaining his dilemma, I simply asked him, “Does it have to be an ‘Either/Or,’ or can it be a ‘Yes/And’?”  Suddenly, you could see the light bulb go on, and the wheels began turning. His whole countenance changed.  “Yes/And?” he asked eagerly. 
+
+I worked with a VP at one of the largest financial institutions in the world, and she would use Either/Or, Yes/And masterfully to help people reframe and rethink things. I was in numerous meetings with her and watched in amazement how she would use that simple question to change the entire atmosphere of a meeting. It worked the same way in this coaching session. He went from being confused, anxious and trapped, to being filled with intrigue.   
+
+I asked him, “Does the coffee shop have to be your single source of income?  Can it be a side hustle or maybe even a nonprofit?”  His response was, “Well, I guess it could!  I never thought about that!” He left the session excited and filled with hope, because his two desires were not opposing each other. They were now a part of the bigger picture. Our vision tends to be multifaceted and constantly evolving because we as humans are multifaceted and constantly evolving.   
+
+John Maxwell says it like this – “The timing will never be perfect for you to pursue your dream, so you might as well start now. If you don't, the next year, you will be a year older and not a step closer to it.”
+
+How can we tap into our intuition?   
+
+Turn off the noise. – We must intentionally create white space, or make time in our busy schedules, to have quiet time. For me, I usually do my devotions/meditate in the morning. I have always been a morning person, and when I seem to function best. There are usually very few stimuli and distractions at 4 AM, and it’s usually very quiet.     
+
+Exercise – Sometimes I have the best ideas come to me either while I’m running, swimming laps, or after working out at the gym. Those ideas often end up in talks I do, or book material.  
+
+Research your field of interest. Many psychologists feel intuition is a very sophisticated form of pattern recognition. Understand what patterns of success look like in your field. Although it may seem like intuition may be the antithesis of analytical reasoning, I prefer to think of intuition as reading between the lines. I believe it’s important to do due diligence with compiling and analyzing information, with the understanding there is often much nuance involved. My intuition told me years ago that I would be a businessman, but I had no background in business. I spent countless hours researching and learning.  When it came time for me to launch out, I had just received a promotion on my corporate job and was tabbed as “high potential” for leadership. It seemed like an odd time to start my own business. But I went with my intuition, and it worked out incredibly for my family and me. My former company brought in a new executive, and the culture completely changed, and several of my colleagues told me the company hadn’t progressed as they had hoped.   
+
+Set up small experiments. – If you are not sure if it is your intuition or bad taco’s you had the night before, then set up small experiments. For example, have you ever been thinking about someone you hadn’t talked to in a while, and then soon afterwards you happen to run into that person? And you say, “I was just thinking about you!” Why not proactively contact the person, even if you are able just to say, “Hello. “Worst case, it is a short awkward conversation. Or maybe it turns out to be a wonderful conversation.  Or if you want to start a business, but can’t afford to quit your job, see if you can start offering your services/products to a small group of people to gauge interest. With the internet and many social media platforms, you can do a lot of free advertising. My professional speaking career started because I messaged numerous people on LinkedIn and asked if they needed a speaker. Finally, someone said yes. In a subsequent chapter we will cover how to set up experiments in more detail.
+
+c52
+
+Chapter 3
+
+Potential is Future Tense
+
+I believe in the power of human potential. And I fundamentally believe that we, as humans, can achieve the extraordinary. I have been fascinated with human potential for most of my life. As a kid, I was a very awkward, unathletic first generation Asian American living in a predominantly white neighborhood, and I was constantly bullied.  I looked for inspiration in the form of Bruce Lee movies on Saturday mornings. I was amazed at how someone so small at 5-ft-5, and 145 pounds could become one of the best martial artists in history and a global cultural phenomenon. Later, I got involved with football and admired people like Walter Payton and Steve Largent, who despite being undersized and not the most athletically gifted, maximized their potential, and had Hall of Fame careers. They helped inspire me on my lifelong journey to develop human potential. 
+
+Potential can be defined as:  
+
+Having or showing the capacity to become or develop into something in the future.  
+
+Latent qualities or abilities that may be developed and lead to future success or usefulness. 
+
+My mentor, Eric D. Newble Sr., likes to refer to a person’s potential as their Metron. It's the Greek word for measure. It's a vessel for receiving and determining the quantity of things. In other words, your Metron is a measure of your capacity. I love the late Dr Myles Munroe's description of potential: Potential is all that you can be but have not yet become. All you can do but have not yet done. How far you can reach but have not yet attained. (Munroe et, al.)
+
+He also said that the wealthiest spot on this planet is not the oil fields of Kuwait, Iraq, or Saudi Arabia. Neither is it the gold and diamond mines of South Africa, the uranium mines of the Soviet Union, or the silver mines of Africa. Though it may surprise you, the richest deposits on our planet lie just a few blocks from your house. They rest in your local cemetery or graveyard. 
+
+Dr Gary Hamel, professor at the London School of Business, is a regular contributor to the Harvard Business Review and he is the most reprinted author in the Review's history. In his book, Humanocracy, he states, “Consider that in Gallup’s 2019 Great Jobs Demonstration survey, barely a third of US employees strongly agreed with the statement: “I have the opportunity to do what I do best every day. Less than a quarter said they were expected to be innovative in their job (Hamel).
+
+My life's mission is to help people identify and develop their potential. There is something so exhilarating and fulfilling when we discover and develop the hidden talents, abilities and characteristics that lie within us. It is so exciting when we can do something we were not previously able to do. 
+
+Daniel Pink, in his book, Drive, The Surprising Truth of What Motivates Us, noted that, “The desire to get better and better at something that matters,” is one of the key motivators for humans. I believe this constant pursuit of developing potential helps bring so much meaning to life. If Vision is a glimpse into our future state, the development of potential is the process of making us into the person who can fulfill that Vision.  It is what continually fills the gap between our current state and our future state (Pink).
+
+Once you accomplish something, or can consistently accomplish something, it is no longer your potential. Therefore, we must continually venture out and explore what else lies within us. Therefore, to maximize your potential, we must venture out to what lies beyond us, to develop that which remains dormant within us.  To discover your potential, consider the following questions: 
+
+Question 1 - What gets you excited?  
+
+What sets your heart on fire? The term "gift" we use for talents, abilities, etc., comes from the Greek word charisma. Which if you study the etymology, means, "to be cheerful, to rejoice exceedingly." 
+
+When we operate in our potential, and when we operate in our gift, there's going to be joy and energy. There's going to be something inside of you that just clicks, and it doesn't feel like work. You're doing what you love doing. Our best work is accomplished when we enjoy it. It gives us great internal rewards, which can be mental, emotional, or spiritual. And here’s the standard I often teach to help people answer the reward question. Find something you like to do so much that you would gladly do it for nothing. Then learn to do it so well that people are happy to pay you for it (Maxwell).                
+
+I love watching people do what they love. I have no musical talents whatsoever; however, I really enjoy watching my Goddaughter Hannah Nicole when she sings. She sings with such passion that it stirs my soul! I believe the passion and energy is what helps fuel success: 
+
+I love the story of a young man who had grown up in poverty, went into a small coffee shop and had one of their premium coffees. He fell in love with it, as it was something much better than anything he had tried before. He said to himself, “Oh my gosh! What a wonderful business! What a wonderful city! I want to be a part of this.” It was love at first sight and he was literally begging for a job at that shop, bothering its director with unrelenting phone calls. He saw the great potential of this business and realized he wanted to connect his life to it. 
+
+He had traveled to Milan, and the concept of Italian cafes amazed him the most. It was not just a store, but a place for social meetings and leisure. It was part of the fabric of social culture. In the United States, the socializing role was mostly held by the various fast-food restaurants he went to. He wanted to do that with coffee shops. 
+
+However, the owners of the coffee company he had begged to work for did not see it that way. So eventually they had to go their separate ways. He started his own line of coffee shops and made it according to the vision that he had. Then later, he bought the original coffee company that he had to leave, and he merged the two. This gentleman's name is Howard Schultz, the former CEO of Starbucks. His net worth is approximately $4.9 billion dollars. He once stated that “Entrepreneurs must love what they do to such a degree that doing it is worth the sacrifice and at times the pain. But doing anything else, we think, would be unimaginable.” 
+
+Harvard Researcher Shawn Achor, in his book The Happiness Advantage says, “For me, happiness is the joy we feel striving after our potential” (p. 40). We should absolutely celebrate and be proud of what we accomplish, but eventually we will ask ourselves, “What’s next?” True joy is in that pursuit, not merely in the actual accomplishment. That’s what should fuel us, and that’s what fuels me. And every time I speak to an audience, engage a client, or talk with my children, I pray that passion inspires others towards their potential. 
+
+Question 2 – What Do You Find Yourself Doing Naturally?  
+
+What are your gifts, your talents, your abilities? The word "talent" originally meant a balance, a weight, a sum of money, so your talent was something valuable. Then later, it referred to a special natural ability, aptitude, or gift. 
+
+In high school, I wanted to play football. In addition to being inspired by the aforementioned athletes, I was also inspired by all the Rocky movies. I was determined to be the ultimate underdog success story, and I worked out like a madman. I lifted weights, and I ran constantly. I experimented with every legal supplement known to man. And I was always researching -- How can I get stronger? How can I get faster? How can I become a better player? I studied our playbook inside and out. 
+
+Unfortunately, if there were a baseline level for average athletic ability, I was below average, and borderline horrible. I had absolutely no athletic ability. Being small at 5-ft-7, 165 pounds and unathletic was an extremely bad recipe for success in the sport of football. I did improve, but all the improvements I made barely made me below average. Maybe on a good day, average. 
+
+There was a movie called Rudy. It was about Daniel Eugene "Rudy" Ruettiger, who was undersized and not athletically gifted, but dreamed of playing collegiate football at the University of Notre Dame. The movie went to great lengths to show just how unathletic he was, often filled with scenes of him getting demolished during football practice. I often say I was the Asian version of Rudy. 
+
+The ironic thing is that my teammates kept saying that I would make a great coach. At the time as a young man, it was not a compliment. Rather, I took it as an indictment of my lack of athletic ability. 
+
+But eventually I followed their advice, and I took a lot of what I had previously learned to try to make me a better athlete and used it to help people who were more athletically gifted than I ever was, as a football coach and personal trainer. I took all that experience and knowledge I had gained and coached football. I especially enjoyed motivating and coaching teams and I realized I had a knack for it. In one league, I even won coach of the year. I especially enjoyed the public speaking aspect. The funny thing is that public speaking is one of the biggest fears for most people. The Washington Post states: “Overall, fear of public speaking is America's biggest phobia - 25.3 percent say they fear speaking in front of a crowd” (Ingram).
+
+I get excited just at the thought of it. It gets my juices flowing. Although I did not have any potential in sports, coaching sports served as a doorway to help me discover that my potential was in motivating, coaching, training, and those gifts were transferable to numerous areas such as working with nonprofits and corporate America. So, when I got into the corporate world, I really excelled in leading project teams and helping motivate and train companies to transform into better ways of working. Eventually I became a consultant that works with Fortune 500 companies, trained leaders, and I'm a keynote speaker. 
+
+Question 3 - To Identify Your Potential -- What Do You Struggle With?  
+
+I know that may sound strange when in the previous section above I just asked you what your gifts and strengths are. But understand this: Our greatest weakness can sometimes be our greatest strength. 
+
+Let me give you an example:  There was a young man born in the Bronx, New York, to a 19-year-old single parent, and he never met his biological father. When he was nine months old, this boy came down with pneumonia and his mother sent him to Chicago to be raised by her aunt and uncle who adopted the baby. 
+
+A magazine called the place where he grew up, "the oldest and worst ghetto in the United States." As a child, he grew close with his adoptive mother, but his adoptive father was verbally abusive, and repeatedly told him he was good for nothing. Though he was smart, he understandably had issues with authority and was constantly in trouble at school. And while in college, his adoptive mother died, and he dropped out of school. 
+
+But he taught himself how to program a computer, and eventually started a company with two other people. Though he wasn't the best programmer, he was the driving force behind the company. 
+
+That man was Larry Ellison, former CEO of Oracle Corporation. At one time, his net worth was $70 billion and was the seventh richest person in the world. He was so rich that he bought an island in Hawaii for $300 million. And he was an influencer for Robert Downey Jr's portrayal of Tony Stark, also known as Iron Man in the Marvel Cinematic Universe. He even had a cameo in one of the movies. 
+
+“The most important aspect of my personality as far as determining my success, has been my questioning conventional wisdom, doubting experts, and questioning authority. While that can be painful in your relationships with your parents and teachers, it's enormously useful in life. I have had all the disadvantages required for success”  (Ellison).
+
+I find it ironic that Larry Ellison’s character trait that initially caused him a lot of grief earlier in life, and similarly, Simon Cowell’s snarky and blunt approach, helped them in their respective careers. Sometimes what others consider our greatest flaw, or our greatest weakness can end up being our greatest strength. Understanding this can give us a glimpse into our potential. 
+
+Years ago, I remember taking the Myers Briggs personality test. Unfortunately, I saw all the blind spots manifesting in my life but did not see many of the strengths. Owing to their desire to move on to the next challenge or toward their larger goal, ENTJs sometimes make decisions too hastily. Because ENTJs take a logical approach to life, they can be tough, blunt, impatient, and insensitive to the needs and feelings of others when they don’t see the logic of those feelings. 
+
+ENTJs’ impersonal approach to life leaves little time, tolerance, or compassion for emotions, even their own. When they allow their feelings to go ignored or unexpressed, they can find themselves overreacting emotionally (Tieger). 
+
+All my friends and coworkers said, “Oh yeah, that is definitely you!” And they seemed to enjoy giving me plenty of examples of when those traits were quite apparent.  However, some of the strengths were: As business executives, they can use their long-range thinking to develop contingency plans and map out the best course to meet their goals. ENTJs usually rise to the top of organizations by using their ability to influence others and their ease at meeting and networking with people. 
+
+I laughed when I saw “Business Executives,” and “Rise to the top of organizations.” I was so low on the totem pole that my neck hurt looking up at everyone. My idea of long-range thinking was how I could make what little I had left after paying bills last until my next paycheck. I felt like anything I put my hand to, I would fail at it, so I dared not show anyone these characteristics, because I feared they too would laugh at my lowly state. So, I made a joke out of it. “You know John, when I make it big, I’m going to remember you.” I would say that to everyone I worked with. And they would chuckle and say, “Uh yeah right Niel, when you make it big, sure.”  
+
+It often takes time to develop our gifts and strengths, but remember, potential is future tense. Therefore, our weaknesses may be much more prominent. If we are not careful, we will see our weaknesses as limiting factors that can disqualify us. Unfortunately, human nature tends to key on the negative aspects of an individual. I heard someone refer to CNN as Constant Negative News. However, what may be deemed as weaknesses may be clues of unharnessed and underdeveloped gifts and talents with loads of potential hidden underneath.  
+
+What we struggle with may end up paving the way to help others with similar struggles. My colleague Nanette Larson is a perfect example. She once stated: I lay in bed one night, not long after my twenty-fifth birthday, and considered how I’d felt nothing but pain for the last seven years. There was a deep psychological aching of my heart, for which I had spent seven years in therapy trying to gain understanding but had found none. There was also a burning, stabbing, physical pain in my lower back, hips, and pelvis, the result of an injury to my sacroiliac joint that had left me unemployed. I felt as though I had no one. All I had was the endless torment of physical and psychological pain. There seemed to be no medicine that could bring relief from the suffocating agony. Thoughts rolled around in my mind with no order and no direction. The organizing theme of these thoughts was fear, and the greatest fear engulfing me at that moment was of the unknown. I drove into the night. And drove and drove and drove. I had tried too hard, for too long, and it never seemed as though life was worth living. I wished I could just drive off the face of the earth into utter darkness. I didn’t want to wake up to see another day (Larson).
+
+Over several years, her life completely changed. She met several people, including my mentor, Eric Newble, which helped get her on the road to wholeness. During that time, she soon crafted a very successful career in the mental health field. At one point, she was to receive a significant promotion. This is the scenario of what took place:  “Let’s take a few minutes to discuss what your new title will be,” suggested the director as we talked over the details of this promotion. “Well, I’ve been thinking a lot about that,” I responded, “and I would like to propose ambassador.” “I like it,” she said pensively. “Tell me why.” 
+
+“First, the ambassador must be a resident of the country to which he or she is assigned. Secondly, the ambassador must learn the language, culture, and traditions of the country to which he or she is assigned. And lastly, the ambassador must faithfully represent the culture and traditions of his or her home country.”
+
+I responded, “In my role within the division of mental health, I am, in essence, a resident of another country, that of the public mental health system. But my home country, if you will, is wellness and recovery. To be a faithful ambassador, I must learn the language, culture, and traditions of the mental health system, while at the same time faithfully representing the culture of wellness and recovery.”  
+
+“I love it!” Nannette jumped up from her seat and wrote “AMBASSADOR” in big letters on the whiteboard in her office. Larson stated, “That’s perfect!”  That’s how I came to be the Deputy Director and Ambassador of Wellness and Recovery Services for the division of mental health in the state of Illinois. (Larson pp. 154-155).  
+
+Nanette Larson now trains many people in the mental health field to empower and equip them to help others experience wholeness. An interesting exercise is to make a list of weaknesses and character flaws you may have. Then on the other side, write down, what if you were able to redirect those weaknesses into strengths. This would be good to do with people who know you. Ask them bluntly what your weaknesses are. Sometimes your friends/colleagues wouldn’t want to say anything to hurt your feelings. However, assure them this is part of your growth development. Now we must be brave enough to listen and accept their feedback.   
+
+Question 4 –To Identify Your Potential -- What Is Your Purpose? 
+
+Ever since I was young, I always wondered - Why are we here? What is our purpose? Purpose can be defined as why you do something or why something exists. Your purpose is your Why. Simon Sinek has over sixty million views, and counting, on his TED Talk, where he described understanding your Why. He authored a book entitled “Start with Why.” He has started a total movement for companies to find their Why. 
+
+​Daniel Pink identified purpose as another key component to human motivation: The most deeply motivated people, not to mention those who are most productive and satisfied, hitch their desires to a cause larger than themselves. Psychologist Mihaly Csikszentmihalyi told me in an interview. “Purpose provides activation energy for living,” 
+
+The younger generations are craving purpose. Money is important, and they do enjoy making it. However, they long to be a part of something bigger than themselves. This search for meaning and purpose is on the agendas of most Millennials in the Western World, and increasingly in the developing economies. 
+
+Organizations who wish to prosper will focus more time on meaning at work, and have an organizational purpose and contribution that gives people a sense of satisfaction and a genuine feeling that they are making the world a better place (Moore).
+
+Regarding Gen Z, a HUFFPOST article says: This new study by the Lovell Corporation finds that those born between 1994 and 2001 are driven more by purpose, passion, and impact. Organizations must discover a purpose that is worth committing to – one that is socially responsible, human-centered, and ethical (Mercurio).
+
+I believe every human being who has walked the face of this earth has a burning desire to know that what they do in this life matters, that they can make a difference in this world. People want to be a part of something bigger than themselves. Philosophers, scientists, clergy, and so many others have been seeking the answer to mankind’s purpose for centuries. 
+
+I believe the first part of discovering your purpose is looking from an altruistic perspective, of how can we help our world. This can take many different forms: 
+
+Helping underprivileged children  
+
+Helping the elderly  
+
+Helping abused women  
+
+Helping animals  
+
+Saving the environment  
+
+Missions work  
+
+There is an endless list of who or what we can do to help our world at large. 
+
+In an obscure video from 1984, Steve Jobs said: “Man is a toolmaker. He can make a tool to amplify an inherent ability that he has and that’s exactly what we are doing here. We are building tools that amplify a human ability just like the industrial revolution was an amplification of a human ability: sweat.” He elaborated on this further in a 1989 interview with Inc.  
+
+I think humans are basically tool builders, and the computer is the most remarkable tool we've ever built. The big insight a lot of us had in the 1970’s had to do with the importance of putting that tool in the hands of individuals. Let's say that--for the same amount of money it takes to build the most powerful computer in the world--you could make 1,000 computers with one-thousandth the power and put them in the hands of 1,000 creative people. 
+
+You'll get more out of doing that than out of having one person use the most powerful computer in the world. It’s because people are inherently creative. They will use tools in ways the toolmakers never thought possible. And once a person figures out how to do something with that tool, he or she can share it with the other 999. 
+
+For every improvement we can make in the tools we give people, we can improve the ultimate results even more, thanks to this leverage. That's what gets us so excited.​ Jobs had studied people like William Shakespeare, Ghandi, Walt Disney, and the Beatles, and admired how they were cultural phenomena. He believed he could amplify an individual’s creative ability by providing them with innovative tools. By doing so, he himself became a cultural phenomenon. 
+
+You don’t have to be an expert inventor to have a significant purpose. Interestingly Steve Jobs didn’t invent the iPhone or iPad, but his teams did. You must find something that is significant to you.  
+
+The second part is like question 2. What gifts and talents do we have that can help meet other’s needs? John Maxwell gives us a way to identify that. “Here’s a clue for knowing what’s most rewarding. When you do something and you think to yourself, I was born for this, you’re on the right track” (Maxwell). 
+
+This really dawned on me a few years ago. As previously mentioned, I love public speaking, and any chance I got, I spoke, usually in front of live audiences. However, during the pandemic, there were no more in person events. I had to conduct my first completely virtual two-day training. I wasn’t sure how that would go, I am quite animated while standing up in front of a live audience and have really learned how to read the room. Now, I would be sitting and staring at a webcam, and I was nervous. And despite some initial technical difficulties, as the training went on, I felt a connection with my attendees and felt like I could read the virtual room. After I finished with a module, they were asking some really good questions, and we were having great dialogue. I felt an incredible energy. And one time I shared a funny story from earlier in my career.  
+
+My first agile transformation was with the data analytics department. These data scientists were some incredibly brilliant, smart people. Some of them were professors at top universities in the country. On one of the teams, I had to work with five people who had Master’s degrees, three people had PhD’s, one guy had two PhD’s, and I have ADHD.  
+
+I could see all the students break out into laughter. It was at that moment I had a surreal epiphany: It did not matter if I was speaking in front of a live audience or a virtual audience, because I was born to speak and train people. I was born to help people not only advance in their careers, but I was also born to help develop their potential, and their lives. I was born for this! Ironically, thanks to technology like Zoom, I did more talks, training, and seminars during the pandemic than ever before!  It really expanded my audience because I was able to connect with people from all over the world, reaffirming that I had truly found my Why. Although for years this is what I was meant to do, it was like a deeper sense of purpose was revealing and confirming itself to me. Our purpose is constantly evolving, or more accurately, our understanding of our purpose is progressive and constantly evolving. 
+
+Aristotle said, “Where our talents and the needs of the world cross, there lies our vocation.”  If we can utilize our gifts and talents for a greater purpose, we have moved beyond a career, and into a calling. 
+
+Turning potential into Kinetic Energy – energy in motion. 
+
+Vision gives us a glimpse of our future, and it is aspirational, beyond where we currently are. So also, is our potential. Whatever we have done to date is no longer our potential. As we begin our journey towards our vision, we begin to develop our potential. We want to convert our potential into kinetic energy, or energy in motion. The only way to develop our potential is to engage in what the late Anders Ericsson, Professor of Psychology at Florida State University and regarded as the “Expert on Experts,” calls deliberate practice. 
+
+When most people practice, they focus on the things they already know how to do. Deliberate practice is different. It entails considerable, specific, and sustained efforts to do something you can’t do well—or even at all. Research across domains shows that it is only by working at what you can’t do that you turn into the expert you want to become. 
+
+The journey to truly superior performance is neither for the faint of heart nor for the impatient. The development of genuine expertise requires struggle, sacrifice, and honest, often painful self-assessment. There are no shortcuts. 
+
+However, it is interesting to note that across a wide range of experts, including athletes, novelists, and musicians, very few appear to be able to engage in more than four or five hours of high concentration and deliberate practice at a time. In fact, most expert teachers and scientists set aside only a couple of hours a day, typically in the morning, for their most demanding mental activities, such as writing about new ideas. While this may seem like a relatively small investment, it is two hours a day more than most executives and managers devote to building their skills, since much of their time is consumed by meetings and day-to-dayconcerns. Consistently and overwhelmingly, the evidence showed that experts are always made, and not born. 
+
+According to “The Making of an Expert,” deliberate practice is not merely doing the same thing over and over, going through the motions. It focuses not on what you can already accomplish, but on what you can’t, and that’s why potential it is all that you can do, but have not yet done. It requires deliberate practice. There must be a very serious intentionality to this type of practice, and this is where you turn your potential into Kinetic Energy, or Energy in Motion. There are no shortcuts to this. It takes hours and hours of deliberate practice (Ericsson). 
+
+Warren Buffet spends hours studying financial reports of potential investments. Kevin Hart is said to be one of the hardest working people in Hollywood. According to Forbes, billionaire Mark Cuban “sold stamps door-to-door as a kid and gave disco lessons to help pay his way through Indiana University,” and routinely stayed up late at night studying software. (Forbes) 
+
+Winston Churchill was said to have rehearsed his speeches relentlessly and this discipline helped him overcome a lisp and stuttering problem. Churchill drafted his speeches several times and wrote them out in a way that would help him deliver them effectively. He rehearsed passages, again and again, pacing his rooms, repeating them out loud, learning whole speeches by heart. He developed a unique oratorical style that both covered up and employed his speech difficulties so that his ‘lisp’ – or ‘stammer,’ which could occasionally seem like a groping for words – became a prop, not a hindrance.  
+
+Until old age, Churchill wrote every speech himself, usually by dictating to a secretary and then revising on the typed copy. He would then ask them to present the words on the page in ‘speech form,’ in the style of a poem, with staggered lines and breaks in the text (referred to by others as ‘psalm style’) so that he could see at a glance, where to pause, hesitate or add emphasis, when delivering the lines. He was a relentless reviser of his speeches – as he was with his books also (Churchill).
+
+​To engage in deliberate practice Anders Ericsson recommends getting a teacher/coach/mentor, someone who is well versed in the skills you want to attain. One can only go so far on one’s own, since deliberate practice implies learning to do something you can’t do well, or at all. Practicing doing a skill the wrong way can severely stunt your development, since it is much harder to unlearn a skill than re-learn a skill. I have personally benefited from numerous coaches, instructors, and mentors in many different areas: 
+
+Martial Arts 
+Karate William St Clair, Brian Evans, Carl Harter, Iain Abernathy 
+Judo Brian Hug 
+Brazilian Jiu Jitsu Doug Kimball, Mike Lavazza, John Graybeal, Ed Lemonnier 
+Boxing Vicki Boisvert, Gary Savage 
+
+Agile 
+Agile Rick Vance 
+Scaled Agile Ken France, Scott Barnes, Darren Wilmhurst, Isaac Montgomery 
+DevOps Cliff Berg 
+
+Entrepreneurship
+Business Building Chris Robinson 
+Public Speaking Roddy Galbraith 
+Entrepreneurial Mindset Paul Martinelli 
+Writing 
+Dr. Oliver T. Reid,
+
+Dr. Muriel Fuqua 
+
+Spiritual/Life Coaching 
+Mark Wingfield Du Bois 
+Eric D. Newble, Sr. 
+
+​As you can see, I am the beneficiary of numerous people who have helped me in many different areas. The Japanese term, “Sensei,” means “one born ahead of another,” with the idea that as one learns from life experiences, and they pass it on to those coming behind. There is a famous quote that says, “when the student is ready, the teacher will appear.”  I found this quote to be true in my life.  It seemed like these individuals came into life at the time I needed them. Some of them I sought out, and some of them found me. Regardless of how we met, I am grateful to all of them. I always encourage people to utilize their Reticular Activating System and seek out others who can help them go where they want to go. I truly believe, if you seek, you will find the right individual(s) who can help you in whatever field you choose to pursue so that you can maximize your potential.  
+
+Exercises – Take time to really think about these and write them down. 
+
+Questions to Identify Your Potential: 
+
+What gets you excited?  
+
+What do you find yourself doing naturally?  
+
+To identify your potential, what do you struggle with?  
+
+To identify your potential, what is your purpose?  
+
+Turn Your Potential Into Kinetic Energy 
+
+1.      What type of deliberate practice would help you develop your potential? 
+
+2.      How much time are you willing to invest in this deliberate practice? 
+
+3.      Who can help teach/coach/mentor you in deliberate practice? 
+
+4.      When are you going to get started in this deliberate practice?  
+
+What are you waiting on?    
+
+What can you do in the meantime?
+
+c1ED
+
+Chapter 4
+
+Redefine The Paradigm
+
+“Every system is perfectly designed to give you exactly what you are getting today.”  
+
+​Edwards Deming was credited for being a major influence to post World War II Japan’s economic boom. His principles laid the foundation for the Toyota Production System. 
+
+As the story goes, a man was walking and saw how large elephants were not moving but standing still. The man noticed only a small thin rope tied to a stake was keeping each of the large beasts from moving. Surely these powerful creatures can break that flimsy rope, he thought. So, he asked the elephant trainer about the rope. The trainer told him from a young age, the elephants are tied with a rope. They struggle and pull against the rope. However, they eventually realize that they can’t break the rope at that age. When they grow larger, they have been conditioned to think they cannot not break the rope, so they do not move (Thanh). 
+
+​Whether we realize it or not, our lives are an expression of our inner paradigms. How we see the world defines our reality, and we act according to that reality. If we want to improve our lot in life, it requires changing how we see things.  
+
+A paradigm can be defined as:  
+
+1.      An example.
+
+2.      A pattern.
+
+3.      Especially an outstandingly clear or typical example or archetype.
+
+4.      A shared set of assumptions that have to do with how we perceive the world. 
+
+​The elephant’s paradigm, or how he perceived the world, was that the rope kept him from moving. While that may have been true at a certain point in time, as it grew larger and physically stronger, its inner paradigm conditioned it to think it could not. Unfortunately, this also happens to people all too often, and they develop a self-limiting paradigm called Learned Helplessness, which was introduced in a previous chapter. 
+
+This is a form of Learned Helplessness.  Martin Seligman and Steven Maier conducted experiments that demonstrated Learned Helplessness. They were experimenting with dogs. The dogs were placed in three groups:  
+
+1.      Group one received a mild shock but was able to stop it by pressing a button with their noses. 
+
+2.      Group two received a mild shock but could not stop the shocks. 
+
+3.      And group three was not given any shocks.  
+
+They were then put into a box with 2 sections. The dogs in group 1 were shocked in one section of the box and would quickly jump into the other section to avoid the shocks. However, the dogs from group 2 would get shocked and not try to go to the other section. Due to their prior experience, they had thought there would be no way to stop the shocks and didn’t even try. Numerous experiments have been conducted in animals and humans (though not as extreme for humans), demonstrating this phenomenon.   
+
+​I see this quite often in large companies, how people feel like what they do does not matter, and they don’t try to change or improve things. Therefore, what they give is the bare minimum. It becomes normal behavior. The word "normal" means:  
+
+The usual “average” or typical state or condition.  
+
+It also refers to conforming to a type, a standard or regular pattern, a paradigm.  
+
+​Normal is a paradigm, and unfortunately, this paradigm refers to just being average or mediocre. The word "normal" came from a carpenter's square (see image). And this square was used to make sure carpenters can cut things straight. It is a great tool for making sure homes and buildings are straight. However figuratively, normal can be putting people into a proverbial box. 
+
+Carpenter’s Squares 
+
+To further illustrate this, let’s look at the standard bell curve, and what this graph represents. There’s going to be a certain small percentage of people who are going to be poor performers on the left, many people are going to be average performers, and a small percent of the people are going to be high performers.  
+
+What this is really implying is that for most people, up to 84% of the population are not going to be high achievers. This type of graph is used in many schools and universities. In addition, many businesses use it to base performance increases, saying they're only going to give X amount of dollars to a small certain percentage of people, because there's only a small amount of people that are going to be high performers, while the majority will be average, and another percentage will be below average, low achievers. And if someone unfortunately gets typecast into any of these sections, whether in school or in the business world, it can be difficult to get out.  Consider the story of Judd Biasotto: When I was in grade school, I was informed by the school psychologist that I had an intellectual disability. I’m serious—I couldn’t pass a test to save my life. Every test I took, I'd score a thirty or a forty out of a hundred. My father, in a gentle and loving manner, explained to me that God had given me a photographic mind just like anyone else. It was just that he hadn't put any film in mine. The school psychologist and my third-grade teacher weren’t as kind. First, the psychologist informed the rest of my class that I had an intellectual disability, and then he told the students how to treat me—basically like I was an outcast. Worse yet, he did all that right in front of me. Not to be outdone, my teacher moved my seat to the back of the room so I wouldn’t bother anyone or slow down the class. 
+
+​Based on his grades and the IQ test, Judd was labeled with an intellectual disability. This created a paradigm where he believed that he was dumb, so he was on the far left of the bell curve.  based on his teacher and counselor’s actions, that’s how he perceived the world, and unfortunately that’s how his world perceived him. For years, he operated under this paradigm, and no one bothered to test the validity of this.   
+
+There’s a principle in psychology called Cooley’s Looking Glass, which states that we tend to make judgments about ourselves by observing the reactions others have toward us. For instance, if people constantly treat you as if you’re dumb, you will eventually perceive yourself as being dumb. Worse yet, our actions tend to reflect what we believe to be true about ourselves, regardless of whether our belief is valid. 
+
+​“True to form, I acted as if I were dumb, mainly because I really thought I was dumb. It was a feedback loop with one behavior reinforcing another” (Biasiotto).
+
+Unfortunately, this occurs much too often. Carol Dweck describes this as a Fixed Mindset: Believing that your qualities are carved in stone. The fixed mindset was this: Everyone in the class had one consuming goal---look smart and don’t look dumb. Every situation calls for a confirmation of their intelligence, personality, or character. Every situation is evaluated: Will I succeed or fail? Will I look smart or dumb? Will I be accepted or rejected? Will I feel like a winner or a loser?  When I asked people with the fixed mindset, this is what they said: “I’d feel like a reject.” “I’m a total failure.” “I’m an idiot.” “I’m a loser.” “I’d feel worthless and dumb, everyone’s better than me.” “I’m slime.” In other words, they’d see what happened as a direct measure of their competence and worth (Dweck).
+
+What is inexplicable to me was that, before attaching this horrible stigma to a young child, no one bothered to check and validate if young Judd Biasiotto’ s paradigm was true. He stated: What they didn’t know was that my parents were Italian laborers who had to bust a gut to make ends meet. My dad worked sixteen hours a day, seven days a week, and my mother did about the same. They were loving parents who wanted the best for their kids, but neither of them pushed academics. I don’t think they knew how. In fact, I doubt if my dad ever read a book in his life.”
+
+Understandably, my academics weren’t one of his major priorities. Like father, like son. Consequently, academics weren’t one of my major interests either. In fact, up until that time, I had never read a book. Not only had I never read a book, but I also couldn’t even read. 
+
+In the third grade, I could recognize about fifty words at best. Believe it or not, I got all the way to the fifth grade before I learned to read. And they said I had an intellectual disability. I guess it didn’t matter to the school psychologist and my teacher that I couldn’t read. Apparently, it didn’t dawn on them that if I couldn’t read the questions, I wouldn’t be able to answer them. Keep in mind that, at the time, doing well on IQ tests was dependent upon whether you could read (Biasiotto).
+
+Unfortunately, too many people have self-limiting paradigms that are not based on truth.  Even if they were originally true, much like the elephant, they don’t realize they can break free from the rope that binds them.
+
+In Judd’s case, it was not his fault. He was legitimately a victim of a flawed school system. Just like Edwards Deming implied, that flawed system produced a flawed result: a horrible and completely unnecessary paradigm that he and everyone in his world accepted.   
+
+Ironically the IQ test that originally labeled Dr. Judd as learning disabled, was never intended to be used as a label maker. Alfred Binet was the creator of the IQ test. And I was amazed to find out that the IQ test was created in Paris in the early 20th century, and it was designed to identify children who were not profiting from the Paris schools so that new educational programs could be designed to get them back on track.  
+
+The IQ test was never meant to lock somebody into a specific paradigm. It was created as a diagnostic tool to help students. Binet himself said: “A few modern philosophers…assert that an individual’s intelligence is a fixed quantity, a quantity which cannot be increased. We must protest and react against this brutal pessimism…. with practice, training, and above all, method. We manage to increase our attention, our memory, our judgment, and literally to become more intelligent than we were before” (Dweck).
+
+​Judd proved this to be true, by eventually learning to read and realizing he was not dumb, nor did he have a learning disability. As a matter of fact, he was quite intelligent. Dr Judd Biasiotto accomplished the following:  
+
+Became a sports Psychologist for numerous amateur and professional athletes.  
+
+Became a Professor at Albany State University.  
+
+Authored 126 books.  
+
+Written over 1,000 articles.  
+
+IQ was genius level.  
+
+He was also a powerlifter and stated: “When I first started powerlifting, I was at best a joke. In my first seven meets I finished dead last. Heck, at that time, even women and children could beat me. My little sister Mary Jean would say, “Judd, you have to quit competing, you are embarrassing the family.”  She was serious. 
+
+He was not physically imposing, but rather scrawny, describing himself as “being built like a broomstick.” He could have just accepted that current state paradigm, but really focused on the mental aspects of sports, using techniques such as biofeedback, deep relaxation, meditation and visualization, and others. He also used scientific principles to determine the best lifting techniques to maximize biomechanical leverage rather than brute muscular force. Dwight Chandler, who witnessed Judd perform at the Southern States Powerlifting Championships, described him this way for Powerlifting USA magazine: “I’ve never seen an athlete get more out of himself than Biasiotto. Looking at him, it would appear that he was a tennis player, or a golfer, indeed not a powerlifter. His muscularity is minimal; however, his strength is awesome. His mental control is something to behold, and something that more lifters need to develop. He seemed capable of changing his mood at a moment’s notice. It is the closest thing I’ve seen to the David Banner—Hulk transformation that appeared on television. Perhaps this explains how the Hulk and Biasiotto can perform such outrageous strength lifts. Biasiotto’s lifting, which consisted of many records, was not half as exciting to me as his mind over matter control. Perhaps Powerlifting USA publisher, Mike Lambert, said it best in an article that described Biasiotto’s mental powers: “When it comes to mind-control, Biasiotto has no equal…It’s as if someone beamed him down from another planet to teach us lesser folk what mind control is all about. Without question, his success in powerlifting is directly related to his mental strength.” 
+
+I find it amazing that this individual who once was considered learning disabled, dumb, weak, and scrawny refused to accept that paradigm and developed his mental abilities to become a prolific writer, lecturer, and world class athlete who set 11 world records and numerous world championships, including being the first to lift 600 lbs. in the squat, despite weighing only 132 lbs.  
+
+Whatever state we are in, whether it was a direct consequence of our actions or circumstances that were out of our control, we have the power to change. We may not be able to change external circumstances that happen to us, but we can change what happens in us. We have the power to change how we perceive ourselves, and how we perceive our world. Jim Collins, author of Good to Great, said: 
+
+“We are not imprisoned by our circumstances, our setbacks, our history, our mistakes, or even staggering defeats along the way.”
+
+We are freed by our choices. 
+
+​We have the power of choice. We can choose to rewrite the narrative about ourselves by redefining our paradigms. One of the most important steps in doing so is closely monitoring our self-talk. Our brains are basically super computers. Garbage in equals garbage out. However, positive affirmation in, positive results come out of us. Whether we are successful or not really depends on our Explanatory Style:  Your explanatory style stems directly from your view of your place in the world—whether you think you are valuable and deserving, or worthless and hopeless. It is the hallmark of whether you are an optimist or a pessimist (Seligman).
+
+There are two types of Explanatory Styles - Pessimistic and Optimistic: Put simply, your attributional and explanatory style is the way in which you explain your circumstances to yourself. 
+
+​The explanatory style is more concerned with immediate tendencies to view everyday events from a predominantly optimistic or pessimistic perspective. 
+
+​Pessimists personally blame themselves for bad events and perceive the root cause to be a fixed factor. When something good happens, they tend to attribute it to luck and see the cause as temporary. 
+
+Additionally, individuals with pessimistic explanatory styles are more likely to experience pervasive and chronic symptoms of helplessness when faced with uncontrollable negative events. Maladaptive thought patterns can fuel issues such as depression by creating a cycle of negative thought that perpetuates the problem (Eisner, 1995). 
+
+​The way you mentally explain the things that happen to you is at the heart of optimism. Optimists explain positive events in terms of personal, permanent causes and negative events in terms of external, temporary causes. 
+
+​In fact, it was found that an optimistic explanatory style was more significantly associated with higher quality of life than age and gender. A pessimistic explanatory style was found to be significantly associated with self-reported depressive symptoms. 
+
+​Furthermore, patients with an optimistic explanatory style described a significantly higher quality of life than pessimists (Jowsey, Cutshall, Colligan, Stevens, Kremers, Vasquez, Edwards, Daly, & McGregor, 2012). An optimistic explanatory style is associated with higher levels of motivation, achievement, physical wellbeing and lower levels of depressive symptoms (Buchanan & Seligman, 1995). 
+
+In a workplace environment, those with an optimistic explanatory style show greater productivity relative to those with a pessimistic style (Seligman & Schulman, 1986). Unlike pessimists in the learned helplessness model, those with an optimistic explanatory style assume that situations will work out for the best in the end. 
+
+People with a Pessimistic Explanatory Style tend to describe negative events as due to some permanent personal flaw:  
+
+“I never get anything right.”  
+
+“I always fail.”  
+
+“I am not good with relationships.”  
+
+“I am not smart.”  
+
+“I always get the short end of the stick.”   
+
+People with an optimistic view tend to say: 
+
+“I am talented.”  
+
+“I am good at figuring things out.”  
+
+“I am good with people.”  
+
+“I am smart.”  
+
+“I get stuff done.”  
+
+​Initially we defined vision as a desired future state, but vision can also refer to our perception, especially regarding how we see ourselves. To reach our future state, we must change our vision or perception of ourselves. Fortunately for us we have access to mechanisms to do just that (Leaf).
+
+​Today, there is an increasing body of evidence that the brain changes according to experience. The anatomy and physiology of the human brain is much more malleable and plastic than we once thought—the brain changes according to how we use it!  
+
+Yes, life can certainly be challenging, but our minds are more than prepared to stand up to these challenges and overcome them—all we must do is think! Our ability to think is truly phenomenal. Our brains can change as we think (neuroplasticity) and grow new brain cells (neurogenesis). Using the incredible power in our minds, we can persist and grow in response to life’s challenges. We can take our thoughts captive and change the way we think, speak and act! 
+   ​When you find yourself feeling hopeless, stop and tell yourself that your brain can change. Tell yourself that your brain is plastic, and you can use your thinking to change your mind and take control of your life. If you find that this will be helpful, write down your thoughts. Practice doing this for three weeks (It takes 21 days to start changing neural pathways).                             
+
+According to research, as we begin to intentionally redefine our paradigms, we literally begin to rewire our brain, (which is called neuroplasticity), within 21 days. This means we no longer have to be victims of our biology, external circumstances, childhood, or any possible mitigating factor, because our brains were designed to continually change, grow, and develop. 
+
+​The mind and brain are neuroplastic, which means they can change. We can never erase what has happened to us, as much as we may want to—it is part of our story. But we can redefine the role something plays in our life through changing our thinking, feeling, and choosing (our mind-in-action).   
+
+​Everything we do begins with a thought. If we want to change anything in our lives, we first must change our thinking, our mind—the powerful “aliveness” we all have. When we know how to change our mind, we rewire neural networks in the brain that create useful, sustainable, and automatized actions and attitudes—good habits that make us happier and healthier (Leaf).
+
+To truly redefine our paradigms, it starts with changing our thoughts: Redefining our Paradigms is an inside job. Most people focus on external behaviors or results, not realizing they need to change internally before the results manifest in the real world. To do this, we must be intentional. Change won’t just happen. Intentional means, “done with intention or on purpose; intended.”  Intentionality means, we don’t wait to get around to it. We make it a priority. Musician Bruce Springsteen commented, “A time comes when you need to stop waiting for the man you want to become and start being the man you want to be.”  
+
+​“No one improves by accident. Personal growth doesn’t just happen on its own. And once you’re done with your formal education, you must take complete ownership of the growth process, because nobody else will do it for you. As Michel de Montaigne observed, “No wind favors him who has no destined port.”  (Maxwell)
+
+Many people I have encountered operate on a wish premise.  “I wish I were skinnier,” “I wish I made more money,” “I wish the culture of our company would change.”  I wish people would stop wishing and start being intentional about changing their current state. Although seemingly harmless, I believe it can be symptomatic of a larger issue: We wish when what we desire is accompanied by a sense that it cannot be attained or achieved. Wishing is defined by the sense that one cannot realize one’s desires. 
+
+​Problems begin when the reasons for something not being met or achieved have to do with me or what’s in my control. I can wish until the cows come home that I will get the promotion at work. I can wish that tomorrow I will stop drinking or using drugs. I can wish to the point of pining for the partner of my dreams. 
+
+​Great troubles may follow when my wishes become wrapped in expectation. When expectation takes over, my focus becomes less on what I am doing and more on what I deserve (O’Conner). 
+
+It’s very subtle, but to me it implies a form of learned helplessness that we discussed earlier. This point is not to argue about semantics or syntax, but to point out a self-limiting paradigm. Sure, who doesn’t wish they can win the lottery. There’s nothing wrong with that. The problem is when we constantly find ourselves wishing things were different, and not doing anything about it. The most common excuse I hear is, “I don’t have time.”   
+
+They find themselves subject to the Law of Diminishing Intent, which says, “The longer you wait to do something you should do now, the greater the odds that you will never actually do it” (Maxwell).
+
+​I was in a mentoring session with Eric Newble, and he said, “Most people won’t change until they are forced to change.”  And unfortunately, “When opportunity comes, it’s too late to prepare.”  I see this all the time in business. Most companies spend most of their time and money on “running the business,” or “business as usual,” and get quite complacent and don’t see reason to change or determine they don’t have time to change. And when they realize that the market may have shifted, it may be too late. And unfortunately, what once made them extremely successful eventually makes them a relic of the past.
+
+Quartz reported that Blockbuster was known for charging customers a fee every day they were late returning a movie rental. In fact, Blockbuster said it made $800 million in late fees, or 16% of its revenue. This frustrated many customers, including Netflix founder Reed Hastings. Hastings said he founded Netflix because he did not want to pay the $40 fine, he acquired at Blockbuster.
+
+In its early stages, Hastings' company, which had no late fees, and would send DVDs straight to your house for a flat monthly rate. Blockbuster considered buying the popular Netflix service for $50 million, but the company decided to not make the purchase. Netflix went on to become even more popular and more profitable than Blockbuster. 
+
+According to Antioco, in 2004, the company launched Blockbuster Online, but it was already years behind Netflix. At the same time, Blockbuster decided to end late fees. It was estimated that it would cost the company $200 million to stop collecting late fees and another $200 million to start the new venture, Blockbuster Online In the following years, Blockbuster's market value dwindled, hinting at its bleak future (Olito).
+
+​Whatever we have done in the past got us to where we are. We may be in a bad place, or in a good place. But chances are, if you are reading this book, you are trying to improve some area(s) of your life.  I recommend we proactively do what my colleague Tina Grimes refers to as Turning Intention iNto Action (TINA).  That’s also exactly what Reed Hastings di. He was not happy with the current situation and instead of wishing, he created Netflix, was worth $106 Billion dollars at the time of this writing! 
+
+Several years ago, early in my corporate career, I had recently got promoted because I had used my gifts and talents and became proficient in traditional project management skills and used them very well at a large manufacturing company. This entails defining very detailed requirements at the start of the project then executing on those requirements. However, I was assigned to a completely different area of the company where I was to work with data scientists. I would boldly declare how we needed to define requirements upfront, and everyone looked at me strangely. I was taken back by how these incredibly intelligent people were looking at me as if they did not understand what I was saying. So, I would repeat myself, this time with more force. Again, I got blank stares. I was dumbfounded. Finally, the head of the program pulled me aside and said, Uh Niel, we don’t have detailed requirements.”  I was shocked. That was almost sacrilegious. How dare they do not have everything figured out up front. I thought these people were supposed to be super smart! He went on to say, “These are experiments, instead of detailed requirements, we have hypotheses, and we run these experiments to test these hypotheses.”  Well that completely rocked my world. First, I had no idea what hypotheses meant. I was asleep in school when we covered that. I had to look it up. It is the plural of hypothesis, and meant, “a tentative assumption made in order to draw out and test its logical or empirical consequences.” Secondly, based on that, it was as if everything I had done years prior was thrown out the window. 
+
+Consequently, I had to find a new way of doing things, called Agile.  Agile means, “having a quick resourceful and adaptable character.”  In Agile, instead of trying to figure everything out up front, instead you have a hypothesis, and test that hypothesis over short 2–4-week intervals of time, called iterations, or sprints. Based on what happens during those 2-4 weeks, you learn and adjust. We will cover this in more detail in a subsequent chapter. I researched everything about this new way of working.  I even went to my supervisor and said our department really needed to learn this and asked (begged) them to send me to be trained.  I was told, “No,” so I went over his head to his boss, the regional manager. I was again told, “No.” This time I went directly to the divisional manager, and again I was shot down. All three were not happy with me. I did not let that deter me, so I very intentionally voraciously studied everything I could about Agile, spending countless hours and weekends researching. I sought out people in the company who were doing this and one of them took me under his wings and began to mentor me. There was more interest around the company in Agile, and people started coming to me to ask for help with Agile, especially managers. It wasn’t just a new process or methodology; it was truly a mindset shift.   
+
+I was asked to conduct training and speaking engagements, and soon found myself helping transform the organization. It was like a whole new world was opening to me, and I eventually launched out as an independent consultant, keynote speaker, and executive trainer, and have never looked back.  It was a major turning point in my career, and in my life. Up until that point, I was just another employee, but something in me longed for more. I knew I had the potential to be doing so much more than what I was currently doing. But I had to intentionally redefine my paradigm by using the same vigor and energy I previously did, trying to improve myself as an athlete in my career. Some people have called me lucky.  But I believe what Roman philosopher Seneca once said: “Luck is what happens when preparation meets opportunity.” 
+
+​Redefining our paradigm is not just a good idea. According to the articles below it is a necessity.  A Gartner report showed that 33% of the skills listed in a typical job posting in 2017 are no longer necessary in 2021. Over only four years, one-third of the skills required for any position become unimportant enough that they are no longer included in the job description. According to that same Gartner report, job posts now require 10% more skills than previous years. Between higher expectations and many now-redundant skills, employers are looking for workers with a vastly different skill set than what they were searching for less than a decade ago. That is where reskilling workforces can be especially valuable (Friedman).
+
+​There is a great deal of emphasis on reskilling and up-skilling employees in the workforce. The half-life of skills is now 18 months, which means we’ll have to re-skill three to five times in our lifetime to stay relevant. Lifelong employment no longer exists, only lifelong learning (Chakrabarti). Redefining our Paradigms is not just a onetime occurrence, but a continual process. The best way to facilitate this is to commit to lifelong learning.  
+
+I remember when I was coming up the ranks in karate. I went to watch several senior students during their black belt exam. They had trained extremely hard for this moment and executed each technique with precision and budo, or the warrior spirit. I watched with great eagerness and anticipation, In-Visioning myself earning my black belt. Right before the head instructor announced who had passed the exam, he said, “You have worked hard to get to this point.  It is as if you reached the top of a mountain.  However, you realize that the mountain is really a pyramid, and if you look up you realize you are really at the bottom of an inverted pyramid, that is forever expanding because Karate is a way of life.”  Our lives should be like that upside pyramid, forever growing and expanding. 
+
+  
+
+Early in my career, I remember looking at a particular certification that was the highest level of certification in my field:  The SPCT®: 
+
+Scaled Agile 
+
+Program 
+
+Consultant 
+
+T (stands for): 
+
+Trainer 
+
+Trusted Advisor 
+
+Transformation Architect 
+
+I remember looking at that and thought that it would be great to earn it, but then I looked at the incredibly stringent requirements and learned that out of 27,000 people around the world in my field, there were only approximately 125 people who had earned it. I chuckled inside and said, “No way!”  I did not think there was any way I could be one of those 125 people; it was merely a wish. 
+
+​Over the next few years, I gained a lot of valuable experience as a consultant. Because of that, my colleague, Yvonne Delaney asked if she could partner with me in a session, where I was going to facilitate for a Vice President of Product for a multibillion-dollar company. She told me it was a requirement for the SPCT program she was in. Something inside me jumped and began to ask her all about the program. She really encouraged me to apply for it. I also spoke with others who were part of the original cohort or 1st graduating class. I decided to stop wishing and to go for it. I figured the worst that could happen was that I wouldn’t get in, and I would be no worse off than where I was, but I would learn a lot and be a better coach/consultant. 
+
+​This was a very involved process. It was a combination of transformational experience within companies, academic work, and conducting different trainings. I would have to write reports on every one of the above activities.  Also, not everyone could go through the program. You had to apply and go through a very rigorous screening process just to get in. Just filling out the application was very involved. It was like earning a PhD. I would plan out my days and weeks and intentionally block out time to study, conduct necessary training, gather necessary experience, and write reports. I did all of that while running my business, and along with my incredible wife, raising three young kids, and training in the martial arts. Oftentimes that meant spending a lot of weekend mornings, or afternoons while kids were napping after a full day of client meetings, on the above listed activities. If I had to drive anywhere, I would listen to the audiobooks of the required material. I also partnered with the top consulting company in the industry, Cprime, who had the most people with this certification. I had three people mentor me, as well as befriended others who had been through or were in the process of going through this program and tried to learn everything I possibly could. It was a very intense time. I was able to complete this 2-year program in less than 6 months and become the 126th person in the world to earn this distinction. 
+
+A year before that, I wanted to earn my blue belt in Brazilian Jiu Jitsu or BJJ. I hold a third-degree black belt in Karate and I am a Certified Level 1 Coach from USA Boxing, but I was not well versed in grappling or ground fighting. I had trained BJJ off and on for years, but never really dedicated myself to it like I did with Karate and then later boxing. Many people can earn their blue belt within 1-2 years of training, I had been training for over 8 years and still hadn’t earned mine. I had stopped training a few times because I had several surgeries and was busy starting my consulting career. But in complete transparency, though those were factors, the biggest reason I shied away from it was because I was honestly very bad at BJJ. I would often get pinned down by a sweaty opponent who was trying to choke me or put me in an armbar. It was extremely uncomfortable, to say the least. It brought back memories of all those years of my failed attempts to play sports.  
+
+​But I was tired of being so bad at grappling and wishing I was better. More than that, I was extremely embarrassed of myself for being a so-called martial artist and motivational speaker who proclaims we can maximize our potential, but for years I was giving into fear and avoiding BJJ every chance I got. So, I intentionally decided to really focus on getting better. I would drive 35 minutes several times a week to train at 5 AM. Sometimes, I would take private lessons with my instructor. It was very difficult. I was typically much older than most of the other students, 5-10 years on average, and in some cases, over 20 years older. I was completely tired out just from the warmups. I struggled with even the most basic techniques. I got beat in almost every sparring session, even by people who had no martial arts experience. Some literally just came off the street, and after a few weeks, they were beating me. But I was determined that I was going to practice what I preached:  
+
+In-Visioning a better you – I kept visualizing the different techniques over and over, and visualizing myself becoming more and more competent.  
+
+Positive explanatory style – I had to constantly encourage myself that despite how much I was struggling I was getting better, and kept looking for small, subtle signs of improvement, such as maybe lasting longer with an opponent before getting submitted, or maybe making my opponent go to a 2nd move vs getting beat with the first. I figured getting up and training was helping me improve more than sleeping in my bed. I had to stop telling myself, “Man, I am really bad at this,” and replace it with things like, “Every day I’m going to get a little better than I was yesterday.”  
+
+Growth Mindset – I had to keep telling myself, despite my athletic limitations, I can and will keep getting better. I was learning which techniques I struggled with, and how to counter them. I was embracing the learning process and starting to enjoy it!  
+
+Intentionality – The night before class, I would have my gym bag ready, with my BJJ uniform and water bottle so I could just get out of bed and go. I would prime my mind.  
+
+​I also started eating better and working out the days I didn’t train. Fortunately, I had great teammates who would provide constructive criticism and would try to help me get better, and great coaches. Ed Lemonier and Mike Lavazza were black belts in our organization and were incredibly patient with me. I would text my friend Doug Kimball, who was also a black belt and the one who encouraged me to get into BJJ years ago, after almost every class and he would tell me to stick with it, even when I would get very discouraged and wanted to quit.   
+
+​After nearly a year and half of training, and a whole lot of butt whooping’s, it was time for belt promotions. Our head instructor, an 8-time world champion Professor Robson Moura, came down. Several members from our affiliated schools came down as well. We were all standing against the wall, all around the school, with Prof. Robson and Coach Ed up front. They would call out people’s names, and the promoted student would come up front, and Professor Robson would put the belt around them. It was a tremendous honor. After several promotions, Coach Ed held up a blue belt and said one word: “Perseverance,” and the room erupted with applause, and despite my best efforts I burst into tears. My friend Doug was smiling ear to ear.   
+
+  
+
+Me receiving blue belt from 8-time world champ Robson Moura 
+
+  
+
+Coach Ed, Prof Robson, Me, Coach Doug (left to right) 
+
+I eventually was presented the first ever Perseverance Award. The Award said:  
+
+Perseverance Award Presented to: 
+
+Niel Magsombol 
+
+The jiu jitsu journey is not an easy one. Adversities will present themselves, both on and off the mats. You have overcome them all to be where you are today. 
+
+The major concepts that we have covered in this chapter are the following:
+
+Learned Helplessness  
+
+Neuroplasticity  
+
+Growth Mindset  
+
+Explanatory Styles – Pessimistic vs Optimistic   
+
+My main key takeaway from these concepts is that we don’t have to be stuck, and we do not have to accept our current state. We have the ability to redefine our paradigms and truly grow and develop our potential. There is nothing stopping us from being who we were meant to become:  The choice is ours. 
+
+Exercises: 
+
+What do you often find yourself “wishing for”?  
+
+What don't you want to attempt that if attempted, could make you successful?   
+
+Why don't you want to attempt it?   
+
+What is your first reaction or thoughts when you make a mistake or fail?   
+
+How do you react when you're faced with criticism or feedback?  
+
+How can you use concepts covered in this chapter to change your narrative, Redefine Your Paradigm:  
+
+Neuroplasticity  
+
+Fixed vs Growth Mindset  
+
+Explanatory Style:  Pessimistic vs Optimistic  
+
+And finally, take the vision or goals you want to achieve and meditate on them day and night.   
+
+When those ideas start coming and when they start streaming in, because they will -- if you do these exercises, I guarantee you they will -- start writing them down, and then meditate on those and allow those ideas to spur creativity and write those down. You will develop this incredible cycle of creativity and innovation that will allow you to Redefine Your Paradigm.
+
+c1E9
+
+Chapter 5
+
+Impossible Possible:
+
+Little By Little
+
+“Doctors and scientists said breaking the four-minute mile was impossible, that one would die in the attempt. Therefore, when I got up from the track after collapsing at the finish line, I figured I was dead” (Bannister). Roger Bannister was Great Britain’s best hope for a Gold Medal in Track and Field, competing in the 1500-meter race. He had devised a new training strategy and chose to skip the previous Olympics held in his home country to focus on medical school, which raised many eyebrows across the country. A few weeks prior to when he was to compete, much to his surprise, the Olympic committee added an additional heat, so he had to run an extra race that he was not expecting to, and it greatly affected him: “I hardly had the strength to warm up. As I walked out in front of those 70,000 spectators, my step had no spring, my face no color. The ruthless fighting of the semi-final, the worry and lack of sleep, had exhausted me. There had been too little time between the races to regain my strength. 
+
+Everyone wished me well, but they could not help me here. The world was expecting the supremacy of one of these twelve runners to be revealed by a stroke of genius. We stood there, twelve anxious men waiting for the start. Twelve is far too many for a 1,500-meter race of this class. We pushed and struggled along, continually changing positions. 
+
+At the bell on the third [and final] lap, we were five abreast waiting for someone to try to break away. Barthel came up alongside. Only a minute more and it would be all over. On the back straight I forced myself to move up to Lueg’s shoulder. I lay second before the last bend, perfectly poised for my finishing effort. This was the crucial moment, for which I had waited so long. But my legs were aching, and I had no strength left to force them faster. I had a sickening feeling of exhaustion and powerlessness as Barthel came past me, chased by McMillen (USA) (Bannister).
+
+He finished 4th at the Olympics, 8-tenths of a second from winning gold, and 6-tenths of a second from winning bronze. He was roundly criticized for his training approach and failing to win a medal: There was some criticism in the British press over my failure. Britain had not won a gold medal on the track, and I was the last chance. Other writers suggested that my four- year plan had failed. After a headline, ‘No - Roger wasn’t nearly tough enough’, ‘Staff writers were almost unanimous that the 1,500-meters final showed this athlete’s Bannister’s training methods to be wrong; an error to which many of them had drawn attention earlier in the summer.’ To me it was a failure. If one fails in the Olympics, there is no second chance - the years of waiting would seem an eternity of hopelessness. Any attempt to explain away a disappointment is taken as an admission of failure (Bannister pp. 142-143).  
+
+To redeem himself, he decided to try to break the 4-minute mile, something no one in history had ever done! The 4-minute mile seemed to be an impossible task; runners had been trying to accomplish it since the late 1800’s. Therefore, scientists and doctors declared no human could do it.  
+
+Whether we as athletes we liked it or not, the four-minute mile had become like an Everest – a challenge to the human spirit. It was a barrier that seemed to defy all attempts to break it - an irksome reminder that man’s striving might be in vain. The Scandinavians, with their almost excessive reverence for the magic of sport called it the ‘Dream Mile’ (Bannister p. 150).  
+
+“For years milers had been striving against the clock, but the elusive four minutes had always beaten them,” he notes. “It had become as much a psychological barrier as a physical one. And like an unconquerable mountain, the closer it was approached, the more daunting it seemed” (Taylor).
+
+Roger was in medical school, and often had little time to train. What he did was ingenious. He broke down the race little by little and designed a training plan that could fit into his schedule and allow him to break the record. He trained during his lunch hour, five days a week. A major part of his training utilized interval training, running shorter distances, but at much higher intensity at record speed, unlike other runners of his era. They would run greater distances at lower intensity and much longer duration. 
+
+After training for several months, he was ready to try to break the record. However, the conditions were not favorable. The experts believed they knew the precise conditions under which the mark would fall. It would have to be in perfect weather — 68 degrees and no wind. It would have to be on a particular kind of track — hard, dry clay — and in front of a huge, with a boisterous crowd urging the runner on to his best-ever performance. But Bannister did it on a cold day, on a wet track, at a small meet in Oxford, England, before a crowd of just a few thousand people. 
+
+In my mind I had settled this as the day when, with every ounce of strength I possessed, I would attempt to run the four-minute mile. A wind of gale force was blowing which would slow me up by a second a lap. To succeed I must run not merely a four-minute mile, but the equivalent of a 3 minute 56 second mile in calm weather. I had reached my peak physically and psychologically. There would never be another day like it. 
+
+I had to drive myself to the limit of my power without the stimulus of competitive opposition. This was my first race for eight months and all this time I had been storing nervous energy. If I tried and failed, I should be dejected, and my chances would be less on any later attempt. Yet it seemed that the high wind was going to make it impossible. I had almost decided when I entered the carriage at Paddington that unless the wind dropped soon, I would postpone the attempt. 
+
+Spectators fail to understand - and how can they know - the mental agony through which an athlete must pass before he can give his maximum effort (Bannister p. 168 - 170).  
+
+While on the train traveling to the track, he ran into a colleague. He confided in him about his concerns about the weather. To which his colleague replied, “If you wait for the perfect opportunity, you may never get another opportunity.” Therefore, he accepted his date with destiny and despite the difficult conditions, he went after it. 
+
+Those last few seconds seemed never-ending. The faint line of the finishing tape stood ahead as a haven of peace, after the struggle. The arms of the world were waiting to receive me if only I reached the tape without slackening my speed. If I faltered, there would be no arms to hold me and the world would be a cold, forbidding place, because I had been so close. I leapt at the tape like a man taking his last spring to save himself from the chasm that threatens to engulf him. The stopwatches held the answer. The announcement came — ‘Result of one mile . . . time, 3 minutes’ - the rest lost in the roar of excitement (Bannister).
+
+For his efforts, he was able to write his name in history. To achieve perfection in one thing, however small, makes it possible to face uncertainty in the more difficult problems of life (Bannister (p. 146).
+
+How did he accomplish the impossible? 
+
+1.      IN-VISIONING – Roger Bannister said in an interview, “The brain must be positive; the brain has to have some overall image of what is being achieved.” He described seeing himself, in an almost out of body experience, breaking the 4-minute mile. He literally visualized himself doing it. He IN-VISIONed his future!  There are numerous studies that describe the power of visualization in athletic performance. However, it is not just relegated to athletics, but IN-VISION yourself accomplishing whatever burns in your heart and watch it become reality. 
+
+2.      Did not succumb to the Paradox of Perfection - After his failure at the Olympics and the ensuing criticism, it would have been easy to quit running altogether. Medical school is daunting enough. Instead, not only did he take on the demands of med school, but also the challenge of breaking a barrier that no one else had ever done. 
+
+People often think they must wait for the perfect time to pursue their passion. A common excuse I hear from individuals is “I don’t have enough time.” We all have the same 24 hours within a day. It’s what we do with those hours. We all have busy lives and time is precious.  John Maxwell often says: If I could come to your house and spend just one day with you, I would be able to tell whether you will be successful. You could pick the day. If I got up with you in the morning and went through the day with you, watching you for 24 hours, I could tell in what direction your life is headed.
+
+`   Here is why: I believe that the secret of your success is
+
+determined by your daily agenda. If you make a few key decisions and then manage them well in your daily agenda, you will succeed. You will never change your life until you change something you do daily. You see, success doesn’t just suddenly occur one day in someone’s life. For that matter, neither does failure. Each is a process. Every day of your life is merely preparation for the next. What you become is the result of what you do today. In other words, you are preparing for something (Maxwell).
+
+All we need to do is look at the results of our daily agenda, and then look at the results we are getting. Our system is perfectly designed to give us the results we are getting. If we are perfectly happy with our results, then great. There is no need to change. However, if you desire to improve yourself, then something needs to change.   
+
+I have never been to medical school, but I can only imagine how busy it was, and yet he found a way to accomplish something historic, in just five hours a week.  My mentor Eric Newble loves to say, “There are many more ways to get a thing done than there are not to!”  Roger also took heed to his friend’s advice and decided not to wait on perfect conditions the day of the race, because they may never occur. He was confident in the training and preparation he had done and decided to chase history. Some people wait on the stars to align, while others align their own stars.   
+
+3.      He was not limited by the current state. He Redefined the Paradigm. He really looked at this very logically and objectively. Several folks had gotten close, including himself.  So, he thought: “A human being can run a mile in four minutes and 2 seconds, and [why can’t] someone come along, train a little better, know that there’s a target to beat and beat it…it became a paradigm of athletic achievement, what limits are there?” (Bannister)  
+
+He did not believe it was impossible. Instead, he believed it could be done, and that he could be the one to do it!   
+
+4.                   Doing the impossible opened possibilities for others. Although many runners previously were very close to breaking it, none were able to until Bannister accomplished it. His chief rival, Landy, had said it was like a “wall.”  But once he did it, he proved it was possible, and that aura of and mystique of impossibility was shattered, because the record only lasted for 46 days, when his rival John Landy Broke it.  Less than two months later, they raced with Bannister, winning in 3 minutes 58.8 seconds with Landy, just 8 tenths of a second behind, becoming the first time in history 2 people broke 4 minutes. A year later, 3 runners beat 4 minutes in the same race. Ten years later Jim Ryun became the first high schooler to break the barrier. Over the next half a century thousands of people have broken the 4-minute mile. 
+
+This is a hard thing to achieve, much harder than the physical conditioning.  In fact, I have never thought the physical side was all that important; it can be mastered by effort. But to create a climate of incentive in the mind-that is the real accomplishment (Cantrew).
+
+We have no idea the impact we can have on others. Sociologists say that the average person, not just CEO’s, Politicians, famous actors, etc. will affect approximately 10,000 people in their lifetime. If that’s the case, doesn’t it make sense to influence people from all the incredible things we have learned on our journey towards our ideal future state? 
+
+He broke down the impossible, little by little, into an experiment.  
+
+“I felt running was an experiment:  Here were muscles, here was a heart, here were lungs, to what extent could this bit of machinery be trained to do a very specific skilled task?  The training had to fit the event.  How do you release physical and nervous energy over minutes?” (Bannister)
+
+He really broke down the race. It was 4 laps, a quarter mile each, and each lap must be run just under 1 minute. Due to his responsibilities at medical school, he was very limited in his training time.  During his lunch hour, he began to adopt interval training, where he would run 10 quarter mile intervals, with a 2-minute rest in between for a total of approximately 35 minutes of training. Others were training for hours several times a day! He kept doing this and progressing until eventually he got down to where he was running the quarter miles in just under a minute. He accomplished the impossible by training only five hours a week. Some of his contemporaries nearly trained that much in a day! 
+
+​Mark Twain once said, “The secret of getting ahead is getting started. The secret of getting started is breaking your complex overwhelming tasks into small manageable tasks and starting on the first one.” 
+
+​This type of thinking is used in Agile, in which I use all the time in corporate America. Whatever your vision or goal is, really take an objective look at it, and think of it as an experiment and break it down into smaller pieces. As you begin to experiment on these smaller pieces, learn from them, and adjust. Then rinse and repeat. We don’t think in terms of passing or failing, but we take a growth mindset and neuroplasticity and frame it in terms of learning and growing. We will describe this approach in more detail in a subsequent chapter. 
+
+​Experimentation is the key to learning. Understandably many people view the Wright brothers as the ones who invented the airplane. But what they don’t get enough credit for is their method of invention based on experimentation, and not just the invention itself. 
+
+​Orville and Wilbur Wright’s dream and stubborn persistence brought them immortality for their development of heavier-than-air flight. Yet, their greatest contribution may well have been the development process that yielded the airplane. Initially they did not set out to invent the airplane because they deemed the problems to be too difficult. Instead, they resolved to undertake a study to contribute and help advance the knowledge of flight. This mindset of creating reusable knowledge rather than designing an airplane laid the foundation of their development process—a process that cost them roughly $1,000 over five years and resulted in powered flight on the third attempt. 
+
+They went through cycles of learning that explored possibilities while narrowing the set of possible solutions. Through deliberate learning cycles they safely discovered the limits of what worked and more importantly what did not work. They tested the limits and evaluated trade-offs in relative safety. They designed alternative solutions in sets as they tested the limits of their design. Because of their methods, the Wright brothers knew they had solved the problem of flight before they physically demonstrated it (Oosterwal).
+
+​The Wrights were not formally trained as engineers. In fact, Wilbur was planning to attend Yale, but was struck in the face with a hockey stick and though his injuries healed, he became withdrawn and even went into depression.  He soon started caring for his mother who had tuberculosis. While at home, he did extensive reading in his family’s library. Orville dropped out of high school to open a print shop, and later they both opened a bicycle shop. Their father had bought them a toy helicopter, and kept tinkering with it, until it broke, and they created their own toy helicopter. They later attributed this toy as being the object that sparked their interest in flight. Their parents always encouraged them to explore their curiosity. 
+
+“We were lucky enough to grow up in an environment where there was always much encouragement to children to pursue intellectual interests; to investigate whatever aroused curiosity. In a different kind of environment, our curiosity might have been nipped long before it could have borne fruit.” (Wright)
+
+The Wright’s story was in contrast that with Samuel Langley, an astrophysicist, renewed astronomer, and Head of the Smithsonian Institution. He received a federal subsidy worth over $1 million of today’s money. He assembled the best minds of the time and had access to the best technology and resources.  
+
+​Meanwhile, the Wrights had none of what Langley had. They started out in the back of their bicycle shop, and eventually went to Kitty Hawk North Carolina, due to the winds. The tools they used were the ones they used for the bikes. They started by initially researching available literature on flight and then observed how birds flew in the wind. Then they used kites to conduct experiments and learn. They felt the data they were gathering wasn’t correct and built a wind tunnel to experiment with model wings to get better data. They then took that information and built unpowered gliders and tested their theories and continued to experiment and learn. They also bucked the prevailing theories of flight control. Instead, they wanted to give control to the pilot.  According to Nasa.gov: Besides being airplane designers, and test engineers, the Wright Brothers were the first pilots of a heavier than air, powered aircraft.  They developed their piloting skills by making over 1000 flights on a series of [unpowered] gliders at Kitty Hawk between 1900 and 1902. At the time of their first powered flight, the brothers were the most experienced pilots in the world. 
+
+Langley and team attempted to have their aerodrome fly. And it went straight into the Potomac River. They tried again, and again but it went into the Potomac. The New York Times published the following on October 8th & 9th, 1903: “FLYING MACHINE FIASCO; Prof. Langley's Airship Proves a Complete Failure. Prof. Manley, in the Car of the Aerodrome, Escapes with a Ducking in the Potomac.” Times went on to say, “It might be assumed that the flying machine which will really fly might be evolved by the combined and continuous efforts of mathematicians and mechanicians in from one million to ten million years.” 
+
+​However, nine weeks later, on December 17, 1903, Wilbur and Orville Wright made four brief flights at Kitty Hawk with their first powered aircraft. The Wright brothers had invented the first successful airplane (airandspace.si.edu).
+
+​Why did these uneducated gentlemen accomplish what someone with access to the best resources could not? “Wilbur and Orville were true scientists, deeply and genuinely concerned about the physical problem they were trying to solve—the problem of balance and flight,” said James Tobin, the Wright brothers’ biographer. Langley, on the other hand, was consumed with acquiring the level of prestige of his associates like Alexander Graham Bell, fame that he knew would come only with a major scientific breakthrough. Langley, Tobin said, “did not have the Wrights’ passion for flight, but rather was looking for achievement” (Sinek).
+
+​The Wrights started out exploring out of curiosity. That curiosity became a passion to learn. They learned how to learn; they were creating reusable knowledge through experimentation. That knowledge is what they used to build the first powered aircraft. And these were not super high tech sophisticated experiments, but rather simple ones, using kites similar to what kids use. After that, they used a handmade wind tunnel, then non powered gliders. They took those learnings and kept adjusting and kept experimenting. What is amazing to me is that they were not getting paid to do it! This may have been history’s greatest side hustle.   
+
+​When people tell me they want to start their own business, or nonprofit, or whatever it is they want to do, I highly encourage them to first break down whatever they are trying to do into little, more manageable, pieces by conducting small, inexpensive, low risk experiments, in order to learn. I never tell anyone to drop everything they are doing and start something from scratch.  
+
+​An experiment may be something as simple as having an idea of opening a restaurant. At the next birthday party, or social event, or maybe even a charity event, offer to cook. Pretend they are your customers and make whatever you think you would make at your restaurant, preferably a low-cost version.  Serve the people, watch their responses, and maybe even take a survey of what they liked and what they did not like. It’s important to use that feedback to continually improve. 
+
+​For me, I started my speaking career by going on LinkedIn and asking people if they needed a speaker. I contacted maybe 25 people. One responded and offered to let me speak at his small event and told me up front that I wasn’t getting paid. Not only was I not getting paid, but I also had to drive over 600 miles round trip, and pay for my own hotel. Luckily, I had a car that got good gas mileage and found an affordable hotel. I jumped at the chance, and the people loved the talk I gave. It opened another opportunity. Since I was doing these for free, they let me market my services. I would offer a 2-day training at a discount for those who were interested. I jumped at any chance I could to speak. I was getting exposed to more and more audiences and getting much needed practice and feedback to hone my craft.   
+
+When you conduct your own personal experiments: 
+
+See if you have something that people want, and will there be demand for what you are offering?   
+
+If people are responding well, continue to experiment and learn and continually ask yourself how you could continue to scale that up into a business or career.    
+
+If you’re not getting the response you want, ask why not, and adjust until you do get the responses.  
+
+Be willing to change your approach. The Wright brothers were not locked into a specific method or solution, and they quickly pivoted to another solution when the assumptions they were making proved incorrect.   
+
+This may be just as important. Ask yourself: Are you enjoying it? Author and speaker Jeff Henderson used to work in marketing at Chick Fil A, and people would ask him if they should get a franchise restaurant. He would encourage them to work part time at a Chick Fil A to see what it’s like, and that would let them know if they should get one.    
+
+​If you are an employee somewhere and have no desire to start your business or nonprofit, but you want to advance your career, explore “informational interviews.” Many companies will let an employee meet with a manager in a different area of the organization and learn about that area, and sometimes could do a 1-day job shadow to see if they would like it. You could also expand your professional network and find people in and out of your company who work in your field, or fields you may want to work in. I used LinkedIn extensively and was able to talk with numerous people who were very gracious to help me along my journey.   
+
+​If you want to get in shape, experiment with different forms of exercise, and don’t just try to run a marathon when you haven’t run since high school. There are numerous ways to experiment with this, to find out if you would like it. It’s vitally important to know that whatever endeavor you choose, you are very passionate about it and enjoy it. That passion will fuel you when difficult times come. The whole time the Wright brothers were learning to fly, they didn’t consider anything a failure, but only a learning experience. Their passion fueled them to keep learning, until one day they could fly. 
+
+​If you answered questions one and two, ask yourself how you can make this a viable side hustle. Some people may be able to start a business right from the start, without making it a side hustle. However, just make sure you and your family are ready for it. A side hustle can be considered another experiment, possibly another means of income, until you are ready.  
+
+​If you are within a company, maybe there are volunteer opportunities you would find fulfilling that could add value to others and yet keep your job. Maybe you can redefine your current job, to do things you are passionate about that could potentially add value to your organization. Keep in mind, the Wright brothers never closed their bicycle shop, and no one was paying them to learn how to fly. As a matter of fact, since the US had spent so much money with Langley and got nothing for it, they were very hesitant to invest anymore, so the Wright brothers did not start profiting until they went to Europe. Their shop is what supported them throughout the whole process. You can think of your current job as funding your dream.  
+
+What is something you desire to do, but feel it is impossible to accomplish? 
+
+I urge you to:  
+
+IN-VISION Your Future. - Harness the inner power of visualization.  
+
+Look past the paradox of perfection. – Always strive for perfection, but never hesitate to wait on perfect conditions. 
+
+Redefine Your Paradigm.   
+
+Understand that you doing the impossible opens up possibilities for others.  
+
+Break down the impossible little by little through Experimentation.  When conducting experiments, ask yourself.  
+
+●        Are you doing something that others find value in?   
+
+●        Are you enjoying it?  Does it energize you? 
+
+●        Can this be a side hustle?
+
+c1E4
+
+Chapter 6
+
+Little By Little:  Doing Big Things In Life
+
+“It’s the little details that are vital. Little things make big things happen” (Wooden).
+
+“When it is obvious that the goals cannot be reached, don’t adjust the goals, adjust the action steps” (Confucius).
+
+​This chapter is Part 2 of the previous chapter. As we saw with Roger Bannister & The Wright Brothers, the key to doing the impossible is breaking it down, little by little, into small pieces that we can make into experiments from which we can learn and adjust. By breaking things down into smaller pieces, it can also help us generate short term wins. Harvard Business School professor, author, and consultant, John Kotter discusses the need for short term wins: 
+
+Provide evidence that sacrifices are worth it. Wins greatly help justify the short-term costs involved.   
+
+Reward [people] with a pat on the back. After a lot of hard work, positive feedback builds morale and motivation.   
+
+Help fine-tune vision and strategies. Short-term wins give…concrete data on the viability of their ideas.   
+
+Undermine cynics and self-serving resisters. Clear improvements in performance make it difficult for people to block needed change.   
+
+Keep [important individuals] on board. Provide those higher in the hierarchy with evidence that the transformation is on track.   
+
+Build momentum. Turn neutrals into supporters, reluctant supporters into active helpers, etc. (Kotter). 
+
+​I look at short term wins as building equity in your vision. It provides evidence you are on the right track, and sometimes more importantly, provides feedback to get on track and adjust. Rarely, if ever, will we get things completely right from the beginning. We will constantly be adjusting and fine tuning our strategy. It is better to find issues early on and get them resolved, rather than when you are betting your entire livelihood later in the game. 
+
+​To get short term wins, we must intentionally set short term goals that are broken down from larger, overarching strategic goals. These could be monthly, biweekly, weekly, or even daily goals. By accomplishing goals regularly, it increases motivation. 
+
+According to Locke & Lathem:
+
+●        Harvard research documents that 83% of the population of the United States do not have goals. 
+
+●        92% of New Year resolutions fail by the 15th of January. 
+
+●        People who write their goals are more likely to achieve their goal than those who don’t by 50%. 
+
+●        Explaining your goals to someone you are close to, or making the commitment public, substantially increases your chances of reaching your goal. 
+
+●        By contrast, goals that are kept to oneself are more likely to be mixed up with the 1,500 thoughts that the average person experiences by the minute. 
+
+●        Goal setting typically yields a success rate of 90%. 
+
+●        Goals have an energizing function. The higher the goal, the greater the effort invested (Tocino-Smith). 
+
+​When I work with large corporations, I usually have them start off with an Inspirational Vision (IN-VISIONing their Future!). Then we take that vision and break it down by conducting quarterly planning every 3 months or 12 weeks, to determine quarterly goals, then biweekly (or “sprint”) planning to create sprint goals, and then daily goals. As teams work towards those goals, we are constantly learning, adapting, and adjusting as new information becomes available. I have seen the power of this time and time again for corporations, and when I coach individuals.   
+
+​According to Grant and Dweck, two classes of goals were identified: performance goals, where the purpose is to validate one’s ability or avoid demonstrating a lack of ability, and learning goals, where the aim is to acquire new knowledge or skills. 
+
+​Understandably, most companies are hyper focused on performance goals. This can cause quite a bit of pressure and stress and can actually be counterproductive. For example, Toyota historically had an excellent continuous learning culture.  However, several years ago, they had several safety issues that caused several deaths. Toyota recalls eight and a half million vehicles worldwide because of instances of sudden acceleration. Mr. Toyoda said the problem stemmed from the company's desire to become the world's largest automaker. Akio Toyoda affirmed: “We pursued sales volume over the speed at which we are able to develop our people and our organization, and we should sincerely be mindful of that. I regret that this has resulted in the safety issues described in the recalls we face today” (Taylor).
+
+​I recommend, especially early on, that we learn from the Wright Brothers, and focus on learning from our early experiments. As things become more robust, begin to mix in some performance goals. For large corporations, ideally there is a balance of performance and learning goals. Too much focus on performance goals creates a culture where people are punished for failure. Consequently, there is little learning or innovation. A true learning culture allows people to fail, to learn, that is how innovation happens.   
+
+​Setting short term learning goals takes advantage of what I believe is one of the key ingredients or secret sauce- internal locus control. One of the biggest drivers of success is the belief that our behavior matters; that we have control over our future. Yet when our stresses and workloads seem to mount faster than our ability to keep up, feelings of control are often the first things to go, especially when we try to tackle too much at once.  
+
+​If, however, we first concentrate our efforts on small manageable goals, we regain the feeling of control so crucial to performance. By first limiting the scope of our efforts, then watching those efforts have the intended effect, we accumulate the resources, knowledge, and confidence to expand the circle, gradually conquering a larger and larger area. The most successful people, in work and in life, are those who have what psychologists call an “internal locus of control,” the belief that their actions have a direct effect on their outcomes (Achor p. 129).
+
+​Daniel Pink, in his book Drive, stated two major motivators for humans are autonomy and mastery. Setting small learning goals allows us to have self-directed autonomy, or an internal locus of control, as well as develop mastery of new skills through learning and deliberate practice. By doing that, research has proven, performance increases (Pink).
+
+​In coaching and training countless individuals in large corporations and nonprofits, one of the biggest hindrances people have is trying to accomplish a large strategic vision by trying to figure everything out at the beginning, and attempting to accomplish things in big batches or phases. A vision is essentially an aspirational postcard from the future. The whole point of a vision is to give us a direction that is an improvement over the current state. As we embark on this journey towards vision, we are constantly experimenting, learning, and growing. Yet, human nature tries to interpret that vision of the future through the lens of today. If we could figure everything out at the onset, why do we need a vision? Vision describes your what and your why, and the plan is the how. How you execute that vision will continually change based on the discovery of new information. You will learn as you go, just as the Wright brothers did, to create powered flight. Too many companies, nonprofits, entrepreneurs, and people in general fall in love with the plan or the how. As Paul Martinelli, an entrepreneur who has built numerous multimillion dollar businesses in different industries says, “Love the dream, kill the plan.”
+
+​This is not to imply planning isn’t important. It absolutely is important. Benjamin Franklin says, “If you fail to plan, you plan to fail.” However, when you are first starting you will most likely encounter challenges, and you must adapt and replan. So, you are always planning, learning, adjusting, and replanning. 
+
+​Years ago, I started my corporate career working in Project Management. A standard project plan follows a very linear step by step process. A traditional project plan is broken up into phases: 
+
+Gather Requirements:  Figure Everything   
+
+Out First. 
+
+Design Everything.  
+
+Build Everything.  
+
+Test Everything.  
+
+Send Everything to The Customer.  
+
+ ​It seems very logical and for decades this is how many companies ran projects. The underlying premise is that you can know everything at the start of a project, and you will get it right the first time. Winston Royce, the person who initially created the diagram of this process said, “I believe in this concept, but the implementation described above is risky and invites failure. The required design changes are likely to be so disruptive that the requirements upon which the design is based, and which provides the rationale for everything are violated.  Either the requirements must be modified, or a substantial change in the design is required. In effect the development process has returned to the origin and one can expect up to a 100-percent overrun in schedule and/or costs” (Royce).
+
+​It could be weeks, months, sometimes years trying to “gather requirements,” or trying to figure out everything up front. However, in the new digital age, things are constantly changing at an ever-increasingly rapid pace. It is nearly impossible to know everything up front at the beginning of the project. This traditional way was proving ineffective due to its rigidity. The Standish Group reported that 84% of projects were not successful and cost companies over $80 billion dollars.   
+
+​A lot of our management practices today were very linear based upon manufacturing. Professor at the London School of Business, Gary Hamel states that “the foundations of ‘modern’ management were laid by people like Daniel McCallum, Frederick Taylor, and Henry Ford, all of whom were born before the end of the American Civil War in 1865.” Many practices were created to optimize the assembly line, therefore were very linear. However, things are different when dealing with people: Management systems and processes tend to be linear. They assume that similar inputs will result in similar outputs. In many situations, this holds true. Leadership, however, requires a more nuanced view of the world because it involves people: what motivates them, what their interests are, and how engaged they become. Mechanical systems may be linear but as soon as the human element becomes involved the system becomes both complex and adaptive (Maxwell).
+
+​Consequently, companies needed something that was more flexible that could adapt to the highly dynamic and rapidly changing landscape. I have worked with some incredible data scientists who specialize in data analytics. They try to use data to predict trends, and though they have made great breakthroughs, analytics still cannot predict every variable that will inevitably surface. For example, much of the predictive analytics did not work during the pandemic because data is based on historical trends, and the pandemic was unprecedented. Prussian Field Marshal Helmuth von Moltke once said, “No plan survives first contact with the enemy.” I prefer this interpretation: “Everyone has a plan until they get punched in the mouth” (Tyson).   
+
+​Instead, we want to adopt an Agile mindset. Webster’s Dictionary definition of Agile is “having a quick, resourceful and adaptable character:  an agile mind.”  In Agile, instead of trying to figure out everything at the beginning before we start working on something, we break things up into little pieces and try to learn as we go. 
+
+Have an idea.  
+
+Run an Experiment on an Idea.  
+
+Learn From Experimental Ideas.  
+
+Adjust and Improve Ideas.  
+
+Rinse and Repeat.  
+
+​This is no longer cutting edge. This is now becoming standard practice in corporations around the world. and not just major corporations, but especially small startup businesses. The phrase in Silicon Valley was “Fail Fast.” I prefer the term, “Learn Fast.” This is what I have dedicated my career to do. This mindset utilizes the short-term wins/goal setting theory discussed earlier. 
+
+​For example, let’s say you want to run a marathon but haven’t run in years, or have never run. First make sure your doctor says you are ok to begin an exercise program. Then start walking around your neighborhood for a few blocks. Build up to 3-5 miles. Once you are comfortable with that, see if you can jog/walk 1-2 miles a few times a week. Then try 2-3 blocks, and slowly and steadily increase from there. While doing this, listen to your body, talk with other runners, and possibly get a running coach. Use that feedback during training and adjust as you go. Most people want to quickly increase their mileage, but some weeks you may have to take it easy to allow your body to adapt. I know numerous individuals who have done this. At first the thought of running a marathon was impossible, but little by little, they eventually did, and now running is a part of their lives. 
+
+​Let’s say you are an entrepreneur, and you want to start a business. My favorite definition of an entrepreneur comes from a Forbes article by Brett Nelson, who states, “Entrepreneurs, in the purest sense are those who identify a need, any need, and fill it. Entrepreneurship is a primordial basic and fundamental urge, independent of product, service, industry, or market.” 
+
+​Regardless of if you work in a big company, want to start your own business, or work in a nonprofit, or you are interested in your own personal development, you must have an entrepreneurial mindset, where you find a need and try to fill it. Figure out how you can meet a need in your own unique way and then create a small inexpensive experiment and see if your idea will work. Then learn from that experiment and adjust, rinse and repeat. There are several reasons to start small.
+
+​First is minimizing overhead. Rather than spend an inordinate amount of time, energy, and resources on something that may not work, starting small allows you to test your idea/hypothesis with minimal overhead. In case you must pivot to something different, you will incur minimal loss. Oftentimes people have a day job and rather than quit immediately, they try something small as a “side hustle” and then see how it goes. 
+
+​You can get feedback quickly that will let you know if you are on the right track. This is exactly how my speaking career started. I really learned public speaking in the church world, teaching Bible lessons at 5:30 AM on a conference call phone line called the Trumpeter’s Call, and then eventually started streaming on Facebook Live. I really felt passionate about speaking and wanted to do it professionally. As stated earlier, in addition to speaking in the church. I started out sending messages via LinkedIn to professional organizations asking if they needed a speaker. Now I speak at nearly 30 events a year. 
+
+​Let’s say you want to start a pizza business named, Mama B’s Pizza. Instead of going into debt buying a building with all the state-of-the-art equipment, not to mention hiring staff, you go to the grocery store and get enough supplies for a few pizzas made with your unique recipe. Then you invite your friends, family, neighbors, etc. over to try it. Watch their responses, ask if they like it, what they like about it, or what they don’t like. Gather their feedback and adjust the next time you make them. Then try with other folks. Maybe get involved with a nonprofit and offer to make pizzas for a small charge to cover costs. See how the folks at the nonprofit liked it, and again take notes and adjust. Also, make sure they are announcing, “Pizzas are from Momma B’s pizzas!”  Maybe circulate flyers with your contact information. This is free advertising, and you are building your brand. Next, you can start selling it on social media, etc.  
+
+​Here is a real-life example from Kim Holsten. After reading an article about a soft pretzel stand at a local Chicago green market. Kim became obsessed with the idea that she could turn the pretzel concept inside out – literally. She envisioned stuffed pretzels in funky flavors like cinnamon roll and grilled cheese, which was a whole new spin on a classic American snack. At the same time, her dream was to create a company that would serve the community as well as turn a profit. When Kim heard that pretzels were invented in 610 by a monk who gave them to children as gifts for good scholarship, her vision of “Pretzels with a Purpose” started to feel like fate. Though many people shot down her idea, Kim’s future husband, Scott encouraged her to “go for it.” The couple met at a book signing in 1994, and within months, Scott was helping her bake pretzel prototypes in her studio apartment at night after their day jobs. Her job was an ad agency executive and his was breaking into the Chicago theater world and temping. Scott’s parents owned the first Ben and Jerry’s franchise in Chicago, so Scott understood that crazy flavors, social responsibility, and a thriving business model could all be part of one delicious mix. As Kim describes it, they expanded their business “organically,” branching out from selling freshly made pretzels in regional outlets to creating their own line of frozen products. Scott’s Gourmet Pretzels is worth between $10 million and $15 million (Weir).
+
+​Kim has since started numerous other successful businesses and helps other entrepreneurs. I love this story because people think you need millions of dollars, and everything must be perfect to start a business or a nonprofit. Kim Holsten started making pretzels in her small apartment!   
+
+​Here is another great example. The year was 2007, and roommates Joe Gebbia and Brian Chesky couldn't afford their San Francisco rent. The pair knew a big design conference was coming to San Francisco, and it was making hotels hard to come by. And so, it all started with an email Gebbia wrote Chesky with an idea. What if they turned their loft into a designer's bed and breakfast, complete with a sleeping mat and breakfast? It was a way to "make a few bucks." They created a simple site, airbedandbreakfast.com, bought three air mattresses, and arranged them in their loft. Their first guests, two men and one woman, showed up. Each guest paid $80 to stay on the air mattress. One guest, Amol, was another designer who helped Joe and Brian on their presentations. Twelve years later, that idea is worth $31 billion, and it’s called Airbnb (Aydin).
+
+​Talk about meeting a need! They literally started with an email and buying three cheap air mattresses just to try to make rent. Then in December 2020 Airbnb went public and was valued at $41 billion! I advise aspiring entrepreneurs to start simple and small. An ancient text exhorts us “Despise not these small beginnings”.    
+
+​Mark Twain once wrote, “The secret of getting ahead is getting started. The secret of getting started is breaking your complex overwhelming tasks into small manageable tasks and starting on the first one.”   
+
+​As mentioned in Chapter 1, with The Paradox of Perfection, people are always looking for that perfect opportunity. There will rarely if ever be a perfect opportunity. “The timing will never be for you to pursue your dream, so you might as well start now. If you don’t, then next year you’ll be a year older and not a step closer to it” (Maxwell).
+
+​The above examples started with making pretzels in an apartment and three air mattresses. That hardly seems like the perfect way to start a business, yet they have made millions, even billions. So, what is your idea? What is your vision? What is your dream? I hope the examples prove that you do not need all the resources to get started. You can launch out now and go after your dream.   
+
+Exercise 
+
+What is your idea, vision, or dream?  Summarize it so you can explain it to someone in 30 seconds.  
+
+What are some small experiments you can do in the next 2-3 weeks to test your idea?  
+
+Conduct those experiments. 
+
+At the end of 2-3 weeks, ask yourself this: What did I learn?  How can I improve it?  
+
+Rinse and repeat.
+
+cTK
+
+Chapter 7
+
+The Zone
+
+​My passion is to inspire people from all over the world in their professional as well as personal lives. I try to help them achieve their visions and dreams and maximize their potential along the way. My slogan is “My Vision Is to Help You Fulfill Yours.”  For years I have coached countless athletes, corporate professionals, and others about working hard toward their vision. You can imagine the eye-opening moment that I had when I was reading Harvard Researcher Shawn Achor’s book, “The Happiness Advantage.”
+
+If you observe the people around you, you’ll find most individuals follow a formula that has been subtly or not so subtly taught to them by their schools, their company, their parents, or society. That is: If you work hard, you will become successful, and once you become successful, then you’ll be happy. This pattern of belief explains what most often motivates us in life.
+
+The only problem is that this formula is broken. If success causes happiness, then every employee who gets a promotion, every student who receives an acceptance letter, everyone who has ever accomplished a goal of any kind should be happy. But with each victory, our goalposts of success keep getting pushed further and further out, so that happiness gets pushed over the horizon. 
+
+Even more important, the formula is broken because it is backward. Thanks to this cutting-edge science, we now know that happiness is the precursor to success, not merely the result. And that happiness and optimism actually fuel performance and achievement—giving us the competitive edge that I call, “the Happiness Advantage”  (Achor p. 3).
+
+In a preceding chapter we discussed, “Redefining the Paradigm.”  This was a major redefining of the paradigm for me. I have been operating under a broken and backwards formula my entire life. I had some wonderful hard-working parents that came from the Philippines while it was under a dictatorship, to provide a better life for my sister and me. They loved us, and like most wonderful parents, they had the best intentions. This was the message that they preached to me from a very young age: "Niel, if you do good in school, you'll get a good job, and you can take care of a family. You’ll have a good life and you’ll be happy." 
+
+It was almost like a step-by-step approach to happiness: Do good in school, get good grades, get a good job, get a family, and then be happy. That was what life was in a nutshell. It was the epitome of happiness. When you’re a kid, according to this formula, having to go through grade school, junior high, high school, college, getting a job, and starting a family is a heck of a lot of things you must do, and a very long time to wait to be happy! Achievement first, happiness later was also very prevalent in my foray into athletics, which probably explains why I wasn’t very happy when I was younger. I didn’t have many achievements in athletics, or anything else for that matter. 
+
+Shawn Achor indicated that: Waiting to be happy limits our brain’s potential for success, whereas cultivating positive brains makes us more motivated, efficient, resilient, creative, and productive, which drives performance upward. (p. 4). 
+
+The results of over 200 scientific studies on nearly 275,000 people found that happiness leads to success in nearly every domain of our lives, including marriage, health, friendship, community involvement, creativity, and our jobs, careers, and businesses. Data abounds showing that happy workers have higher levels of productivity, produce higher sales, perform better in leadership positions, and receive higher performance ratings and higher pay. 
+
+Study after study shows that happiness precedes important outcomes and indicators of thriving. In short, based on the wealth of data they compiled, they found that happiness causes success and achievement, not the opposite (p. 42).
+
+I must confess, I really did not take the whole, “It’s not just about the destination, enjoy the journey” or “Step back and smell the roses,” cliché thing very seriously. I was hardcore about accomplishment, achievement, and advancing. But then I thought about the emotional roller coaster I could be on when things did not go well, and when I did not achieve a certain thing, which unfortunately was all too often.  It would send me into a tailspin, and at times, even depression. We live in a very result-oriented society. And as a consultant, multibillion dollar Fortune 500 companies pay me to help them get results. The problem was that my approach was severely counterproductive.     
+
+Achor went further stated, “It turns out that our brains are literally hardwired to perform at their best not when they are negative or even neutral but, when they are positive.” (p. 15) 
+
+In other words, you must create a positive environment internally and the results will come.  It sounds extremely simple, like an HR warm fuzzy session cliché. However, in doing so, not only was I limiting myself, but also every other person I was trying to help, including my own children. When my kids would show me what they did at school, I would immediately look at their grades and look for whatever they got wrong first, and try to fix it. Then would come the ensuing lecture on why working hard in school was so important.  It was very humbling for me to realize what I was doing was exactly what my parents were doing. I was well intentioned, however misguided.  Rita Pierson is an educator and has a fantastic TED Talk called “Every Child Needs a Champion,” with over 14 million views.  During this talk she recounts a story: I gave a quiz, 20 questions. A student missed 18. I put a "+2" on his paper and a big smiley face. He said, "Ms. Pierson, is this an F?" I said, "Yes." He said, "Then why'd you put a smiley face?" I said, "Because you're on a roll. You got two right. You didn't miss them all." I said, "And when we review this, won't you do better?" He said, "Yes, ma'am, I can do better." You see, "-18" sucks all the life out of you. "+2" said, "I am not all bad." (Laughter) (Applause) 
+
+That last line in her talk: “Sucks the life out of you,” and it really hit home. I thought about my kids’ faces when I tried to correct everything on their homework, and how discouraged they looked.  My knee jerk reaction was to say, “Get over it…Get better grades.”  I was intending to instill grit and resilience, and not settle for mediocrity. Instead, I was sucking the life out of them. My wife Angela is the reading teacher at our children’s school, and she does a great job of instilling not only the ability to read, but the love of reading.  Our two-year-old always brings us a book to read to her. At that age she doesn’t know what the words mean, but she sees her mom reading to her older brothers, and not just reading, but telling the story as if they were being transported into the magical land and they were part of the adventure.  I am endeavoring to change my ways and trying to follow suit and trying to cultivate the joy of learning and growing, not just getting a grade.  If we can create an environment that fosters positive emotions when it comes to learning, they will love learning, and the grades will come.  And true to form, thanks to my wife, they do well.  
+
+This is not just for young kids; it is for adults as well.  When I ask people all over the country, “hey how are you, how is work?”  The answer I usually get is, “It’s work…” If something feels like “work” it feels burdensome, a drudgery, a drag.  When people enjoy what they do, if they have a passion, they will do incredible things, even work for free.  Don’t believe it?  Then how do we explain a group of volunteers creating the world’s largest online encyclopedia, Wikipedia, outdoing a top multi-billion-dollar software company that was paying some of the best engineers in the world a lot of money: Microsoft?  It’s simple, the volunteers believed in their vision, and that vision inspired people so much that they would work on in their own free time, it wasn’t “work,” it was acting on a passion to help mankind: “Imagine a world in which every single person on the planet is given free access to the sum of all human knowledge. That's what we're doing.”  Jimmy Wales, co-founder, Wikipedia. 
+
+Inspiration is an intrinsic motivator that provides positive emotion that fuels people towards vision.  This is far superior to external motivators.  As David Pink astutely pointed out in his book, Drive, external motivators do not lead to increased performance.   
+
+John Maxwell describes this: I believed that hitting numbers would automatically make me better. And I hoped that external production would increase my internal motivation. But I discovered that it didn’t. Instead, the focus on hitting numbers started to wear me down. That prompted me to realize that growth on the inside fuel’s growth on the outside, not the other way around. I recognized I needed to make a leadershift. 
+
+The lessons I’d learned while working to grow the church were actually more important and more valuable to me, than hitting any numbers or achieving the goal. In that moment, I made a shift: the personal development shift from goals to growth. The goals I set and achieved were nice, but they weren’t as significant as the growth I experienced. Goals helped me to do better. But growth helped me to become better. The growth experience was giving me greater satisfaction than reaching individual goals. 
+
+When I got to the office, I discovered a beautiful crystal eagle. Engraved in its base were the words “John C. Maxwell: 1 Million Books Sold.” I was amazed. Somewhere along the line, I had passed my old sales goal, and I hadn’t even been aware of it. Making growth your focus is like having your cake and eating it too (Maxwell).
+
+As mentioned previously I have always been passionate about human potential, and how to develop it. I am passionate in helping to develop high performing organizations made of high performing teams, made up of high performing individuals. I was fascinated by what athletes call, “The Zone.” It is a state where their athletic achievements are seemingly superhuman: it’s almost like an out of body experience. Christopher Bergland did Triple Iron mans that consisted of a 7.2-mile swim, 336-mile bike, 78.6-mile runs, and he describes the zone: There were moments in sport when I felt like I had pierced through to another dimension where I felt like I practically had elemental superpowers that you might read about in a comic book (Bergland).
+
+I was determined to reach that state and help others reach it. I believed the path to that state was all about discipline, the grind, working harder, digging deeper and then when you achieve it, you can be happy! Of course, discipline, hard work, etc. are all incredibly important, however embedded in the path that I thought led to success is essentially deferred happiness/positivity. Work hard now and enjoy later. However, Mihaly Csikszentmihalyi is a pioneer in positive psychology and said:  "Repression is not the way to virtue. When people restrain themselves out of fear, their lives are by necessity diminished” (Virtue Jan 2014). 
+
+​Contrast that with what athletes describe as “The Zone,” is what Csikszentmihalyi describes as “Flow:” It is a state in which people are so involved in an activity that nothing else seems to matter. The experience itself is so enjoyable that people will do it even at great cost, for the sheer sake of doing it.
+
+​These studies suggested that optimal experiences were described in the same way by men and women, by young people and old, regardless of cultural differences. The flow experience was not just a peculiarity of affluent, industrialized elites. It was reported in essentially the same words by old women from Korea, by adults in Thailand and India, by teenagers in Tokyo, by Navajo shepherds, by farmers in the Italian Alps, and by workers on the assembly line in Chicago. 
+
+​If you really think about it, it makes total sense. When we are focused on an external motivator, it can cause us to be stressed, upset, and frustrated. It is often very difficult to perform at our best under these conditions. My mentor, Eric Newble, before a big event, or whenever he was about to speak to an audience, will often remind those of us on his staff who are nervously running around like chickens with our heads cut off, “Can’t be tight! Can’t be tight!”  He is constantly encouraging us to calm down and enjoy the moment. When we are so fixated on results and our mindset is, “Achieve and you can be happy…Don’t achieve and you are a failure,” it invariably causes undue stress and we become worried, anxious, upset, or worse it becomes demotivating, and we quit before we ever get started.   
+
+​I’m sure you may be wondering; how do I create positive emotions? Can we just snap our fingers and be suddenly happy? Eric Newble has an entire set of modules of teachings called “Gratitude Lifts Our Attitude.” The premise of these messages is about always being continually grateful, which completely changes our outlook and our worldview. He even had a 30-day gratitude challenge. For 30 days we were to post three things we were grateful for, on social media. Many of us have been programmed to look for the negative, so this was strategically designed to kick start our minds to purposefully start looking for things to be grateful for, and to look for the positive in life. 
+
+In a previous chapter we discussed how the Reticular Activating System is basically the gateway to our conscious awareness. It seems to be programmed by what we focus on and more primarily what we identify with. If we program our brains to look for the positive, it puts us in a better state, and according to tons of research, that is how we can perform at our best. Shawn Achor writes: Gratitude, the more opportunities for positivity we see, the more grateful we become. Psychologist Robert Emmons, who has spent nearly his entire career studying gratitude has found that few things in life are as integral to our well-being. Gratitude has proven to be a significant cause of positive outcomes. When researchers pick random volunteers and train them to be more grateful over a period of a few weeks, they become happier and more optimistic, feel more socially connected, enjoy better quality sleep, and even experience fewer headaches than control groups (Achor p. 98).
+
+​This is not to suggest we ignore reality and the corresponding difficulties of life. We absolutely must be fully aware of whatever hardship we encounter. It is how we interpret and perceive those difficulties. I know gratitude really helped me when I was grieving the loss of my mother to cancer several years ago.  It was probably the worst heartache I have ever felt, and for months I felt lost. It was devastating watching cancer take its toll, as she withered away. She was so frail and sickly, and it had gotten so bad she couldn’t even talk during her last weeks. For months after she passed, I kept thinking about her face that was so pale and sunken, and in anguish. I kept wondering why she had to go that way. It wasn’t fair. It would bring me to tears at any given moment. I did not want to be around anyone, so I completely isolated myself.   
+
+​One day as I was crying over my lunch thinking of her in the state she was in, and I suddenly thought of her warm gentle smile, and it was almost as if she was wiping the tears off of my face like she used to do when I was a child. I started thinking about how kind and generous she was. I started remembering what a great cook she was, and how she always made the best Filipino food, and how my cousins loved coming over to eat. She was so generous and caring, and everyone loved her. She was the eternal optimist, always believing for the best, even when I was acting like a knucklehead in my younger years. And I began to realize, although the last few months were incredibly difficult and painful, she had lived an incredible life, and blessed so many people, my heart was filled with such gratitude for her.
+
+I had to be grateful for her life and what she did for my sister and me. She and my father came over from the Philippines and worked tirelessly so that we could have a great life. This realization completely changed my perspective. My father tended to be very realistic and often negative. Usually anytime anyone presented an idea to him, his common response was, “The problem with that is…”  He was very good in pointing out problems and risks, but my mother was the positive optimistic one. The gift that she left this world was her optimism, and I decided that the best way to show her gratitude for that is to share her gift of optimism with others the rest of my life. 
+
+​I have a phrase: Be A PRO: A Proactive Realistic Optimist.  If we want to do anything in life, I believe we must be Proactive and have initiative. A life lesson I have learned in martial arts is this: pro action almost always beats re action. Passively waiting around, sitting on our couch eating potato chips wishing for an incredible opportunity is rarely a recipe for success. As mentioned in a previous chapter, we must be intentional about what we want to succeed in.  I heard speaker, coach, and entrepreneur Paul Martinelli say, “I realized I didn’t just have to play the hand that I was dealt, I could take those cards and reshuffle them.”  I think the first step in moving towards a better future state is realizing we don’t have to accept our present state. Our desire to change must be greater than our desire to stay the same. Human beings always want to stay in a state of inertia, a tendency to do nothing or to remain unchanged. Sometimes people wait to get motivated, however Harvard Researcher Jerome Bruner, who was a pioneer in cognitive psychology and educational psychology, said: “Passion, like discriminating taste, grows on its use.  You more likely act yourself into feeling than feel yourself into action.”  So, the question I like to ask individuals is:  What exactly are you waiting on? 
+
+​The R in Pro is Realistic. We also must be realistic. If not, we could be setting ourselves up for failure. For example, with my being 5’7 ¾” with minimal jumping ability, realistically, I was not going to make the NBA, or college, or varsity, or even be one of the first selected in a pickup game at the YMCA.  IN-VISIONing a future in basketball would be an exercise in futility. There is nothing wrong with playing it for fun as I did in my younger years, but it was not ultimately going to lead me to what I would be successful in. It’s important to be realistic about our strengths and our weaknesses.   
+
+​We also must be realistic about the gravity of any given situation. Max De Pree said, “The first responsibility of a leader is to define reality.” In large corporations, you need people such as accountants and lawyers to help define the reality of the situation, to make appropriate decisions. Being realistic helps us uncover problems that could hinder progress. One of my first Agile mentors, Rick Vance, constantly taught me to ask, “What problem are we trying to solve?”  Answering this question is one of the best ways is to discover the root cause, or the fundamental reason for the occurrence of a problem. The Pareto Principle states that 80% of the issues are caused by 20% of the problems. We want to focus on that 20%. One of the best ways to do that is to use the 5- Why’s that was developed by Taichi Ohno, the founder of the Toyota Production System. “The basis of Toyota's scientific approach by repeating why five times the nature of the problem as well as its solution becomes clear."  This is an example: 
+
+PROBLEM STATEMENT – CAR WON’T START 
+WHY? 
+THE BATTERY IS DEAD 
+WHY? 
+THE ALTERNATOR IS NOT FUNCTIONING 
+WHY? 
+THE ALTERNATOR BELT HAS BROKEN 
+WHY? 
+THE ALTERNATOR BELT WAS WELL BEYOND ITS SERVICE LIFE AND WASN’T REPLACED 
+WHY? 
+I DIDN’T FOLLOW THE RECOMMENDED MAINTENANCE SCHEDULE BECAUSE I WAS TOO BUSY AND DIDN’T PAY ATTENTION TO IT 
+
+​Truly understanding the heart of a problem is very important. A problem well defined can be a great catalyst for change. However, it’s human nature to constantly rehash problems, and not come up with a solution. I’ve been in many meetings and coaching sessions where people kept focusing on the problems, but didn’t really come up with a solution. It’s important to note root cause identification is merely a step, albeit a major step. It’s important to take the next step, and that is to brainstorm ideas for possible solutions. Then narrow those ideas down to a few ideas to attempt to implement. If you have too many, it’s difficult to do all of them. This is vital, because ideally, your vision is the solution to a specific problem(s) or fulfills a specific need.   
+
+​For our own personal lives, being realistic helps us to be honest about where we are (our strengths and weaknesses), so that we can develop. If we keep thinking there is nothing wrong, or ignoring warning signs, it could lead us into trouble financially, in our relationships, or our career. One of the most difficult persons to deal with is someone not self-aware, or someone who does not think they have to work on anything.  This type of individual can be a type of “know it all,” who is great at pointing out everyone else’s faults and what they need to work on but seems clueless about one’s own shortcomings. Nothing is more demoralizing to the morale of those around them.   
+
+​One of the best ways to help us define the reality of who we are is to have good people around us who can provide helpful constructive criticism. Jim Rohn famously said, “We are the average of the five people we spend the most time with.” We need people who have our best interests in mind, that can help us in our growth and development, and often times are further along in their journey of development than we are.   
+
+​Finally, we must be optimistic. We touched on this briefly in a previous chapter, Explanatory Style. Optimistic means: 
+
+Feeling or showing hope for the future.  
+
+An inclination to put the most favorable construction upon actions and events or to anticipate the best possible outcome.  
+
+Originally meant "the greatest good," from Latin optimus "the best.”  
+
+​Optimism is crucial because it can help us recognize opportunities by supercharging our Reticular Activating System. Note the experiment cited by Shawn Achor: Wiseman asked volunteers to read through a newspaper and count how many photos were in it. The people who claimed to be lucky took mere seconds to accomplish this task, while the unlucky ones took an average of two minutes. Why? Well, on the second page of the newspaper a very large message read: “Stop counting, there are 43 photos in this newspaper.” The answer, in short, was plain as day, but the unlucky people were far more likely to miss it, while the lucky people tended to see it. As a bonus, halfway through the newspaper was another message that read, “Stop counting, tell the experimenter you have seen this and win $250.” 
+
+​The people who had claimed to be unlucky in life again looked right past this opportunity. Stuck in a Negative Effect, they were incapable of seeing what was so clear to others, and their performance (and wallets) suffered because of it. The extraordinary thing about Wiseman’s study is that the same possibility for huge reward was latent in everyone’s environment—it was just a matter of whether they picked up on it. 
+
+​The difference between people who capitalize on these chances and those who watch them pass by (or miss them entirely) is all a matter of focus. When someone is stuck in a Negative Effect, his brain is quite literally incapable of seeing these opportunities. But armed with positivity, the brain stays open to possibility. Psychologists call this “predictive encoding”: Priming yourself to expect a favorable outcome encodes your brain to recognize the outcome when it does in fact arise (Achor p. 98-99).
+
+​We can literally encode our brains to see opportunities full of possibility. Eric Newble has several businesses, one of which is real estate. We can be driving somewhere talking about business, family, or life in general, and right in the middle of an in-depth conversation, he’ll say, “Wait!  Turn around!”  At first, I used to be taken back, and afraid we may have passed a police officer or something.  “Stop at that house!” And we will stop at a seemingly dilapidated abandoned home. I would look at the cobwebs, the dust, the holes in the wall, and thinking, “Eww, yuck. What a dump.” Meanwhile, he would walk around, and in every room, he would say, “This just needs to be cleaned up,” or “This can be repaired and repainted.” His eyes would be filled with excitement, and I would wonder if something was wrong with him.
+
+There was absolutely nothing wrong with him. He could optimistically imagine that property being completely restored, with a little tender love and care, as well as some sweat equity. He has done it time and time again and owns numerous properties, having rehabbed them, rented them out, or sold them. He has built a very good business, being able to optimistically see potential opportunities where many of us could not. The funny thing is that he is the same way with people. He can look at anyone, and look past their faults, their drawbacks, and see their gifts, talents, and positive traits of their personalities. It does not matter their ethnicity, socioeconomic background or if they are little babies or 97-year-old senior citizens. If you talk to him for five minutes, his optimism is so prevalent, he makes you feel like you can accomplish anything. He has helped countless people all over the world by being optimistic. He always sees the best in people.   
+
+​As we develop this Proactive Realistic Optimistic Mindset, or PRO Mindset, it enables us to deal with challenges. One of the key components in reaching the zone are challenges. If we have a negative fixed mindset, we will tend to avoid challenges due to the risk of us looking bad. But if we have a PRO Mindset, we will look at challenges as opportunities full of possibilities to grow and develop. 
+
+​I have been studying the optimists and pessimists for the past twenty-five years. The defining characteristic of pessimists is that they tend to believe bad events will last a long time, will undermine everything they do, and are their own fault.  
+
+​The optimists, who are confronted with the same hard knocks of this world, think about misfortune in the opposite way. They tend to believe defeat is just a temporary setback, that its causes are confined to this one case.  Such people are unfazed by defeat. Confronted by a bad situation, they perceive it as a challenge and try harder (Seligman p. 5).
+
+​If you think about tremendous performances while in the zone, it’s usually during times of great challenge, such as trying to win Wimbledon, the Super Bowl, or closing a mega business deal, or feeding a city. The greater the challenge, the greater the skills needed, the greater the satisfaction. If the challenge is great, and the skills are not equal, it may not be enjoyable. For example, I am horrible with fixing things around the house. If I have a hammer, you had better duck. Conversely, if the challenge is minimal, but the skills are great, one can become quite bored.   
+
+​If you think about your Vision, or your ideal future state, does it challenge you. Does it get your juices flowing?  Yes, it may seem overwhelming, like my going into the business realm way back when I was making minimum wage.  Aside from the anxiety, does it also foster positive emotions such as excitement and joy?  I absolutely love the last line of the quote above: “by reaching toward higher challenges, such a person becomes an increasingly extraordinary individual.”  A fulfilling life involves continually taking on challenges that cause us to tap into our potential and grow. In doing so, we become increasingly extraordinary, and begin to operate in “The Zone.” 
+
+​If one has worked diligently to develop his skills by constantly facing challenges, it leads to something incredible: The pursuit of a goal brings order in awareness because a person must concentrate attention on the task at hand and momentarily forget everything else. These periods of struggling to overcome challenges are what people find to be the most enjoyable times of their lives (Chapter 3). A person who has achieved control over [mental] energy and has invested it in consciously chosen goals cannot help but grow into a more complex being. By stretching skills, by reaching toward higher challenges, such a person becomes an increasingly extraordinary individual (Csikszentmihalyi p. 6).  
+
+​Our bodies constantly need physical challenges for muscles to develop and grow. Similarly, we need mental, emotional, and spiritual challenges to cause us to continually grow as a person. In weight training, this principle is called Progressive overload. The central concept is to make your workouts more challenging over time to place greater stress on your musculoskeletal and nervous systems. This weightlifting progression can help you gain strength, encourage muscle growth, and build endurance (Masterclass.com). 
+
+​After spending decades studying successful people, I recognize they are constantly trying to improve, constantly trying to stay ahead of the curve, and get better. In short, they are always looking for ways to challenge themselves to grow. They love growing and have dedicated their lives to growth. When I coached football, I told them the games weren’t just won on game day, but they were won in the hot summer when they were working out, running sprints, and practicing plays in the heat and humidity. They were won by spending hours studying the playbook, watching films, and painstakingly practicing every play, and not just going through the motions, but deliberately practicing, as mentioned in an earlier chapter. 
+
+​There was an undersized player coming out of a small college who dreamed of playing in the NBA. However, a scouting report in a major publication said: 
+
+●        “He doesn't have the size, the strength, or the lateral quickness/athleticism.”​ 
+
+●        “He will have problems beating NBA [players] off the dribble.”
+
+●         “He probably is never going to end up being a star in the league.” 
+
+But this player took an optimistic view and proceeded to work tirelessly on his dream. He reportedly practiced: 
+
+●        500 jump shots a day. 
+
+●        x 6 times a week. 
+
+●        x 4 weeks in a month. 
+
+●        x 4 months prior to the season. 
+
+●        = 48,000 shots. 
+
+​He also engaged in strength and conditioning and worked on other aspects of his game. Not only that, but his high school coach had taught him to use visualization. Before each game he would on the bench and closes his eyes. He would IN-VISIONs the same moves he’ll attempt in the actual game. How did it turn out? 
+
+●        8-time NBA All Star.​ 
+
+●        8-time ALL NBA.​ 
+
+●        4-time NBA Champion​. 
+
+●        2-time NBA MVP.​ 
+
+●        1-time World Championship Finals MVP. 
+
+His name is Steph Curry.  He said: "I don't just show up expecting to be great. The preparation I put in allows me to meet the storm calm, cool and collected.​ Being in “The Zone” is about how much hard work you put in.”​
+
+​You must be passionate about your pursuit. It’s what will fuel you for those countless hours of deliberate practice. It will develop perseverance. I believe this love for growth is what fuels people to engage in countless hours, days, weeks, years in deliberate practice. By doing this they learn how to enter the zone: that time honing their craft causes performances to become automatic. The moment is not too big for you. Time seems to slow down because you have been here before, in your mind, and you have visualized and dreamed of this for years and have painstakingly prepared yourself. It is no longer something you are trying to do; it has become a part of you. It has become an expression of your whole being. It is the perfect balance of a calm, peaceful mind, and pure energy. To the outsider it looks as if you are operating with complete joy, and it seems effortless. Yet you know the process it took to operate in “The Zone.”
+
+c1DZ
+
+References
+
+Achor, Shawn. The Happiness Advantage. Crown. Kindle Edition.
+
+Ahern, Tom (1981) Search For Quality Called Key To Life. The Milwaukee Sentinel (Google News). Archive) https://www.investopedia.com/terms/f/firstmover.asp
+
+Allen, David. Getting Things Done (p. 70). Penguin Publishing
+
+Group. Kindle Edition. American Psychological Association, Learned Helplessness, Dictionary of Psychology.
+
+Aydin, Rebecca. How 3 guys turned renting air mattresses in their apartment into a $31 billion company, Airbnb Business. Insider, Sep 20, 2019
+
+Bannister, Roger. Academy Class of 2000, Full Interview - YouTube
+
+Bannister, Roger. Doctors and scientists said breaking the four-minute mile was impossible... (azquotes.com)
+
+Bannister, Roger. The Four-Minute Mile. Fiftieth-Anniversary Edition (p. 140). Globe Pequot - A. Kindle Edition.
+
+Bergland, Christopher. Superfluidity: Peak Performance Beyond a State of 'Flow.' Psychology Today, 2011.
+
+Biasiotto, Judd. Psych. StrongFirst, Inc. Kindle Edition.
+
+Biasiotto, Judd. The Search for Greatness. Kindle
+
+Edition.
+
+Black Panther – What are you talking about? I never
+
+freeze. / Scattered Quotes.
+
+Bleacher Report. NBA Draft Prospects: Stephen Curry, Davidson | News, Scores, Highlights, Stats, and Rumors.
+
+Cantrew, Anthony. The Man Who Broke The 4-minute Mile, New York Times, April 19, 1964
+
+Chakrabarti, Rana. The Art Of Lifelong Learning: A Practitioner’s View. Forbes, Feb 17, 2021
+
+Chandler, Dwight. PSYCH. Kindle Edition | StrongFirst
+
+Collins, Jim. Quote by Jim Collins. (goodreads.com)
+
+3 Confucius Quotes. Daniel A | Mind Cafe | Medium
+
+Cook, Tim. Auburn Commencement speech Tim Cook, Apple CEO, Auburn University Commencement Speech 2010 (fastcompany.com)
+
+Csikszentmihalyi, Mihaly. Flow (Harper Perennial Modern Classics) (p. 4). HarperCollins. Kindle Edition.
+
+Deming, W. Edwards. Each system is perfectly designed to give you exactly what... (azquotes.com).
+
+Dweck, Carol S. Mindset (p. 6 & 8). Random House
+
+Publishing Group. Kindle Edition.
+
+Ellison, Larry. 15 quotes from Larry Ellison that prove he is an entrepreneur of awe-inspiring grit. (yourstory.com).
+
+Ericsson, K. Anders Michael J. Prietula, and Edward T. Cokely. The Making of an Expert. Harvard Business Review, Jul-Aug 2007.
+
+Friedman, Eric. The Importance of Reskilling Your Workforce in 2021. Forbes, Oct 20, 2021
+
+Gallo, Carmine. The 6 Steps Steph Curry Uses To Prepare Under Pressure.
+
+Gates, Bill. On Dropping Out of Harvard for the Computing Revolution. (businessinsider.com).
+
+Gilbert, Elizabeth. Your elusive creative genius | TED Talk
+
+Godin, Seth; Elliot, Bryan (2017). You'll Probably Never Feel Ready. HUFFPOST.
+
+Gralia, Lukje. Nicki Swift.  Read More: https://www.nickiswift.com/425774/the-real-reason-simon-cowell-went-to-jail-as-a-child/?utm_campaign=clip
+
+Grant, Heidi and Carol S. Dweck. Clarifying Achievement Goals and Their Impact. Journal of Personality and Social Psychology Copyright 2003 by the American Psychological Association, Inc.2003.
+
+Haden, Jeff. 28 Years Ago, Steve Jobs Said 1 Thing Is More Powerful Than Technology. It's Even More True Today | Inc.com
+
+Hamel, Gary; Hamel, Gary; Zanini, Michele; Zanini, Michele. Humanocracy (p. 26). Harvard Business Review Press. Kindle Edition.
+
+How Churchill Prepared For His Speeches. International Churchill Society, Aug 18, 2021
+
+Ingram, Christopher. America’s top fears: Public speaking, heights and bugs. Washington Post, Oct 30, 2014
+
+Jacobsen, Annie (2017). The U.S. Military Believes People Have a Sixth Sense. TIME.
+
+Kasanoff, Bruce (2017).  Intuition Is The Highest Form Of Intelligence. (forbes.com).
+
+Jobs, Steve. Starting Apple (1980 Video) | The Story of Information Forbes, (infostory.com).
+
+Kotter, John P. and Kotter, John P. Leading Change, With a New Preface. Harvard Business Review Press. Kindle Edition.
+
+Lambert, Mike Search For Greatness.pdf (wikia.com)
+
+Larson, Nanette. From Shattered To Restored (p. 23 &
+
+29). Redemption Press. Kindle Edition.
+
+Leaf, Carolyn (2018). You are Not a Victim of Your
+
+Biology! Cognitive Neuroscientist blog, Oct 3,
+
+2018.
+
+Leaf, Carolyn. How to Use Mind-Management to Rewrite & Redefine Your Life Story. DR.LEAF, Apr
+
+10, 2022
+
+Live, Devon. Simon Cowell Reveals How He Wants His Song TO Work For Him in Just Five Years’ Time.
+
+Loconti, Christine. What to Know About the Gut Brain
+
+Link, WEBMD, Nov 11, 2021
+
+Masterclass.com. Progressive Overload, Sep 20, 2021
+
+Maxwell, John C. Leadershift: The 11 Essential Changes Every Leader Must Embrace. HarperCollins Leadership. Kindle Edition.
+
+Maxwell, John C. The 15 Invaluable Laws of Growth.
+
+Center Street. Kindle Edition.
+
+Maxwell, John C. Developing the Leader Within You 2.0 (Developing the Leader Series). HarperCollins Leadership. Kindle Edition.
+
+Maxwell, John C. The 15 Invaluable Laws of Growth (p. 3). Center Street. Kindle Edition.
+
+Maxwell, John. It All Comes Down to What You Do
+
+Daily. johmnaxwell.com, Jan 14, 2015
+
+Moore, Karl.  Millennials Work For Purpose, Not Paycheck. Forbes, Oct 2, 2014
+
+Munroe, Myles. Potential - Understanding Your Potential Expanded Edition. Destiny Image. Kindle Edition.
+
+National Air and Space Museum (si.edu)
+
+Nelson, Bret. The Real Definition of Entrepreneur---And Why It Matters. Forbes, June 5, 2012.
+
+O’Conner, Peg, Ph.D. Desiring Wishing, and Willing
+
+Out of Control. Psychology Today, Mar 18, 2016
+
+Olito, Frank. The rise and fall of Blockbuster. Insider,
+
+Aug 20, 2020
+
+Oosterwal, Dantar P. The Lean Machine (pp. 137-139).
+
+AMACOM. Kindle Edition.
+
+Opportunity knocks - Phrase Meaning and Origin (phrases.org.uk).
+
+Pierson, Rita. Every kid needs a champion | TED Talk.
+
+Rohn, Jim. You Are The Average Of The Five People
+
+You Spen…(goodreads.com).
+
+Ronald Wayne – Why Ronald Wayne sold his 10% state in Apple for $800. (cnbc.com).
+
+Roosevelt, Eleanor. The Future Belongs To Those Who…(brasinyquote.com)
+
+Royce, Winston.  royce1970.pdf (usc.edu)
+
+Schultz, Howard - Howard Schultz Quote: “Entrepreneurs must love what they do to such a degree that doing it is worth sacrifice and, at times, pain. But doing an...” (quotefancy.com).
+
+Seligman, Martin E.P. Learned Optimism Knopf Doubleday Publishing Group. Kindle Edition.
+
+Sinek, Simon. Start with Why. Penguin Publishing Group. Kindle Edition.
+
+Sinek, Simon. How Great Leaders Inspire Action. /
+
+TED Talk.
+
+Skelton, Matthew. Pais, Manuel. Team Topologies (Kindle Locations 513-515). IT Revolution Press. Kindle Edition
+
+Steve Jobs and the Power of Vision (forbes.com)
+
+Taylor, Bill (2018). What Breaking the 4-Minute Mile Taught Us About the Limits of Conventional Thinking. Harvard Business Review.
+
+Taylor, Brian (2010) “Toyota Chief Apologizes For
+
+Recalls,” npr.org.
+
+The Importance Of Foresight: Why Intuition And
+
+Imagination Will Be Critical In The Future Of Work (forbes.com)
+
+The New York Times, FLYING MACHINE FIASCO; Prof. Langley's Airship Proves a Complete Failure. Prof. Manley, in the Car of the Aerodrome, Escapes with a Ducking in the Potomac. - The New York Times (nytimes.com)
+
+The Science Behind Intuition And How You Can Use It
+
+To Get Ahead At Work. (forbes.com). 
+
+The Secret of Getting Ahead is Getting Started – St. Catherine’s School. (stcatherine.net.au).
+
+The Six Shapes of all Stories – With Entrepreneurial Tales – Craft Your Content.
+
+Tieger, Paul D.; Barbara Barron, and Kelly Tieger. Do
+
+What You Are.
+
+Tocino-Smith, Juliette (2019). What is Locke’s Goal Setting Theory of Motivation? Positive Psychology.com.
+
+Virtue Quotes & Quotations. focusdep.com. Archived
+
+from the original on 11 November 2013. Retrieved 19 January 2014.
+
+Vision board - My Personal Vision Board | Jack
+
+Canfield 4 Ways Trusting Your Intuition Is A Superpower (forbes.com).
+
+Weinschenk, Susan Ph.D. The True Cost of Multi-
+
+Tasking. Psychology Today, Sep 18, 2012
+
+Weir, Sarah B. Surprising success from pretzels and
+
+positive thinking, Yahoo article, July 8, 2011
+
+What Are Attributional and Explanatory Styles in
+
+Psychology? (positivepsychology.com).
+
+Why Inspiration Matters. (hbr.org.)
+
+Wikipedia.com. Prime Objective.
+
+Wikipedia.com. Stephen Curry.
+
+Wooden, John.  It's the little details that are vital....
+
+(brainyquote.com).
+
+Wright Brothers Day anniversary first manned powered
+
+flight (thewrightbrothersusa.com)
+
+Wright Brother’s Invention Process. Developed Test
+
+Pilot Skills. (nasa.gov).

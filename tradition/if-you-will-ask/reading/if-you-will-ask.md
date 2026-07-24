@@ -1,0 +1,947 @@
+<!-- Text extracted from the owner's personal-library EPUB copy of a public-domain work. -->
+Source file: If You Will Ask_ Reflections on the Power of Prayer_nodrm.epub
+Title/Edition: If You Will Ask: Reflections on the Power of Prayer; Oswald Chambers; 1937; public domain.
+
+3onIqfisQfWD6N_3j-jfbw1
+
+3onIqfisQfWD6N_3j-jfbw10
+
+3onIqfisQfWD6N_3j-jfbw19
+
+3onIqfisQfWD6N_3j-jfbw32
+
+If You Will Ask
+
+© 1937 Oswald Chambers Publications Association.
+
+This edition © 1989 Oswald Chambers Publications Association Limited. All rights reserved.
+
+Discovery House Publishers is affiliated with Our Daily Bread Ministries, Grand Rapids, Michigan 49512.
+
+Requests for permission to quote from this book should be directed to: Permissions Department, Discovery House, P.O. Box 3566, Grand Rapids, MI 49501, or contact us by e-mail at permissionsdept@dhp.org
+
+No part of this book may be reproduced or transmitted in any form or by any means whatsoever including photocopying, scanning, digitizing, recording, or any form of information storage-and-retrieval system, without written permission from Discovery House with the exception of brief quotations in articles or reviews.
+
+This e-book is licensed for your personal enjoyment only and may not be re-sold or given away to other people. To share this book with another person, please purchase an additional copy for each person. If you were given this book or it was shared with you and you did not purchase it, please go to www.dhp.org to purchase your own copy. Thank you for respecting our copyright.
+
+Unless otherwise indicated, Scripture quotations are from the New King James Version, © 1979, 1980, 1982 Thomas Nelson, Inc.
+
+ISBN: 978-1-57293-475-7
+
+Second e-book Edition: May 2016
+
+3onIqfisQfWD6N_3j-jfbw49
+
+Contents
+
+Foreword
+
+Introduction
+
+One - What’s the Good of Prayer?
+
+Two - The Simplicity of Prayer
+
+Three - The Struggle for Prayer
+
+Four - The Curriculum Of Intercession
+
+Five - After God’s Silence...What?
+
+Six - Now This Explains It
+
+Seven - Praying in the Holy Spirit
+
+Eight - St. Paul’s Intercession
+
+Nine - This Day Is That Day
+
+Ten - Intercession
+
+Eleven - The Key to Service
+
+Twelve - The Unrealized Logic of Prayer
+
+Note to the Reader
+
+3onIqfisQfWD6N_3j-jfbw72
+
+Foreword
+
+Oswald Chambers’ closest friends knew him as a person for whom prayer was a natural and joyful aspect of everyday life. In 1912, while serving as interim pastor for a church in Dunstable, England, Oswald would arrive on Saturday morning for his weekend of ministry. He began by taking several young men from the church for a hike. “Those walks!” wrote one of the participants. “Happy talk, jokes, tales, then — ‘Off with your hats, it is good to pray everywhere,’ and there would follow brief prayer.”
+
+A student at the Bible Training College in London, where Oswald was Principal, recalled walking with Chambers one evening through a little country village. “He just very naturally stopped and prayed, asking for God’s blessing on the village,” she said, “and it seemed so like what Our Lord would have done when He was on earth.”
+
+In late October 1915, Oswald Chambers arrived in Egypt to serve as a Y.M.C.A. chaplain during World War I. A few days later he announced that there would be a week-night religious service in their camp just outside Cairo. Skeptics told him no one would come because the soldiers just wanted to write letters, smoke, play cards and enjoy refreshments from the canteen. Religion was for Sunday morning. But on November 4, 400 men packed the large hut to hear Chambers speak on the topic, “What Is the Good of Prayer?” That message is the first chapter in this book.
+
+“It is only when a man flounders beyond any grip of himself and cannot understand things that he really prays,” he told the troops, many of whom had cried out to God for the first time during the war. “When a man is at his wits’ end, it is not a cowardly thing to pray, it is the only way to get in touch with Reality.”
+
+Chambers has been called a mystic, but his words and actions reveal him as spiritual realist who believed that prayer was not a means of getting things from God, but a way of getting to know God Himself. In If You Will Ask he challenges us to enter a new dimension of communion with our Heavenly Father, and to discover that “the good of praying is that it gets us to know God and enables God to perform His order through us.”
+
+David McCasland, author
+
+Oswald Chambers: Abandoned to God
+
+3onIqfisQfWD6N_3j-jfbw89
+
+Introduction
+
+Source
+
+If You Will Ask is from lectures given at the Bible Training College1 in London (1911–1915), at League of Prayer2 gatherings in Britain, and to British Commonwealth troops in Egypt3 during World War I.
+
+Where known, date and place appear on the first page of each sermon.
+
+Publication History
+
+As articles: Many of these chapters appeared first as articles in Tongues of Fire/Spiritual Life magazines or in the Bible Training College (BTC) Monthly Journal.4
+
+As a book: The material was first published as If Ye Shall Ask in 1937. Drawing on her store of notes from Britain and Egypt, Mrs. Chambers compiled this collection expressing the heart of Oswald’s teaching on prayer and his practice of it. She selected the short prayers at the beginnings of chapters 2 through 12 from Oswald Chambers’ personal prayer journal and from meetings at the Bible Training College.
+
+[From the Introduction composed by David C. McCasland for If Ye Shall Ask, included in The Complete Works of Oswald Chambers, copyright © 2000 by Oswald Chambers Publications Association, Limited. The Complete Works of Oswald Chambers is available from Discovery House Publishers, Grand Rapids, Michigan.]
+
+1 Bible Training College (BTC): residential school near Clapham Common in southwest London, sponsored and operated by the League of Prayer from 1911 until it closed in 1915 because of World War I. Oswald Chambers was principal and main teacher; Biddy Chambers, his wife, was lady superintendent.
+2 Pentecostal League of Prayer: founded in London in 1891 by Reader Harris (1847–1909), prominent barrister and friend and mentor of Oswald Chambers.
+3 Zeitoun (zay TOON), Egypt: six miles northeast of Cairo; site of a YMCA camp, the Egypt General Mission compound, and, from 1916 to 1919, the Imperial School of Instruction, training base for British, Australian, and New Zealand troops during World War I.
+4 Bible Training Course Monthly Journal: published from 1932 to 1952 by Mrs. Chambers, with help from David Lambert.
+
+3onIqfisQfWD6N_3j-jfbw114
+
+One
+
+What’s the Good of Prayer?
+
+Therefore I exhort first of all that supplications, prayers, intercessions, and giving of thanks be made for all men, for kings and all who are in authority, that we may lead a quiet and peaceable life in all godliness and reverence. For this is good and acceptable in the sight of God our Savior, who desires all men to be saved and to come to the knowledge of the truth. For there is one God and one Mediator between God and men, the Man Christ Jesus, who gave Himself a ransom for all, to be testified in due time, for which I was appointed a preacher and an apostle—I am speaking the truth in Christ and not lying—a teacher of the Gentiles in faith and truth. I desire therefore that the men pray everywhere, lifting up holy hands, without wrath and doubting (1 Timothy 2:1–8).
+
+Only when a man flounders beyond any grip of himself and cannot understand things does he really pray. Prayer is not part of the natural life. By “natural” I mean the ordinary, sensible, healthy, worldly-minded life. Some say that a man will suffer in his life if he does not pray. I question it. Prayer is an interruption of personal ambition, and no person who is busy has time to pray. What will suffer is the life of God in him, which is nourished not by food but by prayer.
+
+If we look on prayer as a means of developing ourselves, there is nothing in it at all, and we do not find that idea in the Bible. Prayer is other than meditation; it develops the life of God in us. When a man is born from above, the life of the Son of God begins in him, and he can either starve that life or nourish it.
+
+Prayer nourishes the life of God. Our Lord nourished the life of God in Him by prayer. He was continually in contact with His Father. We generally look upon prayer as a means of getting things for ourselves, but the biblical idea of prayer is that God’s holiness, purpose, and wise order may be brought about. Our ordinary views of prayer are not found in the New Testament.
+
+When a man is in real distress he prays without reasoning. He does not think things out, he simply blurts it out. “Then they cried out to the LORD in their trouble, and He saved them out of their distresses” (Psalm 107:13). When we get into a tight place our logic goes to the winds and we work from the implicit part of ourselves.
+
+“Your Father knows the things you have need of before you ask Him” (Matthew 6:8). Then why ask? Very evidently our ideas about prayer and Jesus Christ’s are not the same. Prayer to Him is not a way to get things from God, but so that we may get to know God. Prayer is not to be used as the privilege of a spoiled child seeking ideal conditions to indulge his spiritual propensities. The purpose of prayer is to reveal the presence of God, equally present at all times and in every condition.
+
+A man may say, “Well, if the Almighty has decreed things, why need I pray? If He has made up His mind, what is the use of my thinking I can alter His mind by prayer?” We must remember that there is a difference between God’s order and God’s permissive will. God’s order reveals His character; His permissive will applies to what He permits. For instance, it is God’s order that there should be no sin, no suffering, no sickness, no limitation, and no death; His permissive will is all these things. God has so arranged matters that we are born into His permissive will, and we have to get at His order by an effort of our own, that is, by prayer. To be children of God, according to the New Testament, does not mean that we are creatures of God only, but that we grow into a likeness to God by our own moral character.
+
+I question whether the people who continually ask for prayer meetings know the first element of prayer. It is often an abortion of religious hysterics, a disease of the nerves taking a spiritual twist. Jesus says we are to pray in His name, that is, in His nature, and His nature is shed abroad in our hearts by the Holy Spirit when we are born from above (see Luke 11:13; Romans 5:5). Again, Jesus did not promise to be at every prayer meeting, but only at those “where two or three are gathered together in My name,” meaning, in His nature (Matthew 18:20). Jesus Christ does not pay any attention to the gift of “religious gab.” His words, “And when you pray, do not use vain repetitions as the heathen do. For they think that they will be heard for their many words” (Matthew 6:7) refer not to the mere repetition and form of the words, but to the fact that it is never our earnestness that brings us into touch with God. Rather, it is our Lord Jesus Christ’s vitalizing death (see Hebrews 10:19).
+
+In His teaching about prayer our Lord never once referred to unanswered prayer. He said God always answers prayer. If our prayers are in the name of Jesus or in accord with His nature, the answers will not be in accord with our nature but with His. We are apt to forget this and to say without thinking that God does not always answer prayer. He does every time, and when we are in close communion with Him we realize that we have not been misled.
+
+“Ask, and it shall be given you.” We grouse before God and are apologetic or apathetic, but we ask very few things; yet what a splendid audacity a child-like child has! And our Lord says, “Unless you . . . become as little children . . .” (Matthew 18:3). Jesus says, “Ask . . . God will give” (John 11:22). Give Jesus Christ a chance. Give Him elbow room, but no one ever does it until he is at his wits’ end. During a war many pray for the first time. It is not cowardly to pray when we are at our wits’ end. It is the only way to get in touch with reality. As long as we are self-sufficient and complacent, we don’t need to ask God for anything. We don’t want Him. It is only when we know we are powerless that we are prepared to listen to Jesus Christ and to do what He says.
+
+Then again our Lord says, “If you abide in Me, and My words abide in you, you will ask what you desire” (John 15:7), or rather, you shall ask “what your will is in.” There is very little our wills are in. Consequently it is easy to work up false emotions. We intercede in a mechanical way. Our minds are not in it. Jesus said to two of His disciples, “You do not know what you ask” (Mark 10:38).
+
+Be yourself exactly before God and present your problems—the things you have come to your wits’ end about. Ask what you will, and Jesus Christ says your prayers will be answered. We can always tell whether our will is in what we ask by the way we live when we are not praying.
+
+The New Testament view of a Christian is that he is one in whom the Son of God has been revealed, and prayer deals with the nourishment of that life. It is nourished by refusing to worry over anything, for worry means there is something over which we cannot have our own way, and in reality is personal irritation with God. Jesus Christ says, “Don’t worry about your life. Don’t fear them which kill the body. Be afraid only of not doing what the Spirit of God indicates to you.”
+
+“In everything give thanks” (1 Thessalonians 5:18). Never let anything push you to your wits’ end, because you will get worried, and worry makes you self-interested and disturbs the nourishment of the life of God. Give thanks to God that He is there, no matter what is happening. Many a man has found God in the belly of hell in the trenches during the days of war. They came to their wits’ end and discovered God. The secret of Christian quietness is not indifference, but the knowledge that God is my Father, He loves me, I shall never think of anything He will forget, and worry becomes an impossibility.
+
+It is not so true that “prayer changes things” as that prayer changes us, and then we change things. Consequently we must not ask God to do what He has created us to do. Jesus Christ is not a social reformer. He came to alter us first, and if there is any social reform to be done on earth, we must do it. God has so constituted things that prayer on the basis of redemption alters the way we look at things. Prayer is not altering things externally, but working wonders within our disposition. When we pray, things remain the same but we begin to be different. The same thing occurs when we fall in love. The circumstances and conditions are the same—we have a sovereign preference in our heart for another person that transfigures everything. If we have been born from above and Christ is formed in us, instantly we begin to see things differently: “If anyone is in Christ, he is a new creation” (2 Corinthians 5:17).
+
+Heaven above is brighter blue;
+
+Earth around is sweeter green!
+
+Something lives in every hue
+
+Christless eyes have never seen.
+
+Birds with gladder songs o’erflow,
+
+Flowers with deeper beauties shine,
+
+Since I know, as now I know,
+
+I am His, and He is mine.
+
+The good of praying is that it gets us to know God and enables God to perform His order through us no matter what His permissive will may be. We are never what we are in spite of our circumstances, but because of them. As Reader Harris5 once said, “Circumstances are like featherbeds—very comfortable to be on top of, but immensely smothering if they get on top of you.” Jesus Christ, by the Spirit of God, always keeps us on top of our circumstances.
+
+What’s the Good of Prayer?
+
+We need it—Luke 11:1.
+
+Human wits have an end—Psalm 107:13, 19, 27–28.
+
+Human wills have an end—Romans 8:26.
+
+Human wisdom has an end—James 1:5.
+
+Prayer alters me.
+
+We must do it—Luke 18:1.
+
+If we would know God—Matthew 6:8.
+
+If we would help men—John 14:12–13.
+
+If we would do God’s will—1 John 5:14–16.
+
+Prayer alters others.
+
+We can do it—James 5:16.
+
+By asking—John 15:7.
+
+By seeking—John 15:7.
+
+By knocking—Matthew 7:7.
+
+Prayer alters circumstances through me.
+
+How beautiful is this undisturbed morning hour with God!
+
+O Lord, this day keep my soul focused upon You as Creator of the world, and upon our Lord Jesus Christ as Creator of His life in me. O for the power of Your Spirit to adore You completely!
+
+“What shall I render to the Lord for all His benefits toward me? I will take the cup of salvation.” Can I think of anything so gracious and complete in surrender and devotion and gratitude as to take from You? O Lord, I desire a livelier sense of You and of Your blessings continually with me.
+
+O Lord, this day may Your beauty and grace and soothing peace be in me and upon me. May no wind or weather or anxiety ever touch Your beauty and Your peace in my life or in this place.
+
+5 Reader Harris (1847–1909): prominent British barrister, founded the Pentecostal League of Prayer in 1891; friend and mentor to Oswald Chambers.
+
+3onIqfisQfWD6N_3j-jfbw180
+
+Two
+
+The Simplicity of Prayer
+
+Watch and pray, lest you enter into temptation. The spirit indeed is willing, but the flesh is weak (Matthew 26:41).
+
+These words were spoken in the supreme moment of our Lord’s agony. We are immensely flippant if we forget that. No words our Lord ever spoke weigh more. We are dealing with the sacred simplicity of prayer. If prayer is not easy, we are wrong. If prayer is an effort, we are out of it. There is only one kind of person who can really pray, and that is the child-like saint—the simple, stupid, supernatural child of God. I do mean “stupid.”
+
+We try to explain why God answers prayer on the ground of reason. This is nonsense. God answers prayer on the ground of redemption and on no other ground. Let us never forget that our prayers are heard, not because we are in earnest, not because we suffer, but because Jesus suffered. Because our Lord Jesus Christ went through the depths of agony to the last ebb in the Garden of Gethsemane, because He went through Calvary, we have “boldness to enter the Holiest” (Hebrews 10:19).
+
+Let us take ourselves across Kidron to the Garden of Gethsemane. We can never fathom the agony in Gethsemane, but at least we need not misunderstand. This is not the agony of a man. This is the distress of God in Man, or rather the distress of God as Man. It is not human in any phase, and it is fathomless to a human mind. But we have several lines to go on so as not to misunderstand. Always beware of the tendency to think of our Lord as an extraordinary human being. He was not. He was God incarnate.
+
+The Undiscerned Word of Our Lord.
+
+Watch and pray . . .
+
+“Stay here and watch with me” (Matthew 26:38). Is our idea of prayer based on the keen watching that Jesus Christ asked of His disciples? He did not say “pray for anything” or “ask God for anything.” His attitude toward them was wrapped up in the words “watch with me.” Our Lord did not say sentimental or pious things about prayer. He said practical and intensely real things, and this is one of them.
+
+Probably our biggest difficulty is that our Lord is not really Master. We use the word “Master,” but we use it in a more or less pious way. We do not intend to make Him Master practically. We are much more familiar with the idea that Jesus is our Savior, our sanctifier, anything that puts Him in the relationship of a supernatural comrade. We advocate anything that Jesus does, but we do not advocate Him.
+
+The Appropriate Place of Our Lord’s Arranging. “Sit here while I go and pray over there” (Matthew 26:36). In one sense it is quite right to take our Lord as an example of how to pray, but in the fundamental sense He is not. The relationship we have to God is not the same as Jesus Christ’s relationship to His Father—especially on this occasion. His is not a relationship, it is a redemption. So until we are sure about our Lord’s redemption we are to “sit here and wait.” People ask, “Why do you waste your time in a Bible Training College? Fancy spending all your time studying the Bible. Think of the people who need to be looked after. Think of the thousand and one things there are to do.” Well, they have to be done, but that is not the point. The point is, are we prepared for our Lord to say to us, “Sit here while I go and pray over there”? Are we prepared to give due weight to the fact that we are not our own masters? Are we devotees to a cause or disciples of the Lord Jesus Christ? He said to the disciples, “Sit here.” If they had been like some of us they would have said, “No, it is absurd. We must go and do something.”
+
+The more we get into the atmosphere of the New Testament the more we discover the unfathomable and unhastening leisure of our Lord’s life, no matter what His agony. The difficulty is that when we do what God wants us to do, our friends say, “It is all very well, but suppose we all did that?” Our Lord did not tell all the disciples to sit there while He prayed. He told only three of them. The point is that we must take as from God the haphazard arrangements of our lives. If we accept the Lord Jesus Christ and the domination of His lordship, we also accept that nothing happens by chance because we know that God orders and engineers circumstances. The fuss has gone, the amateur providence has gone, the amateur disposer has gone, and we know that “all things work together for good to those who love God” (Romans 8:28). If Jesus says, “Sit here while I go and pray over there,” the only appropriate thing we can do is to sit.
+
+The Appointed Place of Our Lord’s Associates. “And He took with Him Peter and two sons of Zebedee.” Our Lord opened His sorrow to these three. Peter may stand for the first temptation that beset our Lord—the sensible, material side of things, for help and assistance. James may stand for the second temptation that beset our Lord—the intensely ritualistic. And John may stand for the last temptation—the temptation to compromise everything to win. These three were appointed by our Lord for one purpose—to see His agony. “Stay here and watch with me.” He did not put them there to go to sleep, He put them there to wait and watch. The twelve disciples were all He had. He knew that one had gone to betray Him, that Peter would shortly deny Him with oaths and curses, and that all of them would forsake Him and flee. But He took these three with Him to see the unveiling of His heart—and they slept for their own sorrow.
+
+The Autobiographic Place of Our Lord’s Agony. He “began to be sorrowful and deeply distressed” (Matthew 26:37). Our Lord said to these disciples what He never said to the others. In John 12:27, He said in soliloquy something similar. “Now my soul is troubled, and what shall I say?” Here He really said to these three, “My soul is exceedingly sorrowful, even to death” (Matthew 26:38). Have we for one second watched Jesus pray? Have we ever understood why the Holy Spirit and our Lord Himself were so exceptionally careful about recording the agony of Gethsemane? This is not the agony of a man or a martyr. This is the agony of God as Man. It is God, as Man, going through the last lap of the supreme, supernatural redemption of the human race.
+
+We ought to give much more time than we do—a great deal more than we do—to brooding on the fundamental truths on which the Spirit of God works the simplicity of our Christian experience. The fundamental truths are redemption and the personal presence of the Holy Spirit, and these two are focused in one mighty personality, the Lord Jesus Christ. Thank God for the emphasis laid on the efficacy of the Holy Spirit to make experientially real the redemption of Jesus Christ in individual lives.
+
+Remember, what makes prayer easy is not our wits or our understanding, but the tremendous agony of God in redemption. A thing is worth just what it costs. Prayer is not what it costs us, but what it cost God to enable us to pray. It cost God so much that a little child can pray. It cost God Almighty so much that anyone can pray. But it is time those of us who name His name knew the secret of the cost, and the secret is here: “My soul is exceedingly sorrowful, even to death.” These words open the door to the autobiography of our Lord’s agony. We find the real key to Gethsemane in Matthew 4, which records the temptations of our Lord. Here they come again in a deeper and more appealing manner than ever before. We are not looking here (as we do when we deal with the temptations) at the type of temptation we have to go through. We are dealing here with the grappling of God as Man in the last reaches of historical redemption.
+
+“But these truths are so big.” Why shouldn’t they be? Have we to be fed with spooned meat6 all the time? Is it not time we paid more attention to what it cost God to make it possible for us to live a holy life? We talk about the difficulty of living a holy life, but there is the absolute simple ease of Almighty God in living a holy life because it cost Him so much to make it possible. Beware of placing the emphasis on what prayer costs us. It cost God everything to make it possible for us to pray. Jesus did not say to these men, “Agonize!” He said, “Watch with me.” Our Lord tried to lift the veil from before these disciples that they might see what He was going through. Think who He was—the Son of God. “My soul”—the reasoning mind of the Lord Jesus Christ—“is exceedingly sorrowful, even to death. Stay here and watch with Me.”
+
+The Lure of Wrong Roads to the Kingdom
+
+. . . lest you enter into temptation . . .
+
+Whenever Jesus talked about His kingdom the disciples misinterpreted what He said to mean a material kingdom to be established on this earth. But Jesus said, “My kingdom is not of this world. If my kingdom were of this world, My servants would fight, so that I should not be delivered to the Jews” (John 18:36). And again He said, “The kingdom of God does not come with observation; . . . for indeed, the kingdom of God is within you” (Luke 17:20).
+
+The only way to be saved from the lure of the wrong roads is by doing what our Master tells us, that is, “Watch and pray, lest you enter into temptation.” If we do not watch and pray we shall be led into temptation before we know where we are. “Nevertheless, when the Son of man comes, will He really find faith on the earth?” said Jesus (Luke 18:8). He will find faith in individual men and women, but the general organized form of the Christian church has slipped almost wholesale onto wrong roads to the Kingdom.
+
+The Material Road of Deliverance (Matthew 4:1–4). “If You are the Son of God, command that these stones become bread.” This temptation is profoundly human. If we could only find some means of curing everybody of disease, of feeding them and putting them on a good social basis, what a marvelous thing it would be. That is the way we are being told that the Kingdom of God is to be established on this earth. “We do not need any more of this talk about the atonement and the shedding of blood; what is needed today is to spend ourselves for others.” But that is the lure of the wrong road to the Kingdom, and we cannot keep out of it if we forget to watch and pray. “Watch with me,” said Jesus. “Mine is the only road to the kingdom.”
+
+We have to continue with Him in His temptations. “Command that these stones become bread.” In other words, Satan was saying, “Satisfy Your own needs and the needs of men and You will get the kingship of men.” Was Satan right? Read John 6:15: “Therefore when Jesus perceived that they were about to come and take Him by force to make Him king, He departed again to the mountain by Himself alone.” Why? He had just fed five thousand of them! Yes, but Jesus “departed . . . alone.” He would not be king at that price.
+
+The Mysterious Road of Devotion (Matthew 4:5–7). Here we are dealing with our Lord’s presentation of His own temptation. In the most sacred matters we must rely only on the Holy Spirit, no one else. This temptation presents a wild reach of possibility. “You are the Son of God. Do something supernatural that will stagger men, and the world will be at your feet.” Was Satan right? Absolutely. Is there not a lure along that road today more than ever? There are miraculous dealings that lure to destruction, such as the seeking for signs and wonders. Almost without exception the people lured down this wrong road are those who have been told to fast and concentrate for something for themselves, whereby the Lord may show how marvelous He is. It does look right to human reason when it is just touched on the first outer fringe by the Holy Spirit, but it contradicts emphatically what our Lord teaches, namely, that importunity in intercession is never for ourselves but for others.
+
+“The kingdom of God does not come with observation” (Luke 17:20). It is at work now. The manifestation of the Kingdom of God externally is another thing. The disciples still had their own ideas of the Kingdom. They were blind to what Jesus Christ’s Kingdom meant, and they were so totally depressed that they slept for their own sorrow. “Watch with me.” How could they? They had no idea what He was after.
+
+The Mental Road of Dominion (Matthew 4:8–10). This is the temptation to compromise. Some say that evil is in the world, so we compromise with it, work with it judiciously. “All these things I will give You if You will fall down and worship me,” Satan said. This temptation is the most subtle of all. People tell us, “Don’t be so straight-laced. We have passed the day when we believe in a personal devil.” May God forgive us. I am afraid we are past that stage. Will the church that bows down and compromises succeed? Of course it will. It is the very thing that the natural man wants, but it is the lure of a wrong road to the Kingdom. Beware of putting anything sweet and winsome in front of the One who suffered in Gethsemane.
+
+The Light of Undisciplined Vision
+
+The spirit indeed is willing, but the flesh is weak (Matthew 26:41).
+
+It is so easy when we see things in vision to start out and do them. We are caught up into the seventh heaven, far above all the grubby things of earth. It is magnificent for a time, but we have got to come down. After the Mount of Transfiguration comes the place where we have to live, namely, the demon-possessed valley. The test of reality is our life in the valley, not that we fly up among the golden peaks of the early morning.
+
+The Triumphant Minute. “Blessed are you, Simon Bar-Jonah” (Matthew 16:17; see John 21:15–19). Peter had his triumphant minute, but he had to go through the mill after that. He went through a tremendous heartbreak before he was fit to hear Jesus say, “Feed my sheep.” Peter would have done anything for his Lord—the spirit was willing, but the flesh was weak. We make allowances for the flesh, but we have no business to. We have to make manifest in the flesh the visions of the spirit. Thank God we are going to heaven when we die, but thank God we are not going before we die. We get glimpses of heaven, then we are brought down instantly into actual circumstances. Do not go too long in the light of undisciplined vision. Thank God for the triumphant minute, but we have to walk on earth according to what we saw in vision.
+
+The Transfiguration Moment. “And He was transfigured before them” (Matthew 17:2). After seeing Jesus for that moment on the Mount, we see Him standing after the resurrection on the seashore in the early morning with “a fire of coals there, and fish laid on it, and bread” (John 21:9). Thank God for seeing Jesus transfigured, and for the almightiness of the visions He does give, but remember that the vision is to be made real in actual circumstances. The glory is to be manifested in earthen vessels. It has to be exhibited through fingertips, through eyes and hands and feet, wherever Jesus exhibited it. We are so like Peter on the Mount when we say, “O Lord, let me stay here.”
+
+The Transcendent Moment. “Even if I have to die with You, I will not deny You” (Matthew 26:35). Peter meant it every bit. It was a transcendent moment to him. He would have done anything for Jesus Christ, and yet he denied with oaths and curses that he ever knew Him. Peter was no hypocrite, but he did not watch and pray. Peter based his declaration on the keen generosity of his own heart, but he did not understand that he needed to be on another basis altogether—the basis of redemption.
+
+Thank God for the heroic moments of life! It is comparatively easy to live in the heroic moments. We can all have halos at times. If we stand in the right place, with stained-glass windows behind us, and have the right kind of dress on, it is not at all difficult to look remarkably fine. But there is nothing in it. Not only is there nothing in it, but excessive dangers arise out of it. Beware of the transcendent moment that is a pose. A humorous sense of criticism is wholesome. Some people get to a transcendent moment and someone tells them they look remarkably fine, and forever after they try to live in that transcendent moment. We have to get down to the level where the reality works out, and the whole counsel comes back to this, “Watch and pray”—the secret of the sacred simplicity of prayer. Prayer imparts the power to walk and not faint, and the lasting remembrance of our lives is of the Lord, not of us.
+
+O Lord, I come to You that I might find grace to praise and worship You aright.
+
+Lord, lift up the light of Your countenance upon us. Send power and majestic grace.
+
+O Lord, how good it is for me to know You! How vital it is for me to draw near to You! How can I falter when You are my Life!
+
+Lord, our God, the Father of our Lord Jesus Christ, of whom Jesus is the very image, I look to You and make my prayer. Bless me this hour with the feeling of Your presence and the glow of Your nearness, for I do trust You and hope only in You.
+
+6 spooned meat: liquefied food that requires no chewing or effort; baby food.
+
+3onIqfisQfWD6N_3j-jfbw227
+
+Three
+
+The Struggle for Prayer
+
+For we do not wrestle against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this age, against spiritual hosts of wickedness in the heavenly places. Therefore take up the whole armor of God, that you may be able to withstand in the evil day, and having done all, to stand.
+
+Stand therefore, having girded your waist with truth, having put on the breastplate of righteousness, and having shod your feet with the preparation of the gospel of peace; above all, taking the shield of faith with which you will be able to quench all the fiery darts of the wicked one. And take the helmet of salvation, and the sword of the Spirit, which is the word of God; praying always with all prayer and supplication in the Spirit, being watchful to this end with all perseverance and supplication for all the saints—and for me, that utterance may be given to me, that I may open my mouth boldly to make known the mystery of the gospel (Ephesians 6:12–19).
+
+Paul takes the illustration of battle and applies it to what goes on in a saint’s life. The whole meaning of taking the armor of God is for prayer. Prayer is the position the devil is struggling for. The struggle is around the position of prayer and the simplicity of prayer. Prayer is easy to us because of what it cost God to enable us to pray. It is the redemption of God, the agony of our Lord, that has made our salvation so easy and prayer so simple. When we emphasize the cost of prayer to us, we are wrong. The cost to us is nothing. It is a supreme and superb privilege marked by supernatural ease because of what it cost God.
+
+We tend nowadays to worship prayer. We stress nights of prayer and the difficulty and cost of prayer. It is not prayer that is strenuous, but the overcoming of our own laziness. If we make the basis of prayer our effort and agony, we mistake the basis of prayer. The basis of prayer is not what it costs us, but what it cost God to enable us to pray.
+
+The Christian Continually in Practice
+
+It is all very well to have vision, but we must also have practice so that when we find ourselves in a tight place we are equipped to meet the emergency. One of the greatest difficulties in war is to find a man who can keep his head when everyone else is losing theirs. It is only done by steady practice. “Therefore take up the whole armor of God”—not to fight, but to stand. We are not told to attack or to storm the efforts of darkness. We are told to stand, unpanicky and unbudged, more than conquerors. A conqueror is one who fights and wins. A “more than conqueror” is one who easily and powerfully overcomes. The struggle is not against flesh and blood, it is against principalities and powers. We cannot touch them by intellect or organization, by courage or foresight or forethought. We cannot touch them at all unless we are based on the redemption.
+
+“Therefore take up the whole armor of God.” It is not given; we have to take it. It is there for us to put on, understanding what we are doing. We have the idea that prayer is for special times, but we have to put on the armor of God for the continual practice of prayer, so that any struggling onslaught of the powers of darkness cannot touch the position of prayer. When we pray easily it is because Satan is completely defeated in his onslaughts. When we pray with difficulty it is because Satan is gaining a victory. We have not been continuously practicing. We have not been facing things courageously. We have not been taking our orders from our Lord. Our Lord did not say, “Go” or “Do.” He said, “Watch and pray.”
+
+If we struggle in prayer it is because the enemy is gaining ground. If prayer is simple, it is because we have the victory. There is no such thing as a holiday for the beating of our hearts. If there is, the grave comes next. And there is no such thing as a moral or spiritual holiday. If we attempt to take a holiday, the next time we want to pray it is a struggle because the enemy has gained a victory all around. Darkness has come down and spiritual wickedness in high places has enfolded us. If we have to fight, it is because we have disobeyed. We ought to be more than conquerors.
+
+“And having done all, to stand”—a mental state of confidence, not panic. What is it that puts us into a panic? The devil is a bully, but he cannot stand for a second before God. When we stand in the armor of God he pays no attention to us, but if we tackle the devil in our own strength we are done for. If we stand in God’s armor with the strength and courage of God, Satan cannot gain one inch of way. That is the only way to hold the position of prayer and to be untouched by Satan’s wiles.
+
+Confidence in the natural world is self-reliance. In the spiritual world it is God-reliance. We run away when we have not been practicing, when we have not been doing anything in private. Then, when there is a new onslaught of the wiles of the devil we lose heart instantly. Instead of standing we scuttle, and others have to fill the gap until we are sufficiently ashamed to come back.
+
+We cannot stand against the wiles of the devil by our wits. The devil only comes along the lines that God understands, not along the lines we understand. The only way we can be prepared for him is to do what God tells us, to stand complete in His armor, indwelt by His Spirit, in complete obedience to Him. We do not have to wait for some great onslaught of the enemy. He is here all the time and he is wily. The secret of the sacred struggle for prayer lies in the fact that we must stand in the armor of God, practicing what God would have us do. Then we can hold the position of prayer against all the attacks of the devil.
+
+If we are struggling in prayer it is because the wiles of the enemy are getting the upper hand, and we must look for the cause in our lack of discipline. There are some things we have not been strenuously practicing. We used to pray in the morning. Do we now? We used to commune with God over the Bible. Do we now? We used to be in contact with God wherever we went. Are we now? Put on the whole armor of God and continuously practice. Then the wiles of the devil cannot get you unaware.
+
+The Christian’s Courageous Preparation
+
+“Stand therefore, having girded your waist with truth”—all active, sensible work is symbolized by a girded waist—“having put on the breastplate of righteousness.” In other words, have no inordinate fear, no questionable affinities, no tampering with winsomeness, which all break down the armor. Righteousness means “rightness” in our relationship to other people and their best interests.
+
+“And having shod your feet with the preparation of the gospel of peace.” What kind of shoes do we wear? How many can say of us, “As soon as I heard your step I felt better?” Or do they say, “When your step came into my life all went wrong; when the step of your friendship began I started to lose out with God”? Put on the armor of God, keep the heart right with God, and wherever you go, you will shed the preparation of the gospel of peace. Wherever the saint goes there is the shedding of the benediction of the blessing of God, or there is the coming of the conviction of the Spirit of God.
+
+“Above all, taking the shield of faith.” Faith is unbreakable confidence in the personality of God, not in His power. There are some things over which we may lose faith if we have confidence in God’s power only. There is so much that looks like the mighty power of God that is not. We must have confidence in God over and above everything He may do, and stand in confidence that His character is unsullied. Faith stands all tests—“Though He slay me, yet will I trust in Him.” When we take the shield of faith, none of these things can get through without breaking the shield. We are protected by the covering shield.
+
+“And take . . . the sword of the spirit.” The Spirit brings to mind what the Lord Jesus has said. In every onslaught of the enemy around us, that is the position he is struggling for. To wield the sword of the Spirit, which is the Word of God, we must obey, and it takes the courageous heart to obey. If we try to apply the teaching of our Lord apart from the imparted nature of our Lord to our souls, we will make a muddle. It is not that we take the Sermon on the Mount as precepts and try to live up to them, but that when the Spirit of God brings some word of God back to mind, we will obey it. It will take courage, but as we obey, we withstand the wiles of the devil, and we stand.
+
+The Christian’s Competence in Prayer
+
+This is where God puts His soldiers, clad in His armor, and indwelt by His Spirit. Can we pray in prayer, or are we beguiled by the devil? Have we been lured into a judicious winsomeness? Are we not quite so intense as we used to be? Have black and white become a neutral gray? Are we no longer so intense about sin as we used to be? Then we are out of place. We are exactly in the relationship of traitors. We give away God’s position so that Satan can easily overcome us by surprise.
+
+“Watch and pray,” said Jesus in the center of His own agony. If we don’t, we shall slip into the lure of wrong roads without knowing it. The only way to keep right is to watch and pray. The basis of prayer is not human earnestness, not human need, not the human will; it is redemption, and its living center is a personal Holy Spirit. Prayer on any other basis is stupid. A child can pray. Through His own agony in redemption, God has made it as easy to pray as it sounds. A rationally minded being can ridicule nothing more easily than prayer. “Praying always”—the unutterable simplicity of it! No panic, no flurry, always at leisure from ourselves on the inside.
+
+“Being watchful to this end with all perseverance and supplication for all the saints.” It is all very well to have prayer meetings, but are we continually practicing in the armor of God, keeping our hearts stout in the courage of God’s Spirit and taking our orders from Him? Or are we making an ingenious compromise? There is only one service that has no snares, and that is prayer. Preaching has snares to the natural heart; so has public service. Prayer has no snare because it is based on the redemption of the Lord Jesus Christ made efficacious all the time by the Holy Spirit.
+
+“And for me, that utterance may be given unto me.” We naturally suppose it is no use praying for prominent people. God will look after them all right. The prominent people for God are marked for the wiles of the devil, and we may pray for them all the time. Every now and again God gives us an alarming exhibition of what happens if we don’t.
+
+Lord God Omnipotent, how my soul delights to know that You care for sparrows and number the hairs of our head! Lord, breathe on me till I am in the frame of mind and body to worship You.
+
+O Lord, I would seek Your face now, but what good is my seeking if You do not reveal Yourself? Show me Your face, O Lord. Keep me ever seeing You.
+
+O Lord, to praise You aright is a great desire of mine, created and fostered by Your Spirit and grace. This morning, O Lord, I praise You for all the past—so wayward on my part, so wonderful and gracious and long-suffering and forgiving and tender and inspiring on Yours.
+
+3onIqfisQfWD6N_3j-jfbw263
+
+Four
+
+The Curriculum Of Intercession
+
+I will stand my watch
+
+And set myself on the rampart,
+
+And watch to see what He will say to me,
+
+And what I will answer when I am corrected.
+
+Then the LORD answered me and said:
+
+“Write the vision
+
+And make it plain on tablets,
+
+That he may run who reads it. (Habakkuk 2:1-2).
+
+Inspired Waiting
+
+I will stand my watch and set myself on the rampart.
+
+How steadily all through the Old and New Testament God calls us to stand on the watch and wait for His indications, and how often God’s answers to our prayers have been squandered because we do not watch and wait. Are you thoroughly perplexed over God’s way? Are you unable to reconcile God’s clear way as revealed in His book with the way He is leading you? Take the line of this prophet during his perplexity. Stand and watch to see what God will say—watch at the right place.
+
+There is a difference in the prayers of the Old and the New Testaments. In Chapter 3 the prophet Habakkuk bases his prayer on the character of God and appeals to God’s great mercies. In the New Testament, prayer is based on a relationship with God through Jesus Christ. “When you pray, say, Our Father” (Luke 11:2). There is another difference—the prayers in the Old Testament have to do with an earthly people in an earthly setting. The prayers in the New Testament have to do with a heavenly state of mind in a heavenly people while on this earth. We are continually reminded that we wrestle not against flesh and blood, but against principalities and powers and the rulers of this world’s darkness.
+
+The first thing to remember is to watch at the right place, the place where God has put us. Watch, that is, for God’s answer to our prayers, and not only watch, but wait. When God calls upon us to pray, when He gives the vision, when He gives an understanding of what He is going to do through us in our Sunday school class, in our church or home—watch. How many of us have had to learn by God’s reproof, by God’s chastisement, the blunder of conferring with flesh and blood.
+
+Are you discouraged where you are? Then get on this tower with God and watch and wait. The meaning of waiting in both the Old and New Testament is “standing under,” actively enduring. It is not standing with folded arms doing nothing. It is not saying, “In God’s good time it will come to pass.” By that we often mean, “In my abominably lazy time I let God work.” Waiting means standing under, in active strength, enduring till the answer comes.
+
+We must never make the blunder of trying to forecast the way God is going to answer our prayer. When God made a tremendous promise to Abraham, Abraham thought of the best way to help God fulfill His promise and did the wisest thing he knew according to flesh-and-blood commonsense reasoning. But God refused to speak to him for thirteen years, until every possibility of his relying on his own intelligent understanding was at an end. Then God came to him and said, “I am Almighty God”—El Shaddai—“walk before Me and be blameless” (Genesis 17:1).
+
+Over and over again God has to teach us how to stand and endure, watching actively and wondering. It is always a wonder when God answers prayer. We hear people say, “We must not say it is wonderful that God answers prayer.” But it is wonderful. It is so wonderful that a great many people believe it impossible. “Whatever you ask in my name, that I will do” (John 14:13). Isn’t that wonderful? It is so wonderful that I do not suppose more than half of us really believe it. “Everyone who asks receives” (Matthew 7:8). Isn’t that wonderful? It is so wonderful that many of us have never even asked God to give us the Holy Spirit because we don’t believe He will. “If two of you shall agree on earth as touching anything that they shall ask, it shall be done for them of my Father which is in heaven” (Matthew 18:19). Isn’t that wonderful? It is tremendously wonderful. “The effective, fervent prayer of a righteous man avails much” (James 5:16). Isn’t that wonderful?
+
+If you have had a vision of how wonderfully God can answer prayer, are you watching today for Him to answer along His line? Are you on your tower, watching steadfastly every sign of God’s goings? Or are you coming under the bitter blight that came on Meroz? When the Spirit of the Lord came on Deborah, the prophetess of the Lord, she cried, “Curse Meroz, . . . curse its inhabitants bitterly, because they did not come to the help of the Lord . . . against the mighty’ (Judges 5:23).
+
+The first chapter of Habakkuk speaks of the tremendous devastations that are to come upon Israel (see vv. 1–11). In our own day, the majority of us are sound asleep to the devastation going on. And we too will come under the bitter curse of Meroz if we do not rouse ourselves and stand with God against the mighty—spiritualism, supernaturalism, Christian Science, Millennial-dawnism7—all terribly widespread, sweeping, devouring errors. Are we thoroughly awake and watching, or are we crying in a cowardly way, “Tell us the things that please us, that rouse us up and kindle us on our own lines. Don’t tell us about the perplexities of a prophet or handmaid of God?” God grant that every child of His may get on the watchtower and stand and watch.
+
+As soon as a difficulty comes on the horizon and clouds gather, where is the intense watching? We sulk and turn aside. We turn our backs on God and on His messengers and say, “You have not brought us into a land flowing with milk and honey” (Numbers 16:14). God grant that in times of perplexity we may get back again to the watchtower, back again to inspired waiting, back again to the wide-eyed wonder of a child at God’s answers to our prayers.
+
+Intelligent Witnessing
+
+And watch to see what He will say to me.
+
+I do not think we have enough of the wondering spirit that the Holy Spirit gives. It is the child-spirit. A child is always wide awake with wonder. But as we get older we forget that a child’s wonder is nearer the truth than our older knowledge. When through Jesus Christ we are rightly related to God, we learn to watch and wait, and wait wonderingly. “I wonder how God will answer this prayer.” “I wonder how God will answer the prayer the Holy Spirit is praying in me.” “I wonder what glory God will bring to Himself out of the strange perplexities I am in.” “I wonder what new turn His providence will take in manifesting Himself in my ways.”
+
+The child-like wondering mind of the Holy Spirit, if I may say so reverently, was exhibited in the Lord Jesus Christ as everlasting wonder and expectancy at His Father’s working. “I do not speak on my own authority,” and “the Father who dwells in Me does the works” (John 14:10). Our Lord said that when the Holy Spirit is come, “He will not speak on His own authority, but whatever He hears He will speak” (John 16:13). The Lord Jesus spoke and worked from the great big child-heart of God. God Almighty became incarnate as a little child, and Jesus Christ’s message in us must become as that of little children. God always keeps the minds of His children open with wonder, with open-eyed expectancy for Him to come in where He likes. I wonder how many of us have been getting our ideas and convictions and notions twisted. Thank God for the confusion if it is going to drive us straight to the watchtower with God. There our doctrines and creeds are going to be God’s, not doctrines and creeds out of God’s Book twisted to suit our preconceived ideas, but the doctrines of God woven into the flesh and blood tissues of our lives by the indwelling Holy Spirit—watching, waiting, wondering, and witnessing.
+
+Take all the Old Testament prophets. God never spoke with them without a corresponding wonder on their part. Over and over again the prophets were staggered with wonder at the strange things God did, and if they leaned to their own intelligence without sufficiently relying on the tremendous power of God, there was instant confusion. We have to “receive, recognize, and rely on the Holy Spirit,” and never get beyond that stage. God grant we may have the wonder of the child-heart that the Holy Spirit gives, and that He may keep our minds young and vigorous and unstagnant, never asleep, but always awake with child-eyed wonder at the next wonderful thing God will do. “The LORD reigns; let the earth rejoice” (Psalm 97:1).
+
+God grant we may get to the place where the only thing we take seriously is the place God has put us, watching, waiting steadfastly for God’s goings. Never take anything said by any man or woman, or in any book, without waiting and watching before God. “Try the spirits,” test them, see if they be of God. I want you to beware of a mistake I have made over and over again of trying to interpret God’s plan for other lives according to the way He has led me. Never do this! Keep open-eyed in wonder. Can God do what He likes in your life? Can He help Himself to you? Can He take you up and put you down? Can He introduce His schemes through you, and never tell you the reason? Can He make you a spectacle to men and angels, as He did Job, without giving you any explanation? Can He make you a wonder to yourself and to others, while He gives you the implicit childlike understanding that somehow or other things are working out all right?
+
+Inviolable Walking
+
+Write the vision, and make it plain on tablets, that he may run that reads it. No longer watching and waiting, but actively set toward the divine goal to which God is calling.
+
+Have you ever noticed the “wondering-ness” (if I may coin a word) of the people who go on with God? They never seem to be overanxious or overconcerned and they always seem to be getting younger. What is the characteristic of the people of this world who have not got the child-heart? They are always sighing; they have mental and spiritual rheumatism and neuralgia, moral twists and perversities, and nothing can rouse them. Why? They need the child-spirit, the Spirit that was given to the disciples after the resurrection and in its fullness at Pentecost; then nothing will turn them aside.
+
+After Pentecost came the sword and great persecution. The disciples were all scattered abroad, but nothing could stop them from preaching the Word. There was a hilarious shout all through these men’s lives because of the mighty baptism of the Holy Spirit and fire. There was running then! No power on earth or heaven above or hell beneath could stop the tremendous strength of the child-life of the Holy Spirit in them. Have you got the wonder in your heart or are you sighing, “Thank God I have managed to squeeze enough grace out of God to last through this day?” Blessed be the name of God, all the unsearchable riches of Christ are at your disposal!
+
+Thank God for every life that is running in the strength of the tremendous vision. Keep your eyes on your file leader, Jesus only, Jesus ever, “and make straight paths for your feet” (Hebrews 12:13). Watch for His goings. When He stands and hides Himself in a cloud—stand, watch, and wait. When the meaning is clear, then you will run. A vision puts enthusiasm into you, a thrilling understanding of God’s Word, and you soar above in tremendous ecstasy. Then you come down and run without being weary, and then you come to the grandest days and walk without fainting.
+
+“For the vision is yet for an appointed time; but at the end it will speak, and it will not lie. Though it tarries, wait for it; because it will surely come, it will not tarry” (Habakkuk 2:3). “I heard the voice of the Lord, saying, ‘Whom shall I send, and who will go for Us?’” (Isaiah 6:8). That is a wonderful point—“Who will go for Us?” Some say, “Lord, there is Mrs. So-and-so. She is ready, send her.” Is that the answer you give? “O Lord, I know there ought to be a movement in my church and there is Mr. So-and-so. He’s just the one, send him.” If you have been watching, waiting, and wondering, you will say: “Here am I; send me.” If God came to you tonight, would you say, “Here am I?” Do you know where you are? Some people live in a fog. They don’t know where they are, but if you know anything about waiting on God and walking before Him, you will say, “Here am I, do what You like with me.”
+
+O Lord, explore down to the deepest springs of my spirit where Your Spirit works, and read my deepest prayer I cannot pray in expression. Lord, touch my body; it is Your temple. Shine out in and through it, O Lord.
+
+O Lord, lift up the light of Your countenance upon us this day, and make us to fit in with Your plans with great sweetness and light and liberty, and a lilt to You all day.
+
+O God my Father, the clouds are but the dust of Your feet. Let me discover in every cloud of providence or nature or grace no man but Jesus till there is no fear.
+
+7 Millennial Dawnism: another name for Russellism or the Jehovah’s Witnesses, founded by Charles Taze Russell.
+
+3onIqfisQfWD6N_3j-jfbw311
+
+Five
+
+After God’s Silence...What?
+
+Now Jesus loved Martha and her sister and Lazarus. So, when He had heard therefore that he was sick, He stayed two more days in the same place where He was (John 11:5–6).
+
+The Absence of Audible Response
+
+Jesus stayed two days where He was without sending a word. We are apt to say, “I know why God has not answered my prayer. It is because I asked for something wrong.” That was not the reason Jesus did not answer Martha and Mary. They desired a right thing. It is quite true God does not answer some prayers because they are wrong, but that is so obvious that it does not need a revelation from God to understand it. God wants us to stop understanding in the way we have understood and get into the place He wants us to get into. That is, He wants us to know how to rely on Him.
+
+God’s silences are His answers. If we only take as answers those that are visible to our senses, we are in a very elementary condition of grace. Can it be said of us that Jesus so loved us that He stayed where He was because He knew we had a capacity to stand a bigger revelation? Has God trusted us with a silence, a silence that is absolutely big with meaning? That is His answer. The manifestation will come in a way beyond our comprehension.
+
+Are we mourning before God because we have not had an audible response? Mary Magdalene was weeping at the sepulcher. What was she asking for? The dead body of Jesus. Of whom did she ask it? Of Jesus Himself, and she did not know Him! Did Jesus give her what she asked for? He gave her something infinitely grander than she had ever conceived—a risen living, impossible-to-die Lord.
+
+How many of us have been blind in our prayers? Look back and think of the prayers you thought had not been answered but now find that God has answered with a bigger manifestation than you ever dreamed. God has trusted you in the most intimate way He could trust you, with an absolute silence, not of despair but of pleasure, because He saw you could stand a much bigger revelation than you had at the time.
+
+Some prayers are followed by silence because they are wrong, others because they are bigger than we can understand. Jesus stayed where He was—a positive staying, because He loved Martha and Mary. Did they get Lazarus back? They got infinitely more; they got to know the greatest truth moral beings ever knew—that Jesus Christ is the Resurrection and the Life. It will be a wonderful moment when we stand before God and find that the prayers we clamored for in early days and imagined were never answered, have been answered in the most amazing way, and that God’s silence has been the sign of the answer. If we always want to be able to point to something and say, “This is the way God answered my prayer,” God cannot trust us yet with His silence.
+
+Here is where the devil comes in and says, “Now you have been praying a wrong prayer.” You can easily know whether you have—test it by the word of God. If it has been a prayer to know God better, a prayer for the baptism of the Holy Spirit, a prayer for the interpretation and understanding of God’s Word, it is a prayer in accord with God’s will. You say, “But He has not answered.” He has, He is so near to you that His silence is the answer. His silence is big with terrific meaning that you cannot understand yet, but presently you will. Time is nothing to God. Prayers were offered years ago and God answered the soul with silence. Now He is giving the manifestation of the answer in a revelation that we are scarcely able to comprehend.
+
+The Attitude of Awful Repose
+
+Picture Martha and Mary waiting day after day for Jesus to come, yet not till Lazarus’ body had been in the grave four days did Jesus Christ appear on the scene. Days of absolute silence, of awful repose on the part of God! Is there anything analogous to it in your life? Can God trust you like that, or are you still wanting a visible answer? “Whatever we ask we receive from Him” (1 John 3:22). If God has given you a silence, praise Him. Think of the things you prayed to God about and tried to hold and, because of His love, He dare not let you hold them and they went. For a time you said, “I asked God to give me bread and He gave me a stone.” But He did not, and you found that He gave you the bread of life. You prayed that you might keep the thing that seemed to make your life as a Christian possible. You asked that it might always be preserved by God, and suddenly the whole thing went to pieces. That was God’s answer. After the silence, if we are spiritual and can interpret His silence, we always get the trust in God that knows prayers are answered every time, not sometimes. The manifestation of the answer in place and time is a mere matter of God’s sovereignty. Be earnest and eager on the line of praying. One wonderful thing about God’s stillness in connection with prayers is that He makes us still, make us perfect confident. The contagion of Jesus Christ’s stillness gets into us—“I know He has heard me”—and His silence is the proof He has heard.
+
+The Answer’s Amazing Revelation
+
+Could the answer that Jesus Christ gave ever have entered into the heart of Martha and Mary: a raised brother, the manifestation of the glory of God, and the understanding of Jesus Christ in a way that has blessed the church for twenty centuries?
+
+Remember that Jesus Christ’s silences are always signs that He knows we can stand a bigger revelation than we think we can. If He gives us the exact answer, He cannot trust us yet. “If two of you agree on earth concerning anything that they ask, it will be done for them by My Father in heaven” (Matthew 18:19). That is stated for people who are not spiritual. Our Lord’s revelations about prayer in Luke 11 and 18 are for those who are spiritual, who remain in confidence in prayer. Because Jesus Christ keeps silence does not mean that He is displeased, but exactly the opposite. He is bringing us into the great run of His purpose, and the answer will be an amazing revelation. No wonder our Lord said, “Greater works than these he will do also; . . . . And whatever you ask in my name, that I will do” (John 14:12–13).
+
+That is what prayer means—not that God may bless us. As long as we have the idea only that God will bless us in answer to prayer, He will do it, but He will never give us the grace of a silence. If He is taking us into the understanding that prayer is for the glorifying of His Father, He will give us the first sign of His intimacy—silence. The devil calls it unanswered prayer. In the case of Martha and Mary, the Spirit of God called it a sign that He loved them, and because He loved them and knew they were fit to receive a bigger revelation than ever they dreamed of, He stayed where He was. God will give us the blessings we want if we won’t go any further, but His silence is the sign that He is bringing us into this marvelous understanding of Himself.
+
+O Lord, I ask for the power of Your Spirit to adore You more fully. Keep my spirit brightly infused by Your Holy Spirit, O Lord, that thus energized, my Lord Jesus Christ and His perfections may be manifested in my mortal flesh.
+
+O Lord, breathe on me till I am one with You in the temper of my mind and heart and disposition. I turn to You. How completely again I realize my lost-ness without You.
+
+O Lord, I have no inkling of Your ways in external details, but I have the expectancy of Your wonders soon to be made visible. Lord, I look to You. How completely at rest I am, yet how free from seeing Your way. You are God and I trust in You.
+
+3onIqfisQfWD6N_3j-jfbw337
+
+Six
+
+Now This Explains It
+
+As You, Father, are in Me, and I in You (John 17:21).
+
+The Submission of Life
+
+Jesus answered, “You could have no power at all against Me unless it had been given you from above. Therefore the one who delivered Me to you has the greater sin” (John 19:11).
+
+We are not built for ourselves, but for God. Not for service for God, but for God. That explains the submissions of life.
+
+“Then He went down with them . . . and was subject to them” (Luke 2:51). An amazing submission! For thirty years Jesus lived at home with brothers and sisters who did not believe in Him, and when He began His ministry they said He was mad. “As He is, so are we in this world.” We say, “When I was born again I thought it would be a time of great illumination and service, and instead of that I have had to stay at home with people who have criticized me and limited me on the right hand and on the left. I have been misunderstood and misrepresented.”
+
+“A disciple is not above his teacher” (Matthew 10:24). Do we think our lot ought to be better than Jesus Christ’s? We can easily escape the submissions if we like, but if we do not submit, the Spirit of God will produce in us the most ghastly humiliation before long. Knowing that Jesus has prayed for us makes us submit.
+
+God is not concerned about our aims. He does not say, “Do you want to go through this bereavement, this upset?” He allows these things for His own purpose. We may say what we like, but God does allow the devil, He does allow sin, He does allow bad men to triumph and tyrants to rule, and these things either make us fiends or they make us saints. It depends entirely on our relationship with God. If we say, “Your will be done,” we get the tremendous consolation of knowing that our Father is working everything according to His own wisdom. If we understand what God is after, we shall be saved from being mean8 and cynical.
+
+The things we are going through are either making us sweeter, better, nobler men and women, or they are making us more captious, more insistent on our own way. We are either getting more like our Father in heaven, or we are getting more mean and intensely selfish. How are we behaving ourselves in our circumstances? Do we understand the purpose of our life as never before? God does not exist to answer our prayers, but by our prayers we come to discern the mind of God, and that is declared in John 17:22: “That they may be one just as We are one.” Am I as close to Jesus as that? God will not leave me alone until I am. God has one prayer He must answer, and that is the prayer of Jesus Christ. It does not matter how imperfect or immature a disciple may be, if he will hang in, that prayer will be answered.
+
+Solitary Places of Life
+
+Then Jesus, being filled with the Holy Spirit, returned from the Jordan and was led by the Spirit into the wilderness, being tempted for forty days by the devil. And in those days He ate nothing, and afterward, when they had ended, He was hungry (Luke 4:1–2).
+
+There was nothing to mark our Lord from ordinary men except that He was insulated within. He did not choose the solitary places; He was driven by the Spirit of God into the wilderness. It is not good to be alone; evil will make a person want to be alone. Jesus Christ does not make religious hermits; He makes men and women fit for the world as it is (see John 17:15). We say, “I do wish Jesus did not expect so much of me.” He expects nothing less than absolute oneness with Himself as He was one with His Father. God does not expect us to work for Him, but to work with Him.
+
+Every man carries his kingdom within, and no one knows what is taking place in another’s kingdom. “No one understands me!” Of course they don’t; each of us is a mystery. There is only One who understands us, and that is God. We must hand ourselves over to Him.
+
+Are you being subjected in this internal kingdom to tremendous temptations? Jesus was tempted of the devil. Perhaps you are also, but no one guesses it. There is never any comrade for your soul when you are tempted. Temptation tests the things we hold dear. If we withhold things from God, those are the lines along which temptation will come. This explains it—Jesus has prayed, “that they may be one just as We are one.” Think of being one with Jesus, one in aim and purpose! Some of us are far off from this, and yet God will not leave us alone until we are one with Him, because Jesus has prayed that we may be. There is a risk in discipleship because God never shields us from the world, the flesh, and the devil. Christianity is character, not “show business.”
+
+If you are going through a solitary way, read John 17. It will explain exactly why you are where you are. Now that you are a disciple you can never be as independent as you used to be. Jesus has prayed that you might be one with the Father as He is. Are you helping God answer His prayer, or have you another end for your life?
+
+The Sublimity of Life
+
+And the glory which You gave Me I have given them, that they may be one just as We are one (John 17:22).
+
+“And the glory which You gave Me I have given them.” The glory of our Lord was the glory of a holy life, and that is what He gives to us. He gives us the gift of holiness. Are we exercising it?
+
+“The hope of His calling” is revealed in John 17, and it is the great light on every problem. God grant me that we may remain true to that calling. “We will come to him and make Our home with him” (John 14:23), the triune God abiding with the saint. What else does a man need to care about after that!
+
+O Lord, when I awake I am still with You. Quicken my mortal body with Your mighty resurrection life. Rouse me with a gracious flooding of Your Divine life for this day.
+
+Lord, so much activity, so many things, so numberless the people, and yet You remain! Bless today with largeness of heart and beauty of character for Your glory.
+
+O Lord, unto You do I look up. Enlighten me. Cause me to be radiant with Your countenance. I praise You for Your grace and for seeing a little of Your marvelous doings. Enable me more and more to manifest the life hidden with Christ in God.
+
+Lord, through the dimness, come with dawning and drawing light. Breathe on me till I am in a pure, radiant frame of body and mind for Your work and for Your glory this day.
+
+8 mean: as used here, something or someone ordinary, common, low, or ignoble, rather than cruel or spiteful.
+
+3onIqfisQfWD6N_3j-jfbw370
+
+Seven
+
+Praying in the Holy Spirit
+
+Praying always with all prayer and supplication in the Spirit (Ephesians 6:18).
+
+Praying in the Holy Spirit means using the power given to us by God to maintain a simple relationship to Jesus Christ, and it is most difficult to realize this simple relationship in the matter of prayer.
+
+Prayer Pervaded by Pentecost
+
+We have to pray relying upon what has been revealed by the sent-down Holy Spirit, and the first revelation is that we do not know how to pray (see Romans 8:26). We have to learn to draw on our relationship to Jesus Christ. As we do, we realize that the Holy Spirit keeps us in simple relationship to our Lord while we pray. When we pray in the Holy Spirit we are released from our petitions. “Your Father knows the things you have need of before you ask Him” (Matthew 6:8).
+
+Then why ask? The whole meaning of prayer is that we may know God. The “asking and receiving” prayer is elementary; it is the part of prayer we can understand. But it is not necessarily praying in the Holy Spirit. Those who are not born again must ask and receive; but when we have received and have become rightly related to God, we must maintain this simplicity of belief in Him while we pray. Our minds must be saturated by the Revelation of prayer until we learn in every detail to pray in the Holy Spirit. Prayer is not an exercise, it is life.
+
+Peculiar Sense of Need
+
+A great many people do not pray because they do not feel any sense of need. The sign that the Holy Spirit is in us is that we realize that we are empty, not that we are full. We have a sense of absolute need. We come across people who try us, circumstances that are difficult, conditions that are perplexing, and all these things awaken a dumb sense of need, which is a sign that the Holy Spirit is there. If we are ever free from the sense of need, it is not because the Holy Spirit has satisfied us, but because we have been satisfied with as much as we have. “A man’s reach should exceed his grasp.” A sense of need is one of the greatest benedictions because it keeps our life rightly related to Jesus Christ.
+
+Permeating Sense of Restraint
+
+When we learn to pray in the Holy Spirit, we find there are some things for which we cannot pray. We sense a need for restraint. Never push and say, “I know it is God’s will and I am going to stick to it.” Beware. Remember the children of Israel: “He gave them their request; but sent leanness into their soul” (Psalm 106:15). Let the Spirit of God teach you what He is driving at and learn not to grieve Him. If we are abiding in Jesus Christ we shall ask what He wants us to ask, whether we are conscious of doing so or not (see John 15:7).
+
+Profound Sense of Christ’s Work
+
+When we pray relaying on the Holy Spirit, He will always bring us back to this one point: we are not heard because we are in earnest, or because we need to be heard, or because we will perish if we are not heard. We are heard only on the ground of the Atonement of our Lord (see Hebrews 10:19).
+
+The efficacy of the atoning work of Christ is one thing that the Holy Spirit works into our understanding. As He interprets the meaning of that work to us, we learn never to bank on our own earnestness or on our sense of need. We never have the idea that God does not answer; we become restfully certain that He always does.
+
+The Holy Spirit will continually interpret to us that the only ground of our approach to God is “by the blood of Jesus.” As we learn the spiritual culture of praying in the Holy Spirit, we find that God uses the common sense circumstances He puts us in, and the common sense people His providence places us among, to enable us to realize that the one fundamental thing in prayer is the atoning work of Jesus Christ.
+
+Apprehension of God’s Resources
+
+When we pray in the Holy Spirit we begin to have a more intimate conception of God. The Holy Spirit brings all through us the sense of His resources. For instance, the Holy Spirit may call us to a definite purpose for our life and we know that it means a decision, a reckless fling over onto God, a burning of our bridges behind us, and there is not a soul to advise us when we take that step except the Holy Spirit.
+
+Our clingings come in this way: We put one foot on God’s side and one on the side of human reasoning. Then God widens the space until we either drop between or jump to one side. We have to take a leap—a reckless leap—and if we have learned to rely on the Holy Spirit, it will be a reckless leap to God’s side. So many of us limit our praying because we are not reckless in our confidence in God. In the eyes of those who do not know God, it is madness to trust Him, but when we pray in the Holy Spirit we begin to realize the resources of God, that He is our perfect heavenly Father, and we are His children.
+
+Always keep an inner recollection that God is our Father through the Lord Jesus Christ.
+
+Atmosphere for Work
+
+Praying in the Holy Spirit gives us a true insight into why Paul said we wrestle not against flesh and blood, but against principalities and powers, against spiritual wickedness in high places.
+
+If the Holy Spirit is having His way in us, He will charge the atmosphere round about us. There are things that have to be cleared away by the Holy Spirit. Never fight; stand and wrestle. Wrestling is not fighting, it is confronting the antagonist on our own ground and maintaining a steady, all-embracing “stand” and “withstand.” How many of us succumb to flesh-and-blood circumstances—“I did not sleep well” or “I have indigestion” or “I did not do quite the right thing there.” Never allow any of these things to be your reason for not prevailing in prayer. Hundreds of people with impaired bodies know what it is to pray in the Holy Spirit.
+
+In work for God never look at flesh-and-blood causes. Meet every arrangement for the day in the power of the Holy Spirit. It makes no difference what your work is or what your circumstances are if you are praying in the Holy Spirit. He will produce an atmosphere round about you, and all these things will result in the glory of God.
+
+Apostolic Habit
+
+“Pray without ceasing” (1 Thessalonians 5:17). Keep the child-like habit of continually exclaiming in your heart to God, recognize and rely on the Holy Spirit all the time. Inarticulate prayer, the impulsive prayer that looks so futile, is the thing God always heeds. The apostolic habit ought to be the persistent habit of each one of us.
+
+Attitude of Daily Reaction
+
+The way we react during the day will either hinder or help our praying. If we allow a reaction not born of a relationship to Jesus Christ, we shall have much wilderness waste to get through before we can come to God. Mists and shadows come between our conscious life and the interceding Holy Spirit. The Holy Spirit is there all the time, but we have lost sight of Him. Anything that is so continually with us, even our religious life itself, that we never really pray in the Holy Spirit may be a hindrance.
+
+The only one who prays in the Holy Spirit is the child, the child-spirit in us, the spirit of utter confidence in God. When we pray in the Holy Spirit we bring to God the things that come quite naturally to our minds, and the Holy Spirit who “makes intercession for the saints according to the will of God” (Romans 8:27) enables God to answer the prayer He Himself prays in our bodily temples. “That you may be sons of your Father in heaven” (Matthew 5:45). The Holy Spirit cannot delight in our wisdom. It is the wisdom of God He delights in.
+
+When we recognize that our body is the temple of the Holy Spirit we will be careful to keep it undefiled for Him. “My house shall be called a house of prayer,” said Jesus (Matthew 21:13).
+
+Lord, how I desire to see You, to hear You, to meditate on You, and to manifestly grow like You! And You have said, “Delight yourself also in the Lord, and He shall give you the desires of your heart.”
+
+O Lord, I know Your blessing and I praise You, but it is the indescribable touch as Your servant that I seek for—I know not what I seek for, but You know. How I long for Thee!
+
+Lord, I still move and live in a dim world, feeling You near by faith, but I will not presume. I would hide in You in security and patience until I am as You would have me to be.
+
+3onIqfisQfWD6N_3j-jfbw410
+
+Eight
+
+St. Paul’s Intercession
+
+Now may the God of peace Himself sanctify you completely; and may your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ. He who calls you is faithful, who also will do it (1 Thessalonians 5:23–24).
+
+All through the Bible the separation of a people by God is revealed, and the individual members of that people have to separate themselves to God’s service. We are set apart that we may set ourselves apart. God who requires the separations requires also that the person be sanctified intrinsically.
+
+Two ideas are brought out in regard to our Lord. First, the Father separated Jesus for His redemptive work: “Do you say of Him whom the Father sanctified and sent into the world, ‘You are blaspheming,’ because I said, ‘I am the Son of God?’” (John 10:36). Second, Jesus sanctified Himself for the work of God: “And for their sakes I sanctify Myself, that they also may be sanctified by the truth” (John 17:19).
+
+But our Lord was holy. Why did He say “I sanctify Myself”? To coin a phrase, Jesus Christ “sanctified His sanctification,” that is, He determinedly sacrificed His holy Self to His Father. Jesus Christ separated—or sanctified—Himself by sacrificing His holy Self to the will of His Father. He sanctified His intelligence by submitting His intelligence to the word of His Father. He sanctified His will by submitting His will to the will of His Father.
+
+As the sanctified children of God we need to bear in mind that after the experience of sanctification we have to separate our holiness to God. We are not made holy for ourselves, but for God. There is to be no insubordination about us.
+
+The majority of us are too indifferent, too religiously sentimental, to be caught up in the sweep of the apostle Paul’s intercession. Have we a lesser idea than that God should do in us what He wants to do? Are we prepared to pray with Murray McCheyne,9 “Lord, make me as holy as Thou canst make a sinner saved by grace”?
+
+Some people pray and long and yearn for the experience of sanctification, but never get anywhere near it. Others enter in with a sudden marvelous realization. Sanctification is an instantaneous, continuous work of grace. How long the approach to it takes depends upon ourselves, and that leads some to say sanctification is not instantaneous. The reason some do not enter in is that they have never allowed their minds to realize what sanctification means.
+
+When we pray to be caught up into God’s purpose behind this intercession of the apostle Paul, we must see that we are willing to face the standard of these verses. Are we prepared for what sanctification will cost? It will cost an intense narrowing of all our interests on earth, and an immense broadening of our interest in God. In other words, sanctification means an intense concentration on God’s point of view—every power of spirit, soul, and body chained and kept for God’s purpose only. Sanctification means being made one with God, even as the Lord Jesus Christ was one—“that they may be one, even as we are one.” That is much more than union; it is one in identity. The same disposition that ruled in Jesus rules in me.
+
+Am I prepared for what that will cost? It will cost everything that is not God in me. Am I prepared for God to separate me for His work in me, as He separated Jesus, and after His work is done, am I prepared to separate myself to God even as Jesus did? It is this settling down into God’s truth that we need.
+
+The type of sanctified life is the Lord Jesus Christ, and the characteristic of His life was subordination to His Father. The only way to get right with God is to soak in the atmosphere of the life of the Lord Jesus.
+
+The one mark of spiritual people today is insubordination. We have wild spiritual impulses that would give an opportunity to Satan as an angel of light to switch the very elect, if it were possible, away from God’s plan. If you want to know the result of spiritual insubordination, read 1 Corinthians 12. There we see a portrait of spiritual lunacy—absolute insubordination to the dominant sanity of the Spirit of God. The characteristic of the Holy Spirit in a man is a strong family likeness to Jesus and freedom from everything unlike Jesus.
+
+The best of us are all too shallow and flippant in our attitude to this tremendous secret of sanctification. Are we prepared to let the Spirit of God grip us and put us under His searchlight, and then do a work in us that is worthy of God? Sanctification is not our idea of what we want God to do for us. Sanctification is what God does for us, and He has to get us into the right relationship, the right attitude of mind and heart, where at any cost we let Him do it. Are we prepared to concentrate on the Holy Spirit’s ministration?
+
+The apostle Paul is not talking about scientific or intellectual truth. He is talking about spiritual truth, and the only way we can prove spiritual truth is by experience. People say, “I don’t understand this doctrine of sanctification.” Well, get into the experience first. You only get home by going there. You may think about getting there, but you will never get there till you go. Am I prepared to do what Jesus said—“Come unto me”? Am I prepared to let God make me real? Reality is the proof in my own experience that this thing is true. God grant that every worker may see the peril of not applying this spiritual logic, “Prove it.” Every time we give a message that we have no experience of, the Spirit of God will bring it back to us, “Where are you in regard to this matter?”
+
+The Value of Calm
+
+Now may the God of peace. . . .
+
+By the guidance of the Holy Spirit, Paul puts the subsiding of suspicion in first place. The very nature of the old disposition is an incurable suspicion that Jesus Christ cannot do what He came to do. If we have the tiniest suspicion that God cannot sanctify us in His almighty way we need to let the God of peace slip His great calm all through our insidious unbelief till all is quiet and there is one thing only—God and our soul; not the peace of a conscience at rest only, but the very peace of God that will keep us rightly related to God. “My peace I give to you,” said Jesus (John 14:27). When once we let the God of peace grip us by salvation and squeeze the suspicion out of us till we are quiet before Him, the believing attitude is born, there is no more suspicion, we are in moral agreement with God about everything He wants us to do.
+
+One of the things we need to be cured of by the God of peace is the petulant struggle of doing things for ourselves—“I can sanctify myself; if I cut off this and that and the other I shall be all right.” No, Paul says, “the God of peace Himself sanctify you completely” (1 Thessalonians 5:23). Has the God of peace brought you into a calm, or is there a clamor and a struggle still? Are you still hanging onto some obstinate conviction of your own? Still struggling with some particular line of things you want? “The God of peace Himself sanctify you completely.” If we are to be sanctified, it must be by the God of peace Himself. The power that makes the life of the saint does not come from our efforts at all. It comes from the heart of the God of peace.
+
+Some use a phrase, “to pray through.” What we have to “pray through” is all our petulant struggling after sanctification, all the inveterate suspicion in our hearts that God cannot sanctify us. When we are rid of all that and are right before God, then God lets us see how He alone does the work.
+
+When we stay our feeble efforts,
+
+And from struggling cease,
+
+Unconditional surrender
+
+Brings us God’s own peace.
+
+The great mighty power of the God of peace is slipped into the soul under the call of supreme sanctification. Some of us are far too turbulent in spirit to experience even the first glimpse of what sanctification means. People noisy in words are not always turbulent in spirit; excessively quiet people who have nothing to express in joy and shouting may be suspicious in heart.
+
+The Value of Massive Truth
+
+Sanctify you wholly. . . .
+
+When once we get calm before God and are willing to let Him do what He chooses, He gives us an outline of some of His massive truths. “And the very God of peace sanctify you wholly,” preserve you in unspotted integrity. Integrity is the unimpaired state of a thing, unblameable, undeserving of censure in God’s sight. Paul’s intercession is for an instantaneous and insistent sanctification that will preserve a man in unspotted integrity “unto the coming of our Lord Jesus Christ.” The majority of us have never allowed our minds to dwell as they should on these great massive truths; consequently sanctification has been made to mean a second dose of conversion. Sanctification can only be named in the presence of God. It is stamped by a likeness to Christ. Wholly means in every detail—mystical, moral, and material.
+
+Mystical. “And I pray God your whole spirit . . . be preserved blameless.” The word spirit here is not the same as in verse 19. “Your whole spirit” is the personality of a man imbued with the Spirit of God till all the highest mystical reaches of his personality are living in God. Where are your imaginations? Where are all the fancies that break through language and escape? Where do they live? Where are our dreams that make us afraid of ourselves?
+
+They are in our subconscious, super-conscious, beyond the range of what we are able to grasp. The great mystic work of the Holy Spirit is in those dim regions of personality where we cannot go. If we want to know what those regions are like, we can read Psalm 139. The psalmist implies, “You are the God of the early mornings, the God of the late-at-nights, the God of the mountain peaks, the God of the sea; but, my God, my soul has further horizons than the early mornings, deeper darkness than the nights of earth, higher peaks than any mountain, greater depths than any sea can know. My God, You are the God of these; be my God! I cannot reach to the heights or depths. There are motives I cannot touch, dreams I cannot fathom; God search me, winnow out my way.”
+
+When God gives His calm, do we realize the magnitude of sanctification through His omnipotent might? Do we believe that God can garrison our imaginations, can sanctify us far beyond where we can go? Have we realized that if we walk in the light as God is in the light that the blood of Jesus Christ cleanses us from all sin? If that means cleansing from sin in conscious experience only, God almighty have mercy on us! The man who has become obtuse through sin is unconscious of sin. Being cleansed by the blood of Jesus means cleansing to the very height and depth of our spirit if we walk in the light as God is in the light.
+
+None of us soaks sufficiently in the terrific God-like revelation of sanctification, and many a child of God would never have been led astray by the counterfeits of Satan if they had allowed their minds to be bent on that great concept of Paul’s—your whole spirit—from the vague beginnings of personality known only to God, to the top-most reaches, preserved entirely, garrisoned by the God of peace.
+
+Moral. “Your whole . . . soul preserved blameless.” There are those who want to form a religion on mysticism—live according to their temperament. Every sanctified soul is mystic, but he does not live in that region only. He is soul and body as well as spirit, and what is true in the mystical sphere is true in the moral sphere. Soul is man’s spirit becoming rational in the body, explaining itself.
+
+When a little child wants to say something and has not a vocabulary, it speaks through gesticulations and facial workings. It has not the power of soul to express itself in words. Paul says not only “your whole spirit preserved blameless,” but “your whole soul.” Are we forming the mind of Christ? A man has the spirit of Jesus given to him, but he has not His mind until he forms it. How are we to form the mind of Christ? By letting His Spirit imbue our spirit, our thinking, and our reasoning faculties. Then we shall begin to reason as Jesus did, until slowly and surely the Spirit that fed the life of Jesus will feed the life of our soul.
+
+Sanctification covers not only the narrow region where we begin the spiritual life, but the whole rational man, sanctified wholly in imagination and reasoning power. How do we read history? Do we discern the arm of the Lord behind it? How do we sum up the circumstances of our own lives? “The sun shall no longer be your light by day, nor for brightness shall the moon give light to you; but the Lord will be to you an everlasting light, and your God your glory” (Isaiah 60:19). The light on the inside will guide you, a reasoning soul, to understand the facts revealed by common days and nights you cannot understand otherwise. A humble, ignorant man or woman depending on the mind of God has an explanation for things that the rational man without the Spirit of God never has.
+
+Material. “Your whole . . . body preserved blameless.” Man is not only mystical and moral, but material. Never say because you have a body you cannot progress. According to the apostle Paul the body is unutterably sacred. The Bible does not say that the body is a curse and a hindrance; it says it is the temple of the Holy Spirit. “Or do you not know that your body is the temple of the Holy Spirit who is in you?” (1 Corinthians 6:19). It is only when garrisoned by the God of peace that the stupendous sanctity of the Holy Spirit preserves a man—spirit, soul, and body—in unspotted integrity, without blame, unto the coming of Jesus. Our whole body is preserved as we come into contact with all the different relationships of life. In the beginning of spiritual education we are apt to pay too much attention to one of these spheres and Satan gets his chance with others. If we pay attention to the spiritual, Satan will pay attention to the nerves.
+
+Sanctification is an instantaneous, continuous work of God. Immediately we are related rightly to God. It is manifested instantly in spirit, soul, and body. The reason the Church as a whole does not believe it is that they will not soak in the massive truths of God. Consequently every now and again in the history of the Church, God has had to raise up some servant of His to emphasize afresh this intense, vivid sanctification of the whole spirit, the whole soul, and the whole body, preserved blameless unto the coming of our Lord Jesus Christ.
+
+O Lord, my approach to You is dulled because of my physical dimness, but my spirit and heart rejoice in You and my flesh shall rest in hope. Touch me bodily, O Lord, till I answer in thrilling health to Your touch.
+
+Insulate me, O Lord, from the things of sense and time, and usher me into the presence of the King.
+
+O Lord, I am distressed at my slow manifestation of any of the beauty of holiness that might express my unspeakable gratitude for Your salvation. O Lord, cause me by looking to You to be radiant.
+
+O Lord, I would bless and praise You. How hard I find it to praise You when I am not physically fit, and yet why should I—that means that I praise You when it is a pleasure to me physically. O Lord, that my soul were one continual praise to You.
+
+9 Robert Murray McCheyne (1813–1843): Scottish minister whose short but intense life left a great impact on Scotland.
+
+3onIqfisQfWD6N_3j-jfbw460
+
+Nine
+
+This Day Is That Day
+
+“And in that day you will ask Me nothing. Most assuredly, I say to you, whatever you ask the Father in My name He will give you” (John 16:23).
+
+Unperplexed Realization
+
+That day” extends from Pentecost to the day of our Lord’s return. Our Lord had just been telling His disciples that He is going to His Father, and explaining to them what this meant. As far as He was concerned it meant that He would be omnipresent, omnipotent, and omniscient. The disciples had questioned Jesus up till then, but Jesus said, “In that day ye shall ask me no question.” The day our Lord was referring to was the Day of Pentecost, that is, the Day of the Spirit of God. What a wonderful day to live in!
+
+Unquestioned Revelation
+
+After the Resurrection our Lord breathed on these questioning, perplexed, confused, loyal disciples, and said, “Receive ye the Holy Spirit.” When we read the accounts in John and Luke we find that their eyes were opened and they knew Him. Their understandings were opened and they knew the Scriptures. Their inner consciences were opened and they knew that they had received from their risen Lord the very Spirit that ruled Him.
+
+Is it possible to sit down unperplexed while lives are being lost in so many ways right in our midst? Does it mean that we are to sit with folded hands and ask no questions? No, it means something much more sublime and practical than that. It means that in the profound regions of our lives we know that God is at work, the Holy Spirit has revealed Him, and He is taking us slowly into His counsels. “Whatever He hears He will speak; and He will tell you things to come” (John 16:13).
+
+Undeflected Reflection
+
+This does not mean that the soul who has received the Holy Spirit can demand that God tell him His secrets. It means that he is lifted to the privilege of entering into God’s counsels with Christ Jesus. Great darkness, exasperating providences, but the inner secret of the Lord is with those who have His Spirit.
+
+We know from reading John 16:2 that our Lord did not mean life would be free from external perplexities, because He says, “They will put you out of the synagogues; yes, the time is coming that whoever kills you will think that he offers God service.” Through it all comes the unquestioning revelation that Christ, as He knew His Father’s mind and heart, can lift any soul into the heavenly places with Him so that the counsel and understanding of God’s mind might be revealed.
+
+If we have been going on with Jesus Christ we have come to the day of unquestioning revelation; that is, we know what John meant when he said, “But you have an anointing from the Holy One, and you know all things” (1 John 2:20) and “the same anointing teaches you concerning all things” (v. 27). The meaning of that is very practical and sane—test all you hear, all you read, by this inner anointing, by the indwelling Spirit. He will test all the truth of God.
+
+Undisturbed Relation
+
+Most assuredly, I say to you, whatever you ask the Father in My name . . .
+
+“That day” is not only a day of unquestioning revelation, but a day of undisturbed relationship between God and ourselves. Just as Jesus stood unsullied in the presence of His Father, so by the mighty efficacy of the indwelling Holy Spirit we can be lifted up into the same relationship. “That they may be one, even as we are one.” “Whatever you ask the Father in My name”—that is, in My nature—“he will give you.”
+
+When we are born of the Holy Spirit, when we are related to God and bear the same family likeness to God that Jesus bore—which we may do by the wonderful atonement of the Lord Jesus Christ—we too can have this undisturbed relation to God.
+
+Undisguised Recognition
+
+He will give you.
+
+Jesus said that God will recognize our prayers. What a challenge! Had Jesus any right to say it? Have we faced it for one moment? Is it possible that the Lord Jesus Christ means that by His resurrection power, by His ascension power, by the power of the sent-down Holy Spirit, that He can lift us into such a relationship with God that we are at one with the perfect sovereign will of God by our free choice as Jesus was? Does He mean what He says?
+
+“Until now you have asked nothing in My name.” How could they ask anything in His name when He had not yet sent forth that marvelous Holy Spirit? “Ask, and you will receive, that your joy may be full.” Now we begin to understand why Jesus said, “You will ask Me nothing,” because the Holy Spirit in that day glorified Jesus and revealed Him to them, and brought back to their memory His words and led them into their meaning.
+
+When clouds are around the saints, know they are but the dust of the Father’s feet. And when the shadows are dark and terrible and they are afraid as they enter the cloud, they find “no one anymore, but only Jesus with themselves” (Mark 9:8) In that wonderful position, placed there at this moment, we can pray to God in the nature of Jesus Christ, gifted to us by the Holy Spirit, and Jesus Christ’s sovereign character is tested by His own statement, “Most assuredly, I say to you, whatever you ask the Father in my name, He will give you” (italics added).
+
+O Lord, You are God, Holy and Almighty, and You do all things well. Show Yourself to us this day, Lord, for myself I desire to see You. Draw me near to You that I may know You and have rare communion with You.
+
+Lord, I praise and thank You, for my lying fallow to Your grace; for the many prayers that have surrounded me like an atmosphere of heaven.
+
+O Lord, save us from the murmuring spirit which with the majority of us is merely skin deep, but it is harmful, hurting the bloom of spiritual communion. Keep our life hidden with Christ in God.
+
+3onIqfisQfWD6N_3j-jfbw491
+
+Ten
+
+Intercession
+
+And Abraham came near and said, “Would You also destroy the righteous with the wicked? Suppose there were fifty righteous within the city; would You also destroy the place and not spare it for the fifty righteous that were in it? Far be it from You to do so a thing as this, to slay the righteous with the wicked, so that the righteous should be as the wicked; far be it from You! Shall not the Judge of all the earth do right?”
+
+So the Lord said, “If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes.”
+
+Then Abraham answered and said, “Indeed now, I who am but dust and ashes have taken it upon myself to speak to the Lord: Suppose there were five less than the fifty righteous; would You destroy all of the city for lack of five?” So He said, “If I find there forty-five, I will not destroy it.”
+
+And he spoke to Him yet again and said, “Suppose there shall be forty found there?” So He said, “I will not do it for the sake of forty.” Then he said, Let not the Lord be angry, and I will speak: Suppose thirty should be found there?” So He said, “I will not do it if I find thirty there. And he said, “Indeed now, I have taken it upon myself to speak to the Lord: Suppose twenty should be found there.”
+
+So He said, “I will not destroy it for the sake of twenty.”
+
+Then he said, “Let not the Lord be angry, and I will speak but once more: Suppose ten shall be found there?”
+
+And He said, “I will not destroy it for the sake of ten.” So the Lord went His way, as soon as He had finished speaking with Abraham; and Abraham returned to his place (Genesis 18:23–33).
+
+The great difficulty in intercession is myself, nothing less or more. The first thing I have to do is to take myself to school. My first duty is not to assert freedom, but to find an absolute master. We think that to be without a master is the sign of a high type of life. Insurgent, impertinent human beings have no master; noble beings have. I must learn not to take myself too seriously. Myself is apt to be my master; I pray to myself.
+
+We are all Pharisees until we are willing to learn to intercede. We must go into heaven backward. That phrase means we must grow into doing some definite thing by praying, not by seeing. To learn this lesson of handling a thing by prayer properly is to enter a very severe school. A Christian’s duty is not to himself or to others, but to Christ. We think of prayer as a preparation for work, or a claim after having done work, whereas prayer is the essential work. It is the supreme activity of everything that is noblest in our personality. We won’t bring down to earth what we see in vision about our Master. We move around it in devotional speculations, but we won’t bring it straight down to earth and work it out in actualities.
+
+The Strength and Self-Limitation of Intercession
+
+If anyone sees his brother sinning a sin which does not lead to death, he will ask, and He will give him life for those who commit sin not leading to death. There is a sin leading to death. I do not say that he should pray about that (1 John 5:16).
+
+How are we going to know when a man has sinned a sin unto death and when he has not? Only through intercession. If we make our own discernment the judge, we are wrong. We have it all on an abstract truth divorced from God. We pin our faith on what God has done and not on the God who did it, and when the case begins to go wrong again, we do not intercede, we begin to scold God. We get fanatical. We upset the court of heaven by saying, “I must do this thing.” That is not intercession, that is rushing in where angels fear to tread. It is fanatical frenzy, storming the throne of God and refusing to see His character while sticking true to our assertions of what He said He would do.
+
+Beware of making God fit the mold of His own precedent. Just because He did a certain thing once does not mean He is sure to do it again. This truth becomes an imperceptible error when we subtly leave God Himself out of it. Frenzy—no strength and no self-limitation. We have taken ourselves so seriously that we cannot even see God; we are dictating to God.
+
+The redemption of our Lord Jesus Christ mirrored in the Atonement embraces everything. Sin, sickness, limitation, and death are all done away with in redemption, but we have to remember the Atonement works under God’s dispensational sovereignty. It is not a question of whether God will sovereignly permit us to be delivered from sin in this dispensation. It is His distinct expressive will that we should be delivered. When it comes to the question of sickness and limitation, it is not a question of whether we will agree with God’s will, but whether God’s sovereignty is active—that predispensational efficacy of the Atonement on our behalf just now.
+
+When people come to the Atonement and say, “Now I have deliverance in the Atonement, therefore I have no business being sick,” they make a fundamental confusion, because there is no case of healing in the Bible that did not come from a direct intervention of the sovereign touch of God. When it comes to deliverance from sin, it is not a question of going to God to ask Him to deliver us from sin, it is a question of accepting His deliverance. If we forget that, we take the Lord out of the Atonement and make it an abstract statement and instantly do the pharisaic dodge of putting burdens on people that they cannot bear.
+
+Logically they are perfectly correct. It is all in the Atonement. But if it is true that in the Atonement there should be no sickness, it is also true that there should be no death. We have no business dying. We have no business having any human limitations and we should be in complete unbroken communion with God. The people who teach the present resurrection are logically consistent with the folks who say the health of the body depends entirely on our acceptance of the Atonement. To say we are in resurrection bodies now means a moral pig-sty, and makes a burlesque of the whole thing. The mistake is putting an abstract truth deduced from God in the place of God Himself.
+
+Abraham had none of the fanatical in him. He did not stand true to what God said, but to God who said it. God said, “Offer up Isaac,” and then God said, “Don’t.” A fanatic would have said, “I will stick to what God has said. This other voice is of the devil.” Watch when some providence of God is going against what we have asserted God will always do. One of the most significant lessons is to see the rod of rebuke come on the people who insist that they know the meaning of the providential working of Christ’s atonement in the times in which we live. God does give wonderful gifts of the Atonement before their dispensation. There are innumerable cases of healing. But if I make that the ground on which God must work, I intercede no longer. I cannot. I become a dictator to God. When anyone is sick, I do not pray, I say, “They have no business being sick,” and that means I have destroyed altogether my contact with God.
+
+The Sagacity and Submissiveness of Intercession
+
+Therefore do not be like them. For your Father knows the things you have need of before you ask Him (Matthew 6:8).
+
+Our understanding of God is the answer to prayer; getting things from God is God’s indulgence of us. When God stops giving us things, He brings us into the place where we can begin to understand Him. As long as we get from God everything we ask, we never get to know Him. We look upon Him as a blessing-machine that has nothing to do with His character or with ours. “Your Father knoweth what things ye have need of, before ye ask Him.” Then why pray? To get to know our Father. It is not sufficient for us to say, “Oh yes, God is love.” We have to know He is love. We have to struggle through until we see that He is love and justice. Then our prayer is answered.
+
+The nearer Abraham comes to God in his intercession, the more he recognizes his entire unworthiness. There is a subtle thing that goes by the name of unworthiness, which is petulant pride with God. When we are shy with other people it is because we believe we are superior to the average person and we won’t talk until they realize our importance. Prayerlessness with God is the same thing. We are shy with God not because we are unworthy, but because we think God has not given enough consideration to our case. We have some peculiar elements He must be pleased to consider. We have to go to school to learn not to take ourselves seriously and to get the genuine unworthiness which no longer is shy before God. A child is never shy before his mother, and a child of God is conscious of his worthiness, namely, his entire dependence.
+
+“Then he said, “Let not the Lord be angry, and I will speak but once more: Suppose ten should be found there? And He said, I will not destroy it for the sake of ten” (Genesis 18:32). Abraham does the interceding while the angels go for the final test. After the final test, prayer is impossible. Abraham knew the stopping point because he was in complete and entire communion with God throughout his intercession. When we come against things in life, are we going to cave in and say we cannot understand them? We understand them by intercession. By our intercession God does things He does not show us just now, although He reveals more and more of His character to us. He is working out His new creations in the world through His wonderful redemption and our intercession all the time, and we have to be sagacious, not impudent.
+
+The Shamelessness and Strenuousness of Intercession
+
+I say to you, though he will not rise and give to him because he is his friend, yet because of his persistence he will rise and give him as many as he needs (Luke 11:8).
+
+Strenuousness means whipping ourselves up and jeering at ourselves till we sit down no more. We never give ourselves any encouragement; we only encourage ourselves in God. “Then He spoke a parable to them, that men always ought to pray and not lose heart” (Luke 18:1). It is a pleasant business to faint; everyone else has all the bother. “God will give it to me in His good time.” He cannot until we intercede. Be at the business, use some perspiration of soul, get at the thing, and all of a sudden we come to the place where we will say, “Now I see,” but I defy you to tell anyone what you saw until they come to where you are—
+
+Oh, could I tell, ye surely would believe it!
+
+Oh, could I only say when I have seen!
+
+How should I tell or how can ye receive it,
+
+How, till He bringeth you where I have been?
+
+The point is that we have come to understand God. It is never God’s will for us to be dummies or babies spiritually. It is God’s will for us to be sons and daughters of God, but He does not prevent us paying the price of being sons and daughters. He makes us sons and daughters potentially, and then sends us out to be sons and daughters actually.
+
+Are we prepared to go into the shameless business of prayer? That is, are we prepared to get to the right understanding of God in this matter? We can only get it one way—not by disputing or controversy, but by prayer. Keep at it. We have no business remaining in the dark about the character of our Father when He has made His character very clear to us. The Sermon on the Mount has more to do with prayer than anything else. It means an end of self-indulgence in the body, in the mind, in the spirit, self-indulgence in anything and everything, and a strenuous determination to get to understand God in this matter.
+
+The Sacrament and Substitution of Intercession
+
+Then he came to the disciples and found them sleeping, and said to Peter, “What! Could you not watch with Me one hour?” (Matthew 26:40).
+
+It is a great thing to watch with God rather than to put God to the trouble of watching us in case we burn ourselves. We tax the whole arrangement of heaven when we expect God to watch us. God wants us to come and watch with Him, to be so identified with Him that we are not causing Him any trouble, to give Him perfect delight because He can use us instead of taxing some other servants of heaven to look after us.
+
+O Lord, my Lord, I come to You this morning with a sense of spiritual failure. Cleanse me by Your grace and restore me to the heavenly places in Christ Jesus. O that the sweet kindness of Jesus were more and more manifest in me.
+
+O Lord, You know, in eager helpless trust I look up. O that in power and peace and purity and grace thou would shine forth in power, in grace and glory this day.
+
+O Lord, the range of Your power, the touch of Your grace, the breathing of Your Spirit, how I long for these to bring me face to face with You; Lord, by Your grace cause me to appear before You.
+
+3onIqfisQfWD6N_3j-jfbw537
+
+Eleven
+
+The Key to Service
+
+Therefore pray the Lord of the harvest to send out laborers into His harvest (Matthew 9:38).
+
+This is the key to the whole problem of Christian work. It is simple in words, but amazingly profound, because our Lord Jesus Christ said it.
+
+Our Master’s Orders
+
+Therefore pray . . .
+
+Prayer is usually considered to be devotional and more or less impractical in ordinary life. Our Lord in His teaching always considered prayer work, not preparation for work. Thank God for all the marvelous organization there is in Christian work, for medical missions and finely educated missionaries, for aggressive work in every shape and form; but these are, so to speak, pieces of the lock. The key is not in any of our organizations; the key lies in our hand by our Lord’s instruction, “Therefore pray.”
+
+“Most assuredly, I say to you, he who believes in Me, the works that I do he will do also; and greater works than these he will do, because I go to My Father. And whatever you ask in My name, that I will do, that the Father may be glorified in the Son” (John 14:12–13). Have the “greater works” been done? They certainly have. The men our Lord said these words to wrote the New Testament, and the reason they wrote it is that our Lord, when He was glorified, sent forth the personal Paraclete, the Holy Spirit, not only in His power—His power and influence were at work before Pentecost—but He sent Him forth to this earth personally, where He is to this hour, and through His might and inspiration produced the “greater works,” namely, the New Testament.
+
+But what does it mean for us? Have we also to do greater works than Jesus did? Certainly we have. If our Lord’s words mean anything, they mean that. And the great basis of prayer is to realize that we must take our orders from our Master. He put all the emphasis on prayer, and He made prayer not preparation for the work, not a sentiment nor a devotion, but the work. There is a real danger of worshiping prayer instead of praying because we worship. It is easy to do if we lose sight of our Lord and put the emphasis not on His command but on the thing that He commands.
+
+We pray on the great fundamental basis of redemption, and our prayers are made efficient by the wonderful presence of the personal Holy Spirit in the world. Prayer is simple, prayer is supernatural, and to anyone not related to our Lord Jesus Christ, prayer is apt to look stupid. It sounds unreasonable to say that God will do things in answer to prayer, yet our Lord said that He would. Our Lord bases everything on prayer. Then the key to all our work as Christians is, “Therefore pray.”
+
+When we pray for others the Spirit of God works in the unconscious domain of their being that we know nothing about, and the one we are praying for knows nothing about. But after the passing of time the conscious life of the one prayed for begins to show signs of unrest and disquiet. We may have spoken until we are worn out, but we have never come anywhere near, and we have given up in despair. But if we have been praying, we find on meeting them one day that there is the beginning of a softening and a desire to know something.
+
+It is that kind of intercession that does the most damage to Satan’s kingdom. It is so slight, so feeble in its initial stages, that if our reason is not wedded to the light of the Holy Spirit, we will never do it. Yet it is that kind of intercession that the New Testament places the most emphasis on, though it has so little to show for it. It seems stupid to think that we can pray and all that will happen, but remember to whom we pray. We pray to a God who understands the unconscious depths of personality about which we know nothing, and He has told us to pray. The great Master of the human heart said, “Greater works than these he will do. . . . And whatever you shall ask in My name, that will I do” (John 14:12–13).
+
+Not only is prayer the work, but prayer is the way fruit abides. Our Lord puts prayer as the means to fruit-producing and fruit-abiding work. But remember, it is prayer based on His agony, not on our agony. “You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and that your fruit should remain, that whatever you ask the Father in My name He may give you” (John 15:16).
+
+Prayer is not only the work and the way fruit abides, but prayer is the battle. “Put on the whole armor of God, . . . Stand therefore, . . .” and then pray. Paul says, “Praying always . . . for all the saints—and for me” (Ephesians 6:11–19). Do we remember to pray on the ground of our Lord’s orders for all who minister in His name? If the apostle Paul earnestly solicited prayer on his behalf that he might “make known with boldness the mystery of the Gospel,” surely we should remember that this is the key our Lord puts into our hands for all Christian work; not prayer because we are helpless, but prayer because God is Almighty.
+
+Our Master’s Ownership
+
+The Lord of the harvest. . . .
+
+Jesus did not say, “Go into the field.” He said, “Therefore pray the Lord of the harvest.” That does not so much mean that the harvest is the world, it means that there are innumerable people who have reached a crisis in their lives, they are “white already to harvest.” We find them everywhere, not only in foreign countries, but in neighboring houses, and the way we discern who they are is not by intellect, not by suggestions, but by prayer. Think of the countless crises in people’s lives at this time, they are at the parting of the ways. “Do you not say, ‘There are still four months and then comes the harvest?’ Behold, I say to you, lift up your eyes and look at the fields, for they are white already for harvest.” “Therefore pray the Lord of the harvest to send out laborers into His harvest.”
+
+When we read the concluding verses in Matthew’s Gospel, we are apt to put the emphasis on the fact that Jesus said, “Go therefore and make disciples of all the nations,” whereas the emphasis should be on “Go” because “All authority has been given to Me in heaven and on earth.” Then the “going” is in perfect order, putting the emphasis where our Lord puts it. “Go therefore . . . and lo, I am with you always,” that He may work His mighty works through us.
+
+Our Master’s Option
+
+. . . to send out laborers into His harvest.
+
+There is only one field of service that has no snares, and that is the field of intercession. All other fields have the glorious but risky snare of publicity; prayer has not. The key to all our work for God is in that one word we are apt to despise—“Pray.” And prayer is “laborer” work.
+
+The reason prayer is so important is, first of all, because our Lord told us that prayer on the ground of His redemption is the most mighty factor He has put into our hands. Second, it is important because of the personal presence of the Holy Spirit in the day in which we live. We receive our knowledge of the Holy Spirit not by experience first, but by the testimony of the Lord Jesus Christ. The testimony of Jesus Christ regarding the Holy Spirit is that He is here, and the real living experience the Holy Spirit works in us is that all His emphasis is laid on glorifying our Lord Jesus Christ. We know the Holy Spirit first by the testimony of Jesus, and then by the conscious enjoyment of His presence.
+
+“Therefore pray.” Prayer is labor, not agony. But labor on the ground of our Lord’s redemption in simple confidence in Him. Prayer is simple to us because it cost Him so much to make it possible. God grant that we may work His victories for Him by taking His way about it.
+
+O Lord, this morning disperse every mist, and shine clear and strong and invigoratingly. Forgive my tardiness; it takes me so long to awaken to some things.
+
+Lord God Omniscient, give me wisdom this day to worship and work aright and be well-pleasing to You. Lord, interpret Yourself to me more and more in fullness and beauty.
+
+Dark and appalling are the clouds of war and wickedness and we know not where to turn, but, Lord God, You reign.
+
+3onIqfisQfWD6N_3j-jfbw570
+
+Twelve
+
+The Unrealized Logic of Prayer
+
+Likewise the Spirit also helps in our weaknesses. For we do not know what we should pray for as we ought, but the Spirit Himself makes intercession for us with groanings which cannot be uttered. Now He who searches the hearts knows what the mind of the Spirit is, because He makes intercession for the saints according to the will of God. And we know that all things work together for good to those who love God, to those who are the called according to His purpose (Romans 8:26–28).
+
+Praying always with all prayer and supplication in the Spirit . . . (Ephesians 6:18).
+
+Praying in the Holy Spirit. . . . (Jude 20).
+
+Ephesians 6:18 and Jude 20 are not quite identical with Romans 8:26. In the former, man prays in the atmosphere produced by the Holy Spirit indwelling and surrounding him; in the latter, the Holy Spirit Himself prays in man. The similarity is obvious, but the point of difference is often missed in thinking about prayer. We realize that we are energized by the Holy Spirit for prayer. We know what it is to pray in the atmosphere and the presence of the Holy Spirit. But we do not so often realize that the Holy Spirit Himself prays in us with prayers that we cannot utter.
+
+Likewise the Spirit also helps in our weaknesses. For we do not know not what we should pray for as we ought, but the Spirit Himself makes intercession for us with groanings which cannot be uttered (Romans 8:26).
+
+The great thought that we do not realize sufficiently is the interchanging action of the Divine Spirit and the human spirit. This interchanging action of the Divine and human at every stage of our religious life is vividly expressed here. The best example of the Divine Spirit working in a human spirit is seen in our Lord Jesus Christ. According to some expositors, we are so infirm that the Spirit of God brushes aside all our infirmities and prays without regard to us. But we find that our Lord recognized the difference between His own Spirit and the Spirit of God, and that His mind was always in subordination to the mind of God. “I can of Myself do nothing.”
+
+The Uncovered Truth of Our Infirmities
+
+Likewise the Spirit also helps in our weaknesses. . . .
+
+To ask how we are to get our prayers answered is a different point of view from the New Testament. According to the New Testament, prayer is God’s answer to our poverty, not a power we exercise to obtain an answer. We have the idea that prayer is only an exercise of our spiritual life. “Pray without ceasing.” We read that the disciples said to our Lord, “Lord, teach us to pray.” The disciples were good men and well-versed in Jewish praying, yet when they came in contact with Jesus Christ, instead of realizing they could pray well, they came to the conclusion they did not know how to pray at all, and our Lord instructed them in the initial stages of prayer.
+
+Most of us can probably remember a time before we were born again when we were “religious” and could pray fairly well; but after we were born again we became conscious of what Paul mentions here, our utter infirmity—“I do not know how to pray.” We became conscious not only of the power God has given us by His Spirit, but of our own utter infirmity. We hinder our life of devotion when we lose the distinction in thinking between these two. Reliance on the Holy Spirit for prayer is what Paul is bringing out in this verse. It is an unrealized point. We state it glibly enough, but Paul touches the thing we need to remember. He uncovers the truth of our infirmity. The whole source of our strength is receiving, recognizing and relying on the Holy Spirit.
+
+The Unsyllabled Torment of Our Inability
+
+For we do not know what we should pray for as we ought . . . .
+
+The only platform from which the holiest saint on earth is ever heard is the platform mentioned in Hebrews 10:19, that is, we have “boldness to enter into the holiest by the blood of Jesus.” There is no other way. When we come into the presence of God, the human side of our praying makes us realize what Paul is trying to teach, that if we are ever going to approach God and pray acceptably, it must be by the “piece of God” in us which He has given us. Some of the qualities of God must be merged into us before our prayers can be fit for His acceptance.
+
+We are all familiar with Luke 11:13, but we do not always remember that our Lord spoke the words in connection with receiving the Holy Spirit for prayer. Paul in Romans 8:26 beats out into gold leaf the nugget that our Lord gives in Luke 11:13. When I realize that I cannot approach God, that I cannot see as God sees, that I am choked up with things my eyes see, my flesh wants, and the empty spaces round my heart want, then Jesus says, “If you, being evil,”—we know that is our infirmity—if you ask God for the Holy Spirit, He will give Him to you (see Matthew 7:11). That is, God will be merged into me, and I can begin to think about real prayer, relying on what God has planted in me for prayer. Otherwise, we could never get near Him. The crush of our infirmities would paralyze the words on our lips. We can only pray acceptably in the Spirit, that is, by the Holy Spirit in us. All the rest is being “cumbered about.”
+
+The disposition of sin is removed in sanctification—there is no doubt about that. But Paul insists that the body is not changed, the body we had and which was ruled by the wrong disposition of sin still remains (see Romans 6:12–19). We have to use that body now and make it a slave to the new disposition, and we have to realize the need to do it more in prayer than in anything else.
+
+The Unutterable Tenderness of the Intercession
+
+But the Spirit Himself makes intercession for us with groanings which cannot be uttered.
+
+The spirit of a man, whether it be energized by the Spirit of God or not, is bound to try and express itself in the body, which becomes its soul manifest. If it refuses to express itself in a rational way, it will express itself in an irrational, stupid way. When the Spirit of God energizes the spirit of a man, the man is taken up into the great mystery of the intercession of the Holy Spirit. If the Holy Spirit is allowed to dwell in the human spirit He has energized, He will express the unutterable. Think what that means. It means being quickened by the incoming of the Holy Spirit who comes in to dwell supremely, and the amazing revelation in that He intercedes in us, for us, with a tenderness exactly in accordance with the mind of God.
+
+Have we ever allowed our minds to dwell on this element of prayer? “The sinner out of heart with self is nearest God in prayer.” It is a mistake to interpret prayer on the natural instead of on the spiritual line—to say that prayer is divine because it brings us peace and joy and makes us feel better. This is the mere accident or effect of prayer. There is no real God-given revelation in it. This is the God-given revelation: that when we are born again of the Spirit of God and indwelt by the Holy Spirit, He intercedes for us with a tenderness and an understanding akin to the Lord Jesus Christ and akin to God, that is, He expresses the unutterable for us.
+
+The Unrivaled Power of Prayer
+
+Now He who searches the hearts knoweth what the mind of the Spirit is, because He makes intercession for the saints according to the will of God (Romans 8:27).
+
+The Unimagined Interest of God. “Now He who searches the hearts knows what the mind of the Spirit is . . . .” The Holy Spirit, when He comes into the hidden sphere of our life, applies the Atonement to us in the unconscious as well as in the conscious realm. He works out in us the understanding of sin that God has; and only when we grasp the unrivaled power of the Spirit in us can we understand the meaning of 1 John 1:7, “the blood of Jesus Christ His Son cleanses us from all sin.” This does not refer to conscious sin only, but to the sin that only the Holy Spirit in us realizes, and God searches our hearts to find out what the intercession of His Spirit is.
+
+There are tremendous thoughts expressed in God’s Book, and unless we have learned to rely on the Holy Spirit we shall say, “Oh, I shall never understand that.” But the Holy Spirit in us understands it, and as we recognize and rely on Him, He will work it out, whether we consciously understand or not. The point for us to remember is that we must get to the place of thinking spiritually. Never depend on your personal experiences of salvation, sanctification, or the baptism of the Holy Spirit. These experiences are simply doorways into a life. We have to realize this great revealed thought underneath, that the Holy Spirit is working out in us the mind of God even as He worked out the mind of God in Christ Jesus.
+
+The Undiscovered Intercession before God. “Because He makes intercession for the saints . . . .” Who does? The Holy Spirit in us. And God searches our hearts, not to know what our conscious prayers are, but to find out what the prayer of the Holy Spirit is behind all our conscious praying. “And the sound of the wings of the cherubim was heard even in the outer court, like the voice of Almighty God when he speaks” (Ezekiel 10:5). And slowly and surely God discerns in the life of the individual saint what He discerned always in His Son, who said, “I came down from heaven not to do mine own will, but the will of him that sent me” (see John 4:34). As we rely on the Holy Spirit we learn to brood along the line of His expression of the unutterable in us.
+
+The Unsurpassed Identification with God. “According to the will of God.” Look back over your own history with God in prayer, and you will find that the glib days of prayers are done. When we draw on the human side of our experience only, our prayers become amazingly flippant and familiar, and we ourselves become amazingly hard and metallic. But if we rely on the Holy Spirit, we shall find that our prayers become more and more inarticulate, and when they are inarticulate, reverence grows deeper and deeper, and undue familiarity has the effect of a sudden blow on the face.
+
+There is something hopelessly incongruous in a flippant statement before God. We can always measure our growth in grace by what Paul is stating here. Am I growing slowly to lisp the very prayers of God? Is God gratified (if I may use the phrase) in seeing that His Spirit is having His way at last in a life, and turning that life into what will glorify His Son?
+
+The Unrecognized Providence of Prayer
+
+And we know that all things work together for good to those who love God, to those who are the called according to His purpose (Romans 8:28).
+
+At first glance this verse seems to have nothing to do with the previous verses, but it has an amazingly close connection with them.
+
+The Undefiled Shrine of Consciousness. “And we know that . . . to those who love God . . . .” Do you remember how Paul never wearied of saying, “Do you not know that your body is the temple of the Holy Spirit?” Recall what Jesus Christ said about the historic temple, which is the symbol of the body. He ruthlessly turned out those who sold and bought in the temple, and said, “It is written, ‘My house shall be called a house of prayer,’ but you have made it a ‘den of thieves’” (Matthew 21:13). Let us apply that to ourselves. We have to remember that our conscious life, though only a tiny bit of our personality, is to be regarded by us as a shrine of the Holy Spirit. The Holy Spirit will look after the unconscious part we do not know, but we must guard the conscious part for which we are responsible as a shrine of the Holy Spirit. If we recognize this as we should, we shall be careful to keep our body undefiled for Him.
+
+The Undetected Sacredness of Circumstances. “All things work together for good . . . .” The circumstances of a saint’s life are ordained by God, and not by happy-go-lucky chance. There is no such thing as chance in the life of a saint, and we shall find that God, by His providence, brings our bodies into circumstances that we cannot understand a bit, but the Spirit of God understands. He is bringing us into places and among people and under conditions in order that the intercession of the Holy Spirit in us may take a particular line.
+
+Do not, therefore, suddenly put your hand in front of the circumstances and say, “No, I am going to be my own amateur providence. I am going to watch this and guard that.” “Trust in the LORD with all your heart; and lean not on your own understanding” (Proverbs 3:5). The point to remember is that all our circumstances are in the hand of God.
+
+The Spirit imparts a solemnity to our circumstances and makes us understand something of the travail of Jesus Christ. It is not that we enter into the agony of intercession, it is that we intercede for the people He has placed around us; we present their cases before Him and give the Holy Spirit a chance to intercede for them. We bring the particular people and circumstances before God’s throne, and the Holy Spirit in us has a chance to intercede for them. That is how God is going to sweep the whole world by His saints.
+
+Are we making the Holy Spirit’s work difficult by being indefinite, or by trying to do His work for Him? We must be the human side of the intercession, and the human side is the circumstances we are in, the people with whom we are in contact. We have to use our common sense in keeping our conscious life and our circumstances as a shrine of the Holy Spirit, and as we bring the different ones before God, the Holy Spirit presents them before the Throne all the time. The Holy Spirit does the interceding, but we must do our part. We must do the human side while He does the Divine. So never think it strange concerning the circumstances you are in.
+
+The Undeviating Security of His Calling. “To them who are the called according to His purpose.” To talk about our intercession for another as the means of doing what the Bible says, “The effective, fervent prayer of a righteous man avails much” (James 5:16), sounds utterly ridiculous until our thinking is renewed through the Atonement and the indwelling Holy Spirit. Then it is an amazing revelation of the marvelous love and condescension of God, that in Christ Jesus and by the reception of the Holy Spirit, He can take us—sin-broken, sin-diseased, wrong creatures—and remake us entirely until we are really the ones in whom the Holy Spirit intercedes as we do our part.
+
+Are we making it easy for the Holy Spirit to work out God’s will in us, or are we continually putting Him on one side by the empty requests of our natural hearts, Christians though we be? Are we bringing ourselves into such obedience that our every thought and imagination is brought into captivity to the Lord Jesus Christ, and is the Holy Spirit having an easy way through us more and more?
+
+Remember, your intercession can never be mine, and my intercessions can never be yours, but the Holy Spirit makes intercession for us, without which intercession someone will be impoverished. Let us remember the depth and height and solemnity of our calling as saints.
+
+3onIqfisQfWD6N_3j-jfbw615
+
+Note to the Reader
+
+The publisher invites you to share your response to the message of this book by writing Discovery House Publishers, PO Box 3566, Grand Rapids, MI 49501, USA. For information about other Discovery House books, music, or videos, contact us at the same address or call 1-800-653-8333. Find us on the Internet at dhp.org or send e-mail to books@dhp.org.
+
+3onIqfisQfWD6N_3j-jfbw623
+
+Contents
+
+Contents
+Foreword
+Introduction
+One
+Two
+Three
+Four
+Five
+Six
+Seven
+Eight
+Nine
+Ten
+Eleven
+Twelve
+Note to the Reader

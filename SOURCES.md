@@ -338,6 +338,25 @@ already in `jewish/`), and *June 2026 Universalis* (an ephemeral monthly missal)
 used: one is a **Reddit web-capture** (not a book), one is **image-only** (no text layer → belongs in
 `D:\repos\scans`, not this text repo).
 
+## books_to_process — library import, batch 4 (audit sweep, added 2026-07-24)
+
+A completeness audit (every `*.epub` in `books_to_process` cross-checked against ingested `Source file:`
+headers) surfaced **25 EPUBs missed by earlier timestamp-filtered passes** — now ingested. Vault
+**623 works**. After this sweep, **every non-duplicate EPUB in the folder is accounted for** (178 epubs:
+ingested, or an intentional dupe/skip). Highlights:
+- **Apologetics** → `tradition/`: Ravi Zacharias *Jesus Among Other Gods* / *The End of Reason*, Blomberg
+  *The Historical Reliability of the Gospels*.
+- **Christian living / scripture** → `tradition/`, `scripture/`: Blackaby *Experiencing God*, Ortberg
+  *Eternity Is Now in Session*, Gallaty *The Forgotten Jesus*, Ripken *The Insanity of God*, Miller *A
+  Hunger for Healing*, Chambers *If You Will Ask* (PD); KJV Study Bible + KJV Life Application Study
+  Bible, *The Four in One Gospel of Jesus*.
+- **PD classics** → `classical/`: Carlyle *The French Revolution*; owned: Hemingway *For Whom the Bell
+  Tolls*, Mallory *The Family That Conquered Everest*.
+- **Business** → `business/`: PMBOK Guide (5th ed.), Gerber *E-Myth Revisited*, Lencioni *Getting Naked*,
+  Watkins *The First 90 Days*, Gallup *It's the Manager*, and more.
+Skipped 2 further dupes: `B0143Y8C8K_EBOK` (identical to the Cassian *Conferences* edition already added)
+and *Fox's Book of Martyrs* (already in `tradition/john-foxe/`).
+
 ## Gaps and research-only (2026-07-22)
 
 - **Chrysostom, *On Vainglory and the Right Way to Bring Up Children*** (Priority 5) — NOT captured. The work is *absent from Migne's Patrology*; its Greek survives only in the copyrighted Malingrey critical edition (Sources Chrétiennes 188), and the standard English (Laistner 1951) is copyrighted. No public-domain witness exists to capture. Recorded gap.

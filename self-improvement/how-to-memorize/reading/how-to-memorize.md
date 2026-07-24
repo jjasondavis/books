@@ -1,0 +1,1454 @@
+<!-- Text extracted from the owner's personal-library EPUB copy of a public-domain work. -->
+Source file: How to Memorize_nodrm.epub
+Title/Edition: How to Memorize; William Evans; 1913; public domain.
+
+c0
+
+c9
+
+HOW TO
+MEMORIZE
+
+By
+
+REV. WILLIAM EVANS, Ph. D., D. D.
+
+Author of:
+
+“The Great Doctrines of the Bible,” “Personal Soul-Winning,” “The Book of Books,” “The Christian; His Creed and Conduct,” “How to Prepare Sermons and Gospel Addresses,” Etc.
+
+Chicago
+
+THE BIBLE INSTITUTE COLPORTAGE ASS’N
+826 North La Salle Street
+
+Copyright 1919
+
+cU
+
+Table of Contents
+
+Introduction
+
+Chapter 1. The Importance of Having a Good Memory
+
+Chapter 2. The Need of Cultivating the Memory
+
+The Method of Jesus
+
+Chapter 3. The Possibilities of the Memory
+
+No Limit to Memory
+
+What has Been Done
+
+Age No Barrier
+
+Chapter 4. What Is Memory?
+
+A Good Memory—What?
+
+Chapter 5. Preliminary Suggestions for the Training of the Memory
+
+Chapter 6. The First Essential Principle in the Training of the Memory—attention, or Fixity of Thought
+
+The Meaning of Attention
+
+How Attention May Be Secured
+
+Chapter 7. The Second Essential Principle in the Training of the Memory—a Clear and Definite Conception of the Matter to Be Memorized
+
+A Clear Conception Absolutely Necessary
+
+How to Get a Clear Conception
+
+Repeat Aloud All You Desire to Memorize
+
+Chapter 8. The Third Essential Principle in the Training of the Memory—the Analyzing of That Which You Desire to Memorize
+
+Analyze What You Desire to Learn
+
+Chapter 9. The Fourth Essential Principle in the Training of the Memory—Suggestive Association
+
+Suggestive Association
+
+How to Find Associations
+
+Five Laws of Suggestive Association
+
+Chapter 10. The Fifth Essential Principle in the Training of the Memory—the Power to Recall From Memory What You Have Learned
+
+How to Recall
+
+Lessons for Practice
+
+Chapter 11. The Sixth Essential Principle in the Training of the Memory—the Constant Practice of Reviewing
+
+How Often Shall We Review?
+
+How to Review
+
+Reviewing the Contents of Any Book in the Bible
+
+The Gospel Of John As an Illustration
+
+Introduction
+
+Each man has his own individuality, and his own peculiar way of presenting things. This is the author’s apology for adding another book on the subject of Memory Training to the number already before the public.
+
+No claim is here made to striking originality—indeed to originality at all—in the matter found in these pages. A different presentation of the subject is all that is here claimed.
+
+While this book emphasizes the training of the memory with special regard to the Scriptures, yet, the principles herein taught apply to whatever matter one desires to memorize: recitations, poetry, prose, sermons, statutes, etc.
+
+c2D
+
+Chapter 1.
+The Importance of Having a Good Memory
+
+It has been said that “all other abilities of the mind borrow from memory their beauty and perfection.” In a very real sense it is true that all other faculties of the soul are useless without memory. Of what profit is all our wisdom, our reading, our study if we are unable to preserve the knowledge we have acquired? Of what benefit to us are all the intellectual attainments of our lives if they are lost as soon as they are obtained? Memory makes rich the mind by preserving all the results of our study and learning.
+
+“Without memory the soul of man would be a poor, destitute, naked being, with an everlasting blank spread over it, except the fleeting ideas of the present moment.”—Watts. It may be safely said that memory is the basis of all knowledge, that without it neither science nor art is a possible thing. This being true, the more a man remembers the greater is the amount of his knowledge and the greater the foundation for further study and research.
+
+Cicero said: “Memory is the depository of all knowledge.” Memory is the treasurer of the mind.
+
+And when the stream
+
+Which overflowed the soul was passed away,
+
+A consciousness remained that it had left
+
+Deposited upon the silent shore
+
+Of memory, images and precious thoughts
+
+That shall not die, and cannot be destroyed.
+
+—Wordsworth.
+
+c31
+
+Chapter 2.
+The Need of Cultivating the Memory
+
+Were I to be asked what is the greatest difficulty the student has to overcome in the completion of his prescribed course, I would unhesitatingly reply: that it is the power to retain the knowledge already imparted so that it can be commanded at any time its use is desired. Especially have I found this to be true when reviewing previous lessons, and in marking final examination papers.
+
+This need has also been the sad confession of disappointed students. The inability to recall a thought or passage just when needed, and when so much depended upon it, has been a source of discomfort to many a student, as well as a weakening of the rating of their ability in the estimation of others.
+
+How often, on the other hand, has the ability to recall the desired passage been a means of strength in argument and a lifting up to a high place of worth in the estimation of those with whom we deal and among whom we work.
+
+Only the other day a letter came from a minister in Michigan speaking of the value of knowing the Scriptures by heart. There was an infidel in his town who had been able to argue successfully with all the ministers in the place. They had met his arguments in a logical way, discussing from the viewpoint of major premise, minor premise, and conclusion. But all had been of no avail. He still remained in his infidelity. More than this, he gloried in the fact that he had beaten the ministers in their own arguments and that they had failed to convince him of the truth of the Bible and the Christian religion. At last, however, he met his equal. It was not in a minister either, but in a young student who knew much of the Bible by heart, and had been taught the value of memory training.
+
+The news soon spread about town that the infidel had met his defeat. One day he was accosted by the minister who wrote the above-mentioned letter, and greeted with the words:
+
+“Well, I understand you have met your equal; tell me how it happened.”
+
+Said the infidel, in reply: “Can any man argue against God Almighty? Can my word stand against His? That young fellow seems to know every page in the Bible; you fellows don’t. You ministers simply argued with me and I was as good as you were in that; but when this young fellow quoted Scripture to meet every objection I made, I was completely overcome. I am convinced now that I was wrong, and I believe what I before doubted. Further, I am going to have this young man teach me more about the Bible.”
+
+The difference between this young Christian worker and the ministers was that he knew the Scriptures by heart, and they did not. He had it well memorized; they did not.
+
+The great success that attended Mr. Moody’s work was attributable in a large degree to his great familiarity with, and ability to use the English Bible.
+
+The Method of Jesus
+
+“Jesus broke the sharp lance of the tempter by, ‘It is written.’” He confounded His enemies, the Pharisees, more completely by His ready use of their own Scriptures than by His amazing miracles.
+
+c3K
+
+Chapter 3.
+The Possibilities of the Memory
+
+The memory can be trained. There is no need of constantly forgetting. It is possible to acquire knowledge, learn names, identify faces in such a way as to be able to recall them at pleasure. Who has not been embarrassed by forgetting the name of a person to whom he had before been introduced, or by failing to recognize on the street, or in church, for in some other public place, someone he had met before in a friendly way?
+
+On the other hand, what a tremendous advantage it is for a man to be able to recall names and faces. How pleased people are when you remember them. Often have people whom I had met but once before, and then in a large crowd, expressed their gratitude at being remembered by me. How chagrined one feels when accosted with the words: “Why, don’t you remember me?” Again, how often when, in an interesting argument, we have sought to recall a passage of Scripture which would just fit the case and prove a conclusive argument to the question in point, we have failed, and consequently have been defeated and cast down. All this can be remedied. There is no need of forgetting what you have learned, providing you have learned it in the right way.
+
+No Limit to Memory
+
+It is generally agreed among psychologists that there is no limit to the capacity of the memory. No man has ever learned so much that he cannot learn more. History furnishes some wonderful accounts of memory achievements. Muretus, the French teacher of the sixteenth century, states that he had as a pupil of his, a young Corsican, who could repeat forward and backward 36,000 unconnected words, after hearing them but once. He doubtless could have repeated more had not the men who were dictating become exhausted. It is said of Seneca that he could repeat forward and backward 2,000 unconnected names or 200 unconnected verses of poetry.
+
+You may say these were exceptions. We have no reason to believe they were. There is reason for believing that their ability in this line was the result of special concentration of mind on this subject. Who knows but what you could do the same. Have you ever tried? Do not be too hasty to depreciate your own talent until you have given it a fair and correct trial.
+
+What has Been Done
+
+It is said of Dr. Johnson that he never forgot anything that he had seen, heard or read. Says Sir William Hamilton: “For intellectual power of the highest order, none were distinguished above Grotius and Paschal—and Grotius and Paschal forgot nothing they ever wrote or thought.” Ben Johnson himself tells us that he could repeat all that he had ever written, and whole books that he had read. It is told of Themistocles that he could call the twenty thousand citizens of Athens by their names. Cyrus is said to have known the name of every soldier in his army. We are told that Tertullian, the great Church Father, devoted days and nights to the memorizing of the Scriptures, and got much of them by heart so accurately that he knew the very punctuation of them. Thomas Vincent could repeat the New Testament and Psalms by heart. Bishop Jewel, after writing a sermon, could repeat it after one reading. Dr. Kidson affirms that if the whole Bible were lost, Prof. Lawson could have restored it from memory. Cramer and Ridley learned the New Testament by heart—the one in his journey to Rome, and the other in the walks of Pembroke Hall in Cambridge.
+
+A well known writer and editor, after a few weeks study of memory training, wrote:
+
+“I have committed to memory five of Paul’s Epistles—Ephesians, Philippians, Colossians, First and Second Timothy. All of these I can now repeat, and often do repeat. I find that I can now commit seven or eight verses in less time than two verses would require when I began.”
+
+Age No Barrier
+
+To show the possibilities of memory training at old age, I refer to the instance of a New York editor who gave an account of his own experience in the study of the Scriptures. He states how that when seventy-four years old, he began, in a systematic way, to commit the Scriptures to memory, and in a short time was able to repeat from memory a considerable part of the entire New Testament. After enumerating the many blessings and benefits that came to him from this practice, he adds:
+
+“I am not now sorry that about five years ago I resolved to do what during these years I had been seeking to do. My only regret is that the resolution was formed at so late a period. Had its date been much earlier, as it might have been, and, as I now think, it should have been, the benefit to me, as I have no doubt, would have been correspondingly greater. What I have gained in the way of mental relief and spiritual comfort from the process described I would not exchange for all the honor and wealth of this world.”
+
+Thus we see that age is no barrier to success in memory training.
+
+c46
+
+Chapter 4.
+What Is Memory?
+
+Memory, according to the Century Dictionary, is “the mental capacity of retaining unconscious impressions or states, and of recalling these traces to consciousness with the attendant perception that they (or their objects) have a certain relation to the past; in a narrower sense, the power of such retention alone, the power or act of recalling being termed recollection.”
+
+Locke says that memory is “the power to revive again in our minds those ideas which after imprinting have disappeared, or have been, as it were, laid out of sight.”
+
+According to Watts, memory is “our natural power of retaining what we learn, and of recalling it on every occasion. It is a distinct faculty of the mind of man very different from perception, judgment, reason and its other powers. We are said to remember anything when the idea of it arises in the mind, with a consciousness at the same time that we have had this idea before.”
+
+To sum up, then: Memory is that faculty in man which enables him to retain what he learns, either by his own reading and research or by being taught by others, and to recall the matter learned whenever needed and whenever it is desired to do so.
+
+A Good Memory—What?
+
+A good memory has three qualifications: first, the power to receive with comparative ease the words, things, phrases, events, etc., which are taught or learned; second, the power to store and retain them in the mind for an indefinite and considerable length of time; third, the activity and reliableness to recall upon every proper occasion the words, thoughts, things, etc., learned before and committed to its care.
+
+Some people find no difficulty whatever in committing matter to memory, but find it almost impossible after a little while, sometimes an hour or two, to recall what has already been committed to the memory. This reveals a bad memory. Others can recall a thing or event some little while after it has been committed to the memory, but only faintly. They do not have as clear a recollection as they had a committal. This is the sign of a weak memory. Both these faults can be overcome by the strengthening and training of the memory.
+
+c4K
+
+Chapter 5.
+Preliminary Suggestions for the Training of the Memory
+
+1. Each suggestion must be followed to the very letter.
+
+In this way alone can success be assured to the student. Do not stop to question the why and the wherefore of the principle, but resolve upon obedience to it. To stop and question is to waste time in this study; therefore go ahead, and follow the directions given.
+
+2. There should be daily practice to insure the greatest possible amount of benefit to the student.
+
+Set apart, if at all possible—and try hard to make it so—the same hour each day for the study and practice of the lessons. It will be a great help if the same place can be used each day. The morning hour is the best part of the day for memory training work. The brain is clearest and freshest at that time, and is, therefore, most susceptible to impressions. Give the same amount of time each day. Do not give one hour one day and only five minutes the next. Nothing at all will be accomplished in this manner. Strict adherence to methods is one of the essential laws of true memorizing. See to it then that regularity governs your study.
+
+3. Be content, at first, with the mastery of a little each day.
+
+Many people fail in memory work in trying to accomplish too much at one sitting. In physiology we are taught that it is not the amount of food we eat that nourishes and strengthens the body, but the amount we digest. So is it in the science of mnemonics—the art of memorizing—it is not the amount of matter we are able to cover, but the amount we are able to retain that is of benefit to our mental makeup. Word upon word, line upon line, precept upon precept—let this be your rule, and you will soon discover that whereas in the beginning of your studies you were able to learn only one line in a given amount of time, after a while you will be able to learn a page in the same amount of time. An overgreedy hand does not grasp the largest handful. Remember this, and regulate your studies accordingly. Be content to know a little, but know that little well.
+
+4. Take pleasure in your study.
+
+Make yourself believe you like it whether you do or not. At first, this may seem a difficult and unnatural thing. Continue in it and very soon you will find yourself loving each task. It is an undisputed law of memory that we learn easiest what we take most pleasure in. Delight thyself, therefore, in thy work and great results may be expected. Why is a boy so reluctant to saw wood which demands some little physical effort and yet so overwhelmingly desirous to ride a bicycle which, if anything, demands far more physical effort than does sawing wood? Because he delights in the bicycle ride, but takes no pleasure in sawing wood. The same rule applies to mental work. Make up your mind then that you are going to take pleasure in your lessons. No one desires to remember that which is not interesting to him.
+
+5. Learn your lesson with the intention of remembering it forever.
+
+Many students learn a lesson merely for the recitation in class or for examination. The result is that after the recitation and examination, the memory, in obedience to the intention of its master, throws off all responsibility for further work. A task was committed to it for one hour; it retained the lesson for one hour, and no more. Learn your lesson as if you intended to remember it forever. Treat the memory in this way and the great probability is that it will retain the matter learned forever. Never cram for an occasion, but learn forever. Let this be your motto.
+
+6. Remember that the aim of this course of instruction in the training of the memory is not the accumulation of a mass of memorized material, but to build up, strengthen, and train the memory to do its appointed work.
+
+We are dealing with principles here; and the greatest benefit you will derive from these lessons will consist in the mastery of the principles of all true memory work. To know and understand, to put into practical and experimental use the principles enunciated—this is the primary purpose of these chapters on memory training.
+
+7. Be sure not to take up the second principle until you have thoroughly mastered the first.
+
+Do not take up any succeeding lesson until you have mastered the preceding one. You will be doing yourself an injustice if you do. Nothing less than an absolute mastery of each principle will accomplish satisfactory results.
+
+c57
+
+Chapter 6.
+The First Essential Principle in the Training of the Memory—attention, or Fixity of Thought
+
+A poor memory has its origin in inattention. The secret of a good memory is our interest in, and attention to a subject, as we rarely forget what has strongly impressed our minds. It is only indifference that forgets. Love and hate always remember. “The true art of memory is the art of attention.”—Dr. Johnson.
+
+The Meaning of Attention
+
+Attention is the directing of the mental powers to a specific object to the exclusion of all other objects. In other words, it means tension or effort—the deliberate setting of the mind upon a certain, definite task. It is the power of mental concentration. Attention is that power of the mind by which a man is able to concentrate his thought on any given subject to the exclusion of everything else. Attention is fixity of thought.
+
+The ability to fix your thought on what you desire to memorize is the first essential principle in the training of the memory.
+
+The more strongly we are able to concentrate our minds upon the subject we are learning, the easier will it be to recall it on a future occasion. Strong and fixed attention gives strong and fixed ideas, and these form the very essence and fiber of memorizing. To pin the thought, to fasten the mind, to fix the attention on, and to allow no mind-wandering from the subject, to determine that the mind shall stretch, or spread itself, over the subject under consideration in such a way as to shut out every intruding thought—this is to make the matter of memorizing a possible, interesting and delightful work; yea, it is the secret of success in all memory work.
+
+A good memory is not to be expected until this power of attention is attained. Fixity of thought must become a real thing to the student before he shall be enabled to enjoy the pleasure of being able to recall what he desires at will. Strong impressions come only from strong attention and fixity of mind and purpose.
+
+Says Dr. A. T. Pierson: “We have little need to fear as to the expression if we have been careful about the impression. Let the conception of truth in ourselves then be clear and well defined, and its effect on us will be deep and ineradicable, forceful and powerful. The longer the exposure to the influence of the truth, the deeper and more permanent the image formed on the mind.
+
+“By what Mr. Lockyer considers a magnificent arrangement, images made on the back of the eye are never deepened and extended beyond a certain limit. However long we gaze, the first fade to give place to those that follow. It is exactly opposite with the sensitive plate; the longer the exposure, the intenser the image, and the minuter the details. Distant stars are therefore depicted on the long-exposed plate which never could be seen by naked eye. The mind is such a sensitive plate, and the power of impression depends upon the length of the exposure. Every student needs to cultivate the power of concentrating his mind on themes, of going after and recovering lost and incomplete trains of thought, and of holding and burying truth in the mind until it takes deep root.”
+
+A brief glance at your past life will reveal to you the truth of all this. Do you not remember to-day, and can you not most readily recall those things which made the deepest impression on your mind at the time of their occurrence, or of your mind’s reception of them?
+
+How Attention May Be Secured
+
+1. By taking pleasure in the subject you desire to learn.
+
+Speaking generally, no man ever made a success of that which was displeasing to him, Teachers know well that students fail most in those studies they like least, and do the best work in those studies in which they find delight. We can hardly be said to care to remember that which is displeasing and distasteful to us. Choose for a lesson, therefore, some subject in which you are interested and which pleases you. (See Suggestion 4, Chapter 5., in this connection.)
+
+2. By choosing some theme for study that you will be likely to make use of in the future.
+
+The advantage in this will be that it will not seem to you like a loss of time. You can thus put enthusiasm into your work. Utility is both an aid and incentive to memory work.
+
+3. Some people think they secure attention better by closing the eyes.
+
+History tells us of one of the old Greek philosophers who deliberately put out his own eyes in order that thereby he might be able to think better. Do we not see people all around us who, when they have any difficult matter to think about, either close, or half close their eyes? And why? Is it not for the same reason for which the old philosopher put out his eyes? It is unquestionably true that the visualizing powers are clearer when the eyes are not distracted by outside matters, just as the visions of sleep are more real because the eyes are closed.
+
+Let it not be inferred from this that clear thinking, attention, and concentration cannot be secured with the eyes open. If we can think as well with the eyes open as we can with them shut, let us, then, keep them open. We have heard of writers and thinkers who, instead of closing their eyes, kept them wide open; indeed, fixed them intently on some particular object in the room—a figure on the wall, for example. People have been known to bring themselves into a state of utter oblivion to their surroundings by such concentrated gaze. It is conceded generally, however, that the majority of people can think better, and with greater powers of concentration, with the eyes shut. Try it for yourself, and see which is most helpful to you.
+
+4. The following list of one hundred words will help you to develop fixity of thought and attention.
+
+You will notice that there is some connection between each pair of words: one suggests, includes, excludes, or is in contrast with the other. This is true of the entire list of words. You should be able, therefore, in a very short time, to repeat the whole list backwards and forwards quite rapidly. In order to do this, however, you will have to concentrate your mind on these words to the exclusion of all else. Indeed, these words will compel you to pay attention. You will find, as you study the first word and then go to the second, that there is some relation between them, the one suggesting the other.
+
+Before, therefore, you can recall the second word you are bound to think of that relation, and thus your mind is being forced to concentrate itself upon the matter in hand. For example: the word fire suggests the word grate, while the word grate (great) suggests its opposite, which is small; and so on throughout the entire list of one hundred words.
+
+To thoroughly master this list, proceed as follows: Take the first ten words; write down on paper the first word; then write beneath it the second word; right opposite the second word, write what, in your estimation, is the relation between the two, so that the one is suggestive of the other. Does the one word include, exclude, or is it contrasted with the other? Is there a similarity in sound or in spelling? Proceed in the same manner with the third word, comparing it with the second; and so on throughout the first ten words.
+
+You may then review these ten words backwards and forwards without looking at the paper. When you have thoroughly mastered the first ten words, you may proceed to the mastery of the second ten, and so on to the end of the list of one hundred words. Be sure to analyze every word and its relation to the one preceding and following it. Repeat this entire list from memory backwards and forwards every day for thirty days.
+
+THE LIST OF ONE HUNDRED WORDS
+firesoldierssoillawyer
+grateregimentgarmentcourt
+smallcompanyclothingjudge
+atomcompanionwool
+dustfriendsheepprisoner
+dusterenemyshepherdsentence
+farmerSatanChristspeech
+countrysinanointedgrammar
+citypunishmentoillanguage
+capitalwhippinglamplinguist
+Washingtonrodglobescholar
+presidentsceptreworldteacher
+Rooseveltkinggeographyschool
+assassinationkingdomscienceacademy
+bulletcitizenDarwincollege
+assassinalienevolutionuniversity
+crimenaturalizedcreationdegree
+criminalallegianceGodtemperature
+jailfaithfulheaventhermometer
+jailerpilgrimsaintsquicksilver
+officialprogresssinnersgold
+authorityBunyanhellmetal
+commandmartyrtormentearth
+armystakeeternalround
+generalgroundbriefball
+
+5. Take hold of some deep reading, some profound study, something that seems insolvable, for the purpose of concentrating the mind upon it.
+
+I would suggest some passages out of Milton’s Paradise Lost, Shakespeare, or Emerson’s Essays. Try to read ten lines without allowing any thought outside of the subject you are studying to come into your mind. If your mind wanders, bring it back again, and again, and yet again. Then read twenty lines without allowing your thoughts to wander. Bring the will to bear upon the intellect.
+
+Do not be too easily discouraged. Keep this up until you can read one page without a wandering thought. Persevere until you can do this. Take a little to begin with, but be sure to master that little. You must will to fix your thought upon what you read or desire to memorize. Remember, however, that you are not asked to memorize the above suggested selections for reading, but only to read them through without a wandering thought. Continue this practice until you can read page after page without entertaining a thought foreign to the subject in hand. The human mind is a great tramp; cure it of its vagrancy by keeping it at home.
+
+The practice of translating sentences from a foreign language into the English tongue, and vice versa, has been proven to be an invaluable aid in securing fixity of thought.
+
+History tells us that so great was the power of concentration possessed by a great writer who lived in the time of the French Revolution, that, although people were being massacred right under the window of the room in which he was engaged in writing a book, yet, so absorbed was he in his subject, such were his powers of concentration, that he knew nothing of what was happening on the outside until he was told of it afterwards. Very few of us, presumably, will be able to lay claim to the possession of such exceptional powers of mind concentration. The narrative, however, illustrates the degree to which fixity of attention can be cultivated.
+
+Exercise for the purpose of cultivating Attention, or Fixity of Thought
+
+Selection From “Paradise Lost.”
+
+Of Man’s first disobedience, and the fruit
+
+Of that forbidden tree, whose mortal taste
+
+Brought death into the world, and all our woe,
+
+With loss of Eden, till one greater Man
+
+Restore us, and regain the blissful seat,
+
+Sing, heavenly Muse, that on the secret top
+
+Of Oreb, or of Sinai, didst inspire
+
+That shepherd, who first taught the chosen seed,
+
+In the beginning how the heavens and earth
+
+Rose out of chaos: or, if Sion hill
+
+Delight thee more, and Siloa’s brook that flowed
+
+Fast by the oracle of God, I thence
+
+Invoke thy aid to my adventurous song,
+
+That with no middle flight intends to soar
+
+Above the Aonian mount, while it pursues
+
+Things unattempted yet in prose or rhyme.
+
+And chiefly thou, O Spirit, that dost prefer
+
+Before all temples the upright heart and pure,
+
+Instruct me, for thou know’st; thou from the first
+
+Wast present, and, with mighty wings outspread,
+
+Dove-like, sat’st brooding on the vast abyss,
+
+And madest it pregnant: what in me is dark,
+
+Illumine; what is low, raise and support;
+
+That to the height of this great argument
+
+I may assert eternal Providence,
+
+And justify the ways of God to men.
+
+Say first—for Heaven hides nothing from thy view,
+
+Nor the deep tract of hell—say first, what cause
+
+Moved our grand parents, in that happy state,
+
+Favoured of Heaven so highly, to fall off
+
+From their Creator, and transgress his will
+
+For one restraint, lords of the world besides?
+
+Who first seduced them to that foul revolt?
+
+The infernal Serpent; he it was, whose guile,
+
+Stirred up with envy and revenge, deceived
+
+The mother of mankind; what time his pride
+
+Had cast him out from heaven, with all his host
+
+Of rebel angels; by whose aid, aspiring
+
+To set himself in glory above his peers,
+
+He trusted to have equalled the Most High,
+
+If he opposed; and, with ambitious aim,
+
+Against the throne and monarchy of God,
+
+Raised impious war in heaven, and battle proud,
+
+With vain attempt. Him the Almighty Power
+
+Hurled headlong flaming from the ethereal sky,
+
+With hideous ruin and combustion, down
+
+To bottomless perdition; there to dwell
+
+In adamantine chains and penal fire,
+
+Who durst defy the Omnipotent to arms.
+
+Nine times the space that measures day and night
+
+To mortal men, he with his horrid crew
+
+Lay vanquished, rolling in the fiery gulf,
+
+Confounded, though immortal: but his doom
+
+Reserved him to more wrath; for now the thought
+
+Both of lost happiness and lasting pain
+
+Torments him; round he throws his baleful eyes,
+
+That witnessed huge affliction and dismay,
+
+Mixed with obdurate pride, and steadfast hate.
+
+At once, as far as angels’ ken, he views
+
+The dismal situation waste and wild;
+
+A dungeon horrible, on all sides round,
+
+As one great furnace, flamed; yet from those flames
+
+No light; but rather darkness visible
+
+Served only to discover sights of woe,
+
+Regions of sorrow, doleful shades, where peace
+
+And rest can never dwell; hope never comes
+
+That comes to all; but torture without end
+
+Still urges, and a fiery deluge, fed
+
+With ever-burning sulphur unconsumed:
+
+Such place eternal justice had prepared
+
+For those rebellious; here their prison ordained
+
+In utter darkness, and their portion set
+
+As far removed from God and light of heaven,
+
+As from the centre thrice to the utmost pole.
+
+O, how unlike the place from whence they fell!
+
+There the companions of his fall, overwhelmed
+
+With floods and whirlwinds of tempestuous fire,
+
+He soon discerns; and weltering by his side
+
+One next himself in power, and next in crime,
+
+Long after known in Palestine, and named
+
+Beelzebub. To whom the arch-enemy,
+
+And thence in heaven called Satan, with bold words
+
+Breaking the horrid silence, thus began:—
+
+“If thou beest he; but O, how fall’n! how changed
+
+From him who, in the happy realms of light,
+
+Clothed with transcendent brightness, didst outshine
+
+Myriads, though bright! If he, whom mutual league,
+
+United thoughts and counsels, equal hope
+
+And hazard in the glorious enterprise,
+
+Joined with me once, now misery hath joined
+
+In equal ruin; into what pit thou seest
+
+From what height fall’n, so much the stronger proved
+
+He with his thunder: and till then who knew
+
+The force of those dire arms? Yet not for those,
+
+Nor what the potent victor in his rage
+
+Can else inflict, do I repent or change,
+
+Though changed in outward lustre, that fixed mind,
+
+And high disdain from sense of injured merit
+
+That with the Mightiest raised me to contend,
+
+And to the fierce contention brought along
+
+Innumerable force of spirits armed,
+
+That durst dislike his reign, and, me preferring,
+
+His utmost power with adverse power opposed
+
+In dubious battle on the plains of heaven,
+
+And shook his throne. What though the field be lost?
+
+All is not lost; the unconquerable will,
+
+And study of revenge, immortal hate,
+
+And courage never to submit or yield,
+
+And what is else not to be overcome;
+
+That glory never shall his wrath or might
+
+Extort from me. To bow and sue for grace
+
+With suppliant knee, deify his power
+
+Who from the terror of this arm so late
+
+Doubted his empire; that were low indeed,
+
+That were an ignominy, and shame beneath
+
+This downfall; since, by fate, the strength of gods,
+
+And this empyreal substance, cannot fail:
+
+Since, through experience of this great event,
+
+In arms not worse, in foresight much advanced,
+
+We may with more successful hope resolve
+
+To wage by force or guile eternal war,
+
+Irreconcilable to our grand foe,
+
+Who now triumphs, and, in the excess of joy
+
+Sole reigning, holds the tyranny of heaven.”
+
+So spake the apostate angel, though in pain,
+
+Vaunting aloud, but racked with deep despair;
+
+And him thus answered soon his bold compeer:
+
+“O prince, O chief of many-throned powers,
+
+That led the embattled seraphim to war
+
+Under thy conduct, and in dreadful deeds
+
+Fearless, endangered heaven’s perpetual King,
+
+And put to proof his high supremacy,
+
+Whether upheld by strength, or chance, or fate;
+
+Too well I see, and rue the dire event,
+
+That with sad overthrow, and foul defeat,
+
+Hath lost us heaven, and all this mighty host
+
+In horrible destruction laid thus low,
+
+As far as gods and heavenly essences
+
+Can perish: for the mind and spirit remain
+
+Invincible, and vigour soon returns,
+
+Though all our glory extinct, and happy state
+
+Here swallowed up in endless misery.
+
+But what if he our Conqueror (whom I now
+
+Of force believe Almighty, since no less
+
+Than such could have o’erpowered such force as ours)
+
+Have left us this our spirit and strength entire,
+
+Strongly to suffer and support our pains,
+
+That we may so suffice his vengeful ire,
+
+Or do him mightier service as his thralls
+
+By right of war, whate’er his business be,
+
+Here in the heart of hell to work in fire,
+
+Or do his errands in the gloomy deep?
+
+What can it then avail, though yet we feel
+
+Strength undiminished, or eternal being
+
+To undergo eternal punishment?”
+
+Whereto with speedy words the arch-fiend replied:
+
+“Fallen cherub, to be weak is miserable,
+
+Doing or suffering; but of this be sure,
+
+To do aught good never will be our task,
+
+But ever to do ill our sole delight,
+
+As being the contrary to his high will
+
+Whom we resist. If then his providence
+
+Out of our evil seek to bring forth good,
+
+Our labour must be to pervert that end,
+
+And out of good still to find means of evil,
+
+Which ofttimes may succeed, so as perhaps
+
+Shall grieve him, if I fail not, and disturb
+
+His inmost counsels from their destined aim.
+
+But see, the angry Victor hath recalled
+
+His ministers of vengeance and pursuit
+
+Back to the gates of heaven; the sulphurous hail.
+
+Shot after us in storm, o’erblown, hath laid
+
+The fiery surge, that from the precipice
+
+Of heaven received us falling; and the thunder,
+
+Winged with red lightning and impetuous rage,
+
+Perhaps hath spent his shafts, and ceases now
+
+To bellow through the vast and boundless deep.
+
+cKC
+
+Chapter 7.
+The Second Essential Principle in the Training of the Memory—a Clear and Definite Conception of the Matter to Be Memorized
+
+1. Review Notes 2, 3 and 5 under Suggestions, Chapter 5.
+
+2. Be sure to review, and practice the principle and lesson of one hundred words for practice in Chapter 6. On no account allow yourself to neglect the practice of repeating from memory the list of words. In addition, you may make a list of words of your own. You do not need to write the list of one hundred words now; merely repeat them from memory. Recall the relation existing between each set of words. Repeat from memory, the list of words many times. Do not fail to do this.
+
+Be sure also to spend at least fifteen minutes a day in reading, without allowing your mind to wander. If your mind still wanders as you read silently, you may read aloud. Reading aloud is a great aid to concentration of mind.
+
+3. Remember that the drill work is of much more importance to you than the amount of matter you actually memorize. Therefore, do not shirk the drill work; it is absolutely necessary to success.
+
+A Clear Conception Absolutely Necessary
+
+You must have a clear conception of the matter you desire to memorize. Nothing less than a very clear grasp and a definite understanding of the matter in hand will suffice. Be sure you grasp it, not something about it, or something like it; but it. A very grievous mistake made by many who are seeking to cultivate the memory consists in thinking that words are the only things to be memorized. Consequently they set to work to memorize words irrespective of the thoughts therein conveyed. We must obtain, first of all, a clear conception of the thought and the idea contained in the words and conveyed by them. Having secured this, the memorizing of the words can then be undertaken.
+
+How to Get a Clear Conception
+
+There are two ways by which a clear and definite conception of the matter to be memorized may be secured; the first is by sight; the second, by sound; the one through the eye, and the other through the ear. It may justly be said that a very great part of the knowledge we now possess comes through these two organs of sense. Let us then look a little more particularly at these two important factors in the training of the memory.
+
+1. By sight.
+
+How well we remember and are able to recall anything we have seen in picture form! Psychologists tell us that the best way to teach children is by means of pictures and illustrations. Hence, in the elementary classes of our public schools, the teachers deem it necessary to teach the pupil not only by word that two goes into four two times, but also to illustrate the same statement by the use of blocks. Thus, ratio is taught, not only by the ear, but also by the eye; hearing and sight are used together.
+
+And what is true of children is true also of adults, save in a more complex form. What the picture is to the eye of the child, writing, printing, word-picturing is to the mind of the adult student in the cultivation of the memory. There is such a thing as a word-picture for the memory, and the more vividly this is portrayed upon the mind the more easily will it be recalled by the memory when necessary to do so.
+
+How well we remember the scenes of our childhood. How often our early days come again to the remembrance by reason of our visual memory. Do we not, all of us, recall our efforts to locate a definite citation by chapter and verse, but found ourselves unable to do so, were it not for the fact that we remembered its position on the particular page?
+
+Now, when we can see the sense, the idea, the thought; when we can make into a word-picture, or form in our minds a picture of the matter we desire to learn and remember, then we shall have become the possessors of one of the essential principles of a good memory.
+
+A concrete illustration of this thought will make clear just what is meant by visual memory. Take as an example—
+
+Psalms 15:1-5
+
+Lord, who shall abide in thy tabernacle? who shall dwell in thy holy hill?
+
+He that walketh uprightly, and worketh righteousness, and speaketh the truth in his heart.
+
+He that backbiteth not with his tongue, nor doeth evil to his neighbor, nor taketh up a reproach against his neighbor.
+
+In whose eyes a vile person is contemned; but he honoreth them that fear the Lord. He that sweareth to his own hurt, and changeth not.
+
+He that putteth not out his money to usury, nor taketh reward against the innocent. He that doeth these things shall never be moved.
+
+Suppose, now, that we desire to memorize this Psalm; how shall we proceed to do so? In the following manner:
+
+In the first place, read the Psalm over very carefully and thoughtfully. Such a reading will reveal to you the fact that the Psalm opens with a question: “Who shall abide,” and closes with the answer: “He shall never be moved.” Then ask yourself: What is the theme of the Psalm? You will find the answer to be somewhat after this manner: The character of a man who is deemed worthy to abide in the temple of God. Try, now, to form a mental picture of such a man—what he is; what he does; what he does not do. For example: he walks uprightly; he does not backbite with his tongue. Try to picture him to yourself as he walks down the street on his way to the temple on the top of the hill. Imagine you hear him communing with himself—”speaking the truth in his heart.” Let your mental eye see him as he meets his neighbor to whom he has “done no evil.” Listen how he speaks of their mutual friends—”he back-biteth not with his tongue, nor taketh he up a reproach against his neighbor.” Having formed this mental picture of this man of God, you may then proceed to take up the words of the Psalm and memorize them. This you will now find to be a comparatively easy task. Most of the Psalm has been learned in the very act of word-picturing.
+
+This pictorial faculty, as it has been called, is absolutely essential to a good memory. Says Dr. A. T. Pierson: “Call to your aid the pictorial faculty if you would help the memory. Make your arrangement of thought as nearly visible as possible. For instance, Amos says: ‘Can two walk together, except they be agreed.’ Picture to yourself two persons walking together over one path. They must, of course, have a common starting point; they must have a common course, and a common goal. By fixing this image in your mind, a path, with a terminus a quo and a terminus ad quem, you can readily remember the essential points of your discourse. If we would agree with God in our walk with Him, we must have a common point at which to start, a common path in which to walk, a common goal at which to aim.
+
+“The simple object lesson of the three crosses is another illustration of the help of pictures in aiding the memory. Three crosses are drawn, or, if you please, imagined. Over one is the inscription: ‘In, not on.’ Over the middle cross: ‘On, not in.’ Over the other cross: ‘In and on.’ This means that sin was not in Christ, but laid upon Him as a sin offering; that it was in the penitent thief, but not laid on him as a penalty. With regard to the impenitent thief, it was both in him, as guilt, and on him, as penalty. Pictorial methods are not to be despised, if they help a weak memory in retaining and reproducing.”
+
+In the second place, write all the questions and answers you have formed in this mental picture, as they come into your mind. Write the word-picture. This will give it a doubly strong impression upon the memory. Write in large, heavy letters; thus you will the more readily impress the matter on your mind. Once writing, and firmly fixing in the mind what we write, will aid us in memorizing very much more than if we but read it even a dozen times. Let us not think that writing is losing time.
+
+What we have seen is not quite so soon forgotten as what we have heard.
+
+Sounds which address the ear, are lost and die
+
+In one short hour; but that which strikes the eye
+
+Lives long upon the mind; the faithful sight
+
+Engraves the knowledge with a beam of light.
+
+Do not, therefore, attempt to memorize the words of this Psalm, or indeed any selection of Scripture or literature, without first forming in your mind, and writing on paper, a mental picture of the matter to be learned. Always remember that thought precedes words.
+
+2. By hearing.
+
+The impressions made upon the brain by hearing are strong indeed. How much easier we find it to hum a tune after we have heard it played or sung, than by simply reading it from musical notes. How well, indeed how much better, we remember illustrations we have heard from the platform than when we have but read them in some book.
+
+Repeat Aloud All You Desire to Memorize
+
+It is good advice to go into the open air, into the woods, or the fields, and repeat aloud the matter we desire to learn. Each repetition strengthens the impression made upon the memory, thus enabling it to recall, not only with more ease, but also with greater rapidity and accuracy. Follow the same method for repeating aloud what has been suggested above with regard to writing. Repeat aloud the idea, the thought, the word-picture; ask and answer the questions in connection with this picture, aloud. As a rule, do not memorize silently. By manipulating the lips and controlling the breath one can whisper aloud—at least loud enough for all intents and purposes in this connection—and yet not be heard across the room. (This suggestion is made for students who cannot afford to disturb others at study by talking aloud.)
+
+Selections for Practice
+
+If you cannot on the ocean
+
+Sail among the swiftest fleet,
+
+Rocking on the highest billows,
+
+Laughing at the storms you meet,
+
+You can stand among the sailors
+
+Anchor’d yet within the bay;
+
+You can lend a hand to help them,
+
+As they launch their boats away.
+
+If you are too weak to journey
+
+Up the mountain, steep and high,
+
+You can stand within the valley
+
+While the multitudes go by;
+
+You can chant in happy measure
+
+As they slowly pass along,
+
+Though they may forget the singer,
+
+They will not forget the song.
+
+If you have not gold and silver
+
+Ever ready to command,
+
+If you cannot to the needy
+
+Reach an ever-open hand,
+
+You can visit the afflicted,
+
+O’er the erring you can weep;
+
+You can be a true disciple,
+
+Sitting at the Saviour’s feet.
+
+If you cannot in the conflict
+
+Prove yourself a soldier true,
+
+If, where fire and smoke are thickest,
+
+There’s no work for you to do;
+
+When the battle-field is silent,
+
+You can go with careful tread,
+
+You can bear away the wounded,
+
+You can cover up the dead.
+
+Do not, then, stand idly waiting
+
+For some greater work to do;
+
+Fortune is a lazy goddess,
+
+She will never come to you;
+
+Go, and toil in any vineyard,
+
+Do not fear to do or dare;
+
+If you want a field of labor,
+
+You can find it anywhere.
+
+—Mrs. Ellen H. Gales.
+
+Proverbs 3:13-17 : The picture of the Happy Man.
+
+Happy is the man that findeth wisdom, and the man that getteth understanding.
+
+For the merchandise of it is better than the merchandise of silver, and the gain thereof than fine gold.
+
+She is more precious than rubies: and all the things thou canst desire are not to be compared unto her.
+
+Length of days is in her right hand; and in her left hand riches and honor.
+
+Her ways are ways of pleasantness, and all her paths are peace She is a tree of life to them that lay hold upon her: and happy is every one that retaineth her.
+
+Proverbs 6:6-11 : The picture of the Sluggard.
+
+Go to the ant, thou sluggard; consider her ways, and be wise.
+
+Which having no guide, overseer, or ruler,
+
+Provideth her meat in the summer, and gathereth her food in the harvest.
+
+How long wilt thou sleep, O sluggard? when wilt thou arise out of thy sleep?
+
+Yet a little sleep, a little slumber, a little folding of the hands to sleep:
+
+So shall thy poverty come as one that travelleth, and thy want as an armed man.
+
+Matthew 28:16-20 : The great Missionary Commission.
+
+Then the eleven disciples went away into Galilee, into a mountain where Jesus had appointed them.
+
+And when they saw him, they worshipped him: but some doubted.
+
+And Jesus came and spake unto them, saying, All power is given unto me in heaven and in earth.
+
+Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost:
+
+Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world.
+
+Be sure to put into practice in connection with all the matter you desire to memorize, the principles here inculcated.
+
+cPS
+
+Chapter 8.
+The Third Essential Principle in the Training of the Memory—the Analyzing of That Which You Desire to Memorize
+
+Review the notes at the beginning of Chapters 6 and 7.
+
+Remember that the purpose you have in mind in the study of these principles is not the amassing of so much matter, but the mastery of a few fundamental principles. Recall and re-impress upon your mind the two essential principles thus far dealt with. What are they? Attention and a Clear Conception. Keep them in mind as you seek to master the new principles.
+
+Analyze What You Desire to Learn
+
+It is a great mistake to seek to memorize anything that has not been before analyzed. To simply repeat the matter to be learned over and over again without any reference to the analysis of it is to practically waste time so far as effective memory work is concerned. As a general rule, after a few repetitions of the subject the task becomes a monotonous one, and monotony is a deadly enemy to successful memory work; it is fatal to concentration of mind and thought.
+
+The best way to proceed to memorize is to arrange the matter to be learned analytically and synthetically, i. e., take it to pieces and put it together again. By this process you will have almost learned the selection with scarcely any noticeable effort at memorizing.
+
+Let us now apply this principle of Analysis to some specific passage we desire to memorize. Suppose that John 3:16 is the selection; how shall we proceed?
+
+First, choose the shortest clause in the selection that makes sense, and write it down. This will be: “God loved.” Then add to this clause each word in the sentence that qualifies it. In writing each new word be sure to re-write all the words you have previously written. The result will be somewhat as follows:
+
+God loved
+
+For God loved
+
+For God so loved
+
+For God so loved the world
+
+For God so loved the world, that he gave
+
+For God so loved the world, that he gave his Son
+
+For God so loved the world, that he gave his only begotten Son,
+
+For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him
+
+For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish
+
+For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have life
+
+For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.
+
+Is it not clearly evident that, by this method of procedure, the matter is memorized without almost any perceptible effort? Try it, and see for yourself. You will really be surprised at your success. Be sure to write the words; it is not enough to merely repeat them aloud. Write them. Write. WRITE.
+
+This method must be adopted irrespective of the length of the selection to be learned. It may seem like a hazardous task, and almost too long to put into practice; but you will save much time in the end. What you have learned in this way will become your permanent possession.
+
+Selection for Practice
+
+1 Corinthians 15:1-58
+
+Moreover, brethren, I declare unto you the gospel which I preached unto you, which also ye have received, and wherein ye stand;
+
+By which also ye are saved, if ye keep in memory what I preached unto you, unless ye have believed in vain.
+
+For I delivered unto you first of all that which I also received, how that Christ died for our sins according to the scriptures;
+
+And that he was buried, and that he rose again the third day according to the scriptures:
+
+And that he was seen of Cephas, then of the twelve:
+
+After that, he was seen of above five hundred brethren at once; of whom the greater part remain unto this present, but some are fallen asleep, After that, he was seen of James; then of all the apostles.
+
+And last of all he was seen of me also, as of one born out of due time.
+
+For I am the least of the apostles, that am not meet to be called an apostle, because I persecuted the church of God.
+
+But by the grace of God I am what I am: and his grace which was bestowed upon me was not in vain; but I laboured more abundantly than they all: yet not I, but the grace of God which was with me.
+
+Therefore whether it were I or they, so we preach, and so ye believed.
+
+Now if Christ be preached that he rose from the dead, how say some among you that there is no resurrection of the dead?
+
+But if there be no resurrection of the dead, then is Christ not risen:
+
+And if Christ be not risen, then is our preaching vain, and your faith is also vain.
+
+Yea, and we are found false witnesses of God; because we have testified of God that he raised up Christ: whom he raised not up, if so be that the dead rise not.
+
+For if the dead rise not, then is not Christ raised:
+
+And if Christ be not raised, your faith is vain; ye are yet in your sins.
+
+Then they also which are fallen asleep in Christ are perished.
+
+If in this life only we have hope in Christ, we are of all men most miserable.
+
+But now is Christ risen from the dead, and become the firstfruits of them that slept.
+
+For since by man came death, by man came also the resurrection of the dead.
+
+For as in Adam all die, even so in Christ shall all be made alive.
+
+But every man in his own order: Christ the firstfruits; afterward they that are Christ’s at his coming.
+
+Then cometh the end, when he shall have delivered up the kingdom to God, even the Father; when he shall have put down all rule and all authority and power.
+
+For he must reign, till he hath put all enemies under his feet.
+
+The last enemy that shall be destroyed is death.
+
+For he hath put all things under his feet. But when he saith, all things are put under him, it is manifest that he is excepted, which did put all things under him.
+
+And when all things shall be subdued unto him, then shall the Son also himself be subject unto him that put all things under him, that God may be all in all.
+
+Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?
+
+And why stand we in jeopardy every hour?
+
+I protest by your rejoicing which I have in Christ Jesus our Lord, I die daily.
+
+If after the manner of men I have fought with beasts at Ephesus, what advantageth it me, if the dead rise not? let us eat and drink; for to morrow we die.
+
+Be not deceived: evil communications corrupt good manners.
+
+Awake to righteousness, and sin not; for some have not the knowledge of God: I speak this to your shame.
+
+But some man will say, How are the dead raised up? and with what body do they come?
+
+Thou fool, that which thou sowest is not quickened, except it die:
+
+And that which thou sowest, thou sowest not that body that shall be, but bare grain, it may chance of wheat, or of some other grain:
+
+But God giveth it a body as it hath pleased him, and to every seed his own body.
+
+All flesh is not the same flesh: but there is one kind of flesh of men, another flesh of beasts, another of fishes, and another of birds.
+
+There are also celestial bodies, and bodies terrestrial: but the glory of the celestial is one, and the glory of the terrestrial is another.
+
+There is one glory of the sun, and another glory of the moon, and another glory of the stars: for one star differeth from another star in glory.
+
+So also is the resurrection of the dead. It is sown in corruption; it is raised in incorruption:
+
+It is sown in dishonour; it is raised in glory: it is sown in weakness; it is raised in power:
+
+It is sown a natural body; it is raised a spiritual body. There is a natural body, and there is a spiritual body.
+
+And so it is written, The first man Adam was made a living soul; the last Adam was made a quickening spirit.
+
+Howbeit that was not first which is spiritual, but that which is natural; and afterward that which is spiritual.
+
+The first man is of the earth, earthy: the second man is the Lord from heaven.
+
+As is the earthy, such are they also that are earthy: and as is the heavenly, such are they also that are heavenly.
+
+And as we have borne the image of the earthy, we shall also bear the image of the heavenly.
+
+Now this I say, brethren, that flesh and blood cannot inherit the kingdom of God; neither doth corruption inherit incorruption.
+
+Behold, I show you a mystery; We shall not all sleep, but we shall all be changed,
+
+In a moment, in the twinkling of an eye, at the last trump: for the trumpet shall sound, and the dead shall be raised incorruptible, and we shall be changed.
+
+For this corruptible must put on incorruption, and this mortal must put on immortality.
+
+So when this corruptible shall have put on incorruption, and this mortal shall have put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory.
+
+O death, where is thy sting? O grave, where is thy victory?
+
+The sting of death is sin; and the strength of sin is the law.
+
+But thanks be to God, which giveth us the victory through our Lord Jesus Christ.
+
+Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.
+
+It is suggested that in this instance an analysis of the thought be first made, then an endeavor to memorize the words of the chapter.
+
+cTJ
+
+Chapter 9.
+The Fourth Essential Principle in the Training of the Memory—Suggestive Association
+
+Recall the three essential principles thus far considered: Attention, or Fixity of Thought; a Clear and Definite Conception; Analysis and Synthesis. Be sure to review these principles before taking up the new thought of this chapter.
+
+Suggestive Association
+
+It seems to be a generally accepted law of thought, that whatever has been perceived or conceived in connection with some other object or thought, is afterwards suggestive of that other. The more frequently two things come before the mind, the more likely will it be, when the one is again presented, to think of the other.
+
+Suggestive Association is the connecting of the thought that is remote or abstract, with others more obvious and familiar, that the recurrence of the latter may bring along with it the recurrence of the former.
+
+In memorizing new matter, therefore, you must link or associate it with a thought or thing already in the mind and very well known. Think of them both together. Repeat them aloud together. Write them both together. Then, afterwards, you will find that the one will suggest the other.
+
+It may take you a little time to think of something already familiar and in the mind with which to associate the new thought or thing; nevertheless, take the time, and in the long run you will be repaid, and will save much time. After a little practice in finding associations, you will experience very little difficulty.
+
+How to Find Associations
+
+When you are learning anything for the first time, say to yourself: Is there anything, which is already well known to me, with which I can associate this new thing or thought? As soon as you find such, then couple on to it this new thought, and repeat them both together quite a number of times until the one suggests the other. If at any time you fail to recall the thing you want, then recall the association. This will bring to your mind in a moment the very thing you desire to recall. For example, if you desire to remember the date of Moses’ life and activity, which was about the 16th century before Christ, then, in connection with the name, Moses, repeat aloud the name, Luther, and the date of Luther’s life and activity, which was about the 16th century after Christ. You will find, that ever afterwards, the name of Moses will suggest that of Luther, and Luther’s, that of Moses. You can always remember the date of Luther by the words, Martin Luther Monk—16 letters—16th century.
+
+It matters not how simple the association may seem to be. Oft-times it seems that the more simple, and even ridiculous it is, the easier it is remembered. The sight of a book that you have read suggests a remembrance of its contents, and the pleasure in reading it. Who, that has read Ben Hur, can fail to remember, at the mere mention of the name of the book, the great chariot race so vividly portrayed therein? The sight of a house will remind you of the occupants therein, and the pleasant hours you have spent within its doors. Even the fragrance of a flower may recall to your memory scenes of your childhood—the home garden, or the trips to the woods to gather flowers. The odor of the anæsthetic reminds you of severe pain you once suffered. A person whom you meet on the street makes you think of a friend of yours. Why? Because of some association or likeness in form, complexion, or action.
+
+Five Laws of Suggestive Association
+
+In order to assist the student in the matter of Suggestive Association the following laws are suggested:
+
+1. The Association of Vicinity, or Neighborhood.
+
+Contiguity of time and place is exceedingly helpful. Waterloo suggests Wellington and Napoleon; St. Peter’s and the Vatican suggest Raphael’s great masterpiece, The Transfiguration. Link on what you are learning to something similar as to time and place.
+
+2. The Association of Likeness or Unlikeness.
+
+A man you meet on the street who has blonde hair and blue eyes suggests to you the likeness or the remembrance of a friend of yours. This second law will be found especially helpful in the remembering and recalling of the names of friends, or of places.
+
+3. The Association of Opposites.
+
+A giant suggests a dwarf, and vice versa. You recall a certain person because, though small in stature, she married a man of large proportions: the one suggests the other by contrast.
+
+4. The Association of Cause and Effect.
+
+The sight of an instrument reminds you of a friend who plays such an instrument; the odor of chloroform brings to your mind very vividly a painful experience through which you passed.
+
+5. The Association of Sound.
+
+The playing of some familiar tune recalls to the Swiss his native valley, to the mountains that surround it, and the faces of his friends. In fact, many a Swiss has died of a broken heart because of loneliness for his native land, and because of his inability to revisit the scenes of his childhood which have been recalled by some native song—by the Association of Sound. What memories come to the mind of the American when, on some foreign shore, he hears his national anthem, “My Country, ‘tis of Thee!” played or sung!
+
+Undoubtedly, there are other associations. It is the duty of the one who desires to excel in memory work to create associations. Make your own associations. You will remember them better if you make them yourself.
+
+Selection for Practice
+
+A Chronological Table of the Prophets Based On the Babylonish Captivity
+
+1. Prophets remote from, the Captivity.
+
+Jonah 810-790
+
+Hosea 785-725
+
+Joel 790-760
+
+Isaiah 750-695
+
+Amos 780-760
+
+Micah 745-725
+
+2. Prophets near to the Captivity.
+
+Nahum 660-630
+
+Zephaniah 630-620
+
+Habbakuk 620-610
+
+Jeremiah-Lamentations 628-588
+
+(Also during Captivity).
+
+3. Prophets during the Captivity.
+
+Daniel 606-534
+
+Obadiah 537
+
+Ezekiel 596-574
+
+(Jeremiah 628-658)
+
+4. Prophets after the Captivity.
+
+Haggai 520-518
+
+Zechariah 520-510
+
+Malachi 420-397
+
+Associate these dates with some that you are already very familiar with.
+
+cVA
+
+Chapter 10.
+The Fifth Essential Principle in the Training of the Memory—the Power to Recall From Memory What You Have Learned
+
+Again you are reminded of the necessity of reviewing the essential principles thus far dealt with, viz.: Attention, or Fixity of Thought; a Clear and Definite Conception; Analysis and Synthesis; Suggestive Association.
+
+We must remember that Recalling does not mean reviewing. Recalling is an act of pure memory; reviewing, by use of the text. Remember this distinction.
+
+The more earnestly and persistently Recalling is practiced, the more quickly will the memory respond when called upon to perform its task.
+
+How to Recall
+
+1. Recalling must be absolutely from memory alone.
+
+No book, no text, no written matter must be used. You must recall from the memory alone what you have already committed to it. Do not cheat yourself by “looking the matter up.”
+
+2. Recall the hardest things, the most difficult texts, the most complex thoughts.
+
+Do not choose easy selections. You will receive no benefit by so doing. Take as a lesson, for example, some selection from Paradise Lost, or some portion of the Books of Chronicles, or some list of dates or the genealogies in Matthew and Luke. It is a good thing to take up the lessons you have had during the past week, and recall their contents from memory.
+
+3. Do not overtax or overburden the memory in this direction.
+
+Be satisfied with a little, at first. If, after trying for some time to recall something, you fail to do so, do not look it up—at least not during this review—but pass on to something else. Do not give up too easily, however.
+
+4. The ability to recall with rapidity and accuracy is the highest reward in memory work.
+
+Be sure, therefore, to do strict justice to the work of Recalling.
+
+Lessons for Practice
+
+1. Before retiring, review the incidents of the day.
+
+Recall all you can of the day’s happenings—what you have done and said; where you have been; what you. have read, etc. Do this every day.
+
+2. Stand in front of some toy-store, book-store, hardware or other store-window and take a good, intense, comprehensive view of the contents of the show-window, then go away and write down on paper as many of the things as you remember. You will find yourself able to recall but very few at first, but keep up this practice, and very soon you will be able to recall almost every article within the sweep of your vision.
+
+3. Write down on a blackboard, slate or paper, any five figures that come to your mind; turn your eyes away from them immediately, and write down the figures just as you recall them. Then compare and correct them. Each time you thus practice, increase the number of figures.
+
+4. Take a domino, pass it rapidly before the eye, then write down on paper the number of dots you think were upon it, as you recall them from the sight of the domino.
+
+cW2
+
+Chapter 11.
+The Sixth Essential Principle in the Training of the Memory—the Constant Practice of Reviewing
+
+Too much emphasis cannot be placed upon the idea of Reviewing, if you desire to retain and recall, whenever you desire, the matter you have learned. We must always remember that lapse of time weakens the memory.
+
+How Often Shall We Review?
+
+Daily. Suppose you determine to learn three verses or selections a day. Having carried out your determination, review your newly-acquired possession the same day. Still carrying out your determination, you learn three more selections. In reviewing the second selection on the second day, do not forget to review the first day’s lesson also. With each new daily lesson do not forget to review the lessons of the previous day and days. Continue this for one month. Then at the end of the month spend a day in reviewing instead of acquiring new matter.
+
+Weekly. After three months of such daily practice, take a whole week to review the matter you have learned. This may seem like a long time to give to review work, but you will see that, in the long run, you will gain more by way of permanent possession, than if you omitted this time for review. Do not memorize at all during the review week.
+
+When considered necessary. As you proceed and make progress in the work of memorizing you will be well able to judge for yourself just how much time you need to give for review.
+
+How to Review
+
+This particular lesson will be treated from the standpoint of the student who desires to memorize the Scriptures especially.
+
+1. Take cards of uniform size.
+
+On one side write plainly the number of the chapter and verse, as well as the name of the book in which the text is found; on the other side of the card write out the text in full.
+
+2. Number the cards: 1, 2, 3, 4, etc.
+
+In reviewing, use one card at a time. Suppose you have written on one side of the card the location of the text, viz.:
+
+John 1:34
+ 
+
+and on the other side of the card, the words of the text:
+
+And I saw, and bare record this is the Son of God
+
+Now say to yourself, as you look at the side of the card on which the location is written: “What is John 1:34?” Then quote the words of the text from memory and see to it, by comparing it afterwards with the text on the other side of the card, that you have quoted it correctly. If, after considerable thought, you cannot recall the words of the text, do not then further burden your memory by trying to recall it. Turn the card over and take another good look at the text, and then try again to quote it from memory. The probabilities are that this time you will succeed, and doubtless never again forget it. Then reverse the cards, and proceed to review as already indicated: begin with the words of the text, and end with its location.
+
+If, after having accumulated so many passages, you find it impossible to take the time to review every card, then the best method to pursue is to pick out a card here and there at random and review by means of these picked cards. If, for instance, you have gathered one hundred passages, and you can quote correctly, from both sides of the cards, ten out of the hundred, chosen at random, you may reckon on it that you can quote them all correctly.
+
+3. Write in small figures, on the side of the card containing the location of the passage, the location of any other passage containing a similar thought as the text written on the other side of the card, viz.:
+
+John 3:16
+
+1 John 3:16
+
+A comparison of John 3:16 with 1 John 3:16 will reveal the fact that both passages treat of the same theme, viz.: the love of God as shown by sacrifice.
+
+For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.—John 3:16.
+
+Hereby perceive we the love of God, because he laid down his life for us: and we ought to lay down our lives for the brethren.—1 John 3:16
+
+Do not fail to carry out this suggestion. You will, thereby, amass much knowledge which you would otherwise lose. Do not, therefore, on any account, be negligent in this regard. This method can be pursued with hundreds of passages of Scripture. Here are a few: Matthew 20:28, with Acts 20:28; in which the thought of purchase is prominent.
+
+Even as the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.—Matthew 20:28
+
+Take heed therefore unto yourselves, and to all the flock, over the which the Holy Ghost hath made you overseers, to feed the church of God, which he hath purchased with his own blood.—Acts 20:28.
+
+Psalms 37:1-40; Psalms 73:1-28—which Isaiah 37:1-38 reversed—both dealing with the prosperity of the wicked.
+
+Psalms 37:1-40
+
+Fret not thyself because of evil doers, neither be thou envious against the workers of iniquity.
+
+For they shall soon be cut down like the grass, and wither as the green herb.
+
+Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed.
+
+Delight thyself also in the Lord; and he shall give thee the desires of thine heart.
+
+Commit thy way unto the Lord; trust also in him; and he shall bring it to pass.
+
+And he shall bring forth thy righteousness as the light, and thy judgment as the noonday.
+
+Rest in the Lord, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
+
+Cease from anger, and forsake wrath: fret not thyself in any wise to do evil.
+
+For evil doers shall be cut off: but those that wait upon the Lord, they shall inherit the earth.
+
+For yet a little while, and the wicked shall not be: yea, thou shalt diligently consider his place, and it shall not be.
+
+But the meek shall inherit the earth; and shall delight themselves in the abundance of peace.
+
+The wicked plotteth against the just, and gnasheth upon him with his teeth.
+
+The Lord shall laugh at him: for he seeth that his day is coming.
+
+The wicked have drawn out the sword, and have bent their bow, to cast down the poor and needy, and to slay such as be of upright conversation.
+
+Their sword shall enter into their own heart, and their bows shall be broken.
+
+A little that a righteous man hath is better than the riches of many wicked.
+
+For the arms of the wicked shall be broken: but the Lord upholdeth the righteous.
+
+The Lord knoweth the days of the upright: and their inheritance shall be for ever.
+
+They shall not be ashamed in the evil time: and in the days of famine they shall be satisfied,
+
+But the wicked shall perish, and the enemies of the Lord shall be as the fat of lambs: they shall consume; into smoke shall they consume away.
+
+The wicked borroweth, and payeth not again: but the righteous showeth mercy, and giveth.
+
+For such as be blessed of him shall inherit the earth; and they that be cursed of him shall be cut off.
+
+The steps of a good man are ordered by the Lord: and he delighteth in his way.
+
+Though he fall, he shall not be utterly cast down; for the Lord upholdeth him with his hand.
+
+I have been young, and now am old; yet have I not seen the righteous forsaken, nor his seed begging bread.
+
+He is ever merciful, and lendeth; and his seed is blessed.
+
+Depart from evil, and do good; and dwell for evermore.
+
+For the Lord loveth judgment, and forsaketh not his saints; they are preserved forever: but the seed of the wicked shall be cut off.
+
+The righteous shall inherit the land, and dwell therein forever.
+
+The mouth of the righteous speaketh wisdom, and his tongue talketh of judgment.
+
+The law of his God is in his heart; none of his steps shall slide.
+
+The wicked watcheth the righteous, and seeketh to slay him.
+
+The Lord will not leave him in his hand, nor condemn him when he is judged.
+
+Wait on the Lord, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see it.
+
+I have seen the wicked in great power, and spreading himself like a green bay tree.
+
+Yet he passed away, and, lo, he was not: yea, I sought him, but he could not be found.
+
+Mark the perfect man, and behold the upright: for the end of that man is peace.
+
+But the transgressors shall be destroyed together: the end of the wicked shall be cut off.
+
+But the salvation of the righteous is of the Lord: he is their strength in the time of trouble.
+
+And the Lord shall help them, and deliver them: he shall deliver them from the wicked, and save them, because they trust in him.
+
+Psalms 73:1-28
+
+Truly God is good to Israel, even to such as are of a clean heart.
+
+But as for me, my feet were almost gone; my steps had well nigh slipped.
+
+For I was envious at the foolish, when I saw the prosperity of the wicked.
+
+For there are no bands in their death: but their strength is firm.
+
+They are not in trouble as other men; neither are they plagued like other men.
+
+Therefore pride compasseth them about as a chain; violence covereth them as a garment.
+
+Their eyes stand out with fatness: they have more than heart could wish.
+
+They are corrupt, and speak wickedly concerning oppression; they speak loftily.
+
+They set their mouth against the heavens, and their tongue walketh through the earth.
+
+Therefore his people return hither: and waters of a full cup are wrung out to them.
+
+And they say, How doth God know? and is there knowledge in the Most High?
+
+Behold, these are the ungodly, who prosper in the world; they increase in riches.
+
+Verily I have cleansed my heart in vain, and washed my hands in innocency.
+
+For all the day long have I been plagued, and chastened every morning.
+
+If I say, I will speak thus; behold, I should offend against the generation of thy children.
+
+When I thought to know this, it was too painful for me;
+
+Until I went into the sanctuary of God; then understood I their end.
+
+Surely thou didst set them in slippery places: thou castedst them down into destruction.
+
+How are they brought into desolation, as in a moment! they are utterly consumed with terrors.
+
+As a dream when one awaketh; so, O Lord, when thou awakest, thou shalt despise their image.
+
+Thus my heart was grieved, and I was pricked in my reins.
+
+So foolish was I, and ignorant: I was as a beast before thee.
+
+Nevertheless I am continually with thee: thou hast holden me by my right hand.
+
+Thou shalt guide me with thy counsel, and afterward receive me to glory.
+
+Whom have I in heaven but thee? and there is none upon earth that I desire beside thee.
+
+My flesh and my heart faileth; but God is the strength of my heart, and my portion forever.
+
+For, lo, they that are far from thee shall perish: thou hast destroyed all them that go a whoring from thee.
+
+But it is good for me to draw near to God: I have put my trust in the Lord God, that I may declare all thy works.
+
+John 1:5 and 1 John 1:5, both dealing with light and darkness.
+
+And the light shineth in darkness; and the darkness comprehended it not.—John 1:5.
+
+This then is the message which we have heard of Him, and declare unto you, that God is light, and in Him is no darkness at all.—1 John 1:5.
+
+It follows from all this that it is a wise thing to ascertain, when entering upon the card the location and words of a text you desire to learn, to ask yourself whether or not there is some other passage similar in thought, etc., the location of which you can show on this particular card.
+
+Sometimes it is a good plan to enter upon the card a text that stands in contrast to the one you are learning. For example, Matthew 14:1-36 records the feeding of the 5,000; while Matthew 15:1-39 gives an account of the feeding of the 4,000.
+
+Reviewing the Contents of Any Book in the Bible
+
+It is almost an impossible task to retain in the memory all the details of entire books of the Bible. Indeed, it is difficult to retain even the general thoughts of these books unless one has some plan of remembering. The following plan is suggested: Give each chapter a word-name, or names, that will indicate the general trend of the thought of the chapter. Let the first name suggest the second; the second, the third; and so on, to the end of the number of chapters contained in the particular book the contents of which you desire to master. It may take considerable time to create such words and relationships between the words, but it will amply repay the student to spend the time on it.
+
+The Gospel Of John As an Illustration
+
+Read over carefully each chapter in the book. After you have read it, give it a name that suggests to you the general tenor of the entire chapter. For example, the first chapter of John may be summed up by the general thought of first things: the first things about the Word; the first testimony of the Baptist; the first disciples. The idea of beginnings runs throughout the entire chapter.
+
+A careful reading of the second chapter shows us that the first public event or function (if public it may be called) which Christ attended, was the marriage at Cana of Galilee. A general knowledge of the contents of the chapter is then secured, and a name-word given to it that sums up the general contents. A good name-word for this chapter would be First Event. Thus First Things, and First Event, sound very much alike. They are associated by similarity of sound (See Association of Sound, in Chapter 9.)
+
+The third chapter of John contains the account of the visit of a great man in Israel to Christ to ascertain the way of life. Nicodemus was a great man, a “ruler” in Israel. You may therefore call this chapter by the word-name: Great Man. If you associate this fact with that of the wedding in the second chapter, as being the marriage of a great man, you will thus be enabled to create a relationship between chapters two and three, so that two will suggest three.
+
+If, again, you recall that the fourth chapter records the conversation of Christ with the fallen woman at the well of Samaria—a Low Woman, indeed, you will have created a relationship between chapters three and four, so that the one will suggest the other. Thus you have the contents of the first four chapters summed up in a few words: Among the first things was a marriage of a great man to a low woman.
+
+The student should go through the whole of the Gospel by John and, after having mastered quite fully the contents of each chapter, give each chapter a word-name that will suggest the contents. And then, he should make up a list of as many word-names (always remembering that there must be a mental relationship between each pair of names—see notes on list of one hundred words, Chapter 6) as there are chapters in the book.
+
+Following is a word-name list for John’s Gospel:
+
+1.        First Things
+
+2.       First Event
+
+3.       Great Man
+
+4.       Low Woman
+
+5.       Sick
+
+6.       Bread
+
+7.       Water
+
+8.       Light
+
+9.       Darkness
+
+10.    Shepherd
+
+11.     Resurrection
+
+12.    Anointing
+
+13.    Foot-washing
+
+14.    Comforting
+
+15.    Abiding
+
+16.    Holy Spirit
+
+17.    Intercessory Prayer
+
+18.    Arrest
+
+19.    Crucifixion
+
+20.   Resurrection
+
+21.    Seashore
+
+Here we have 21 chapters; 21 names; each suggesting the other.
