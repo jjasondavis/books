@@ -348,6 +348,28 @@ professionally engineered — Marden's and Veblen's 1890s vocabulary continues, 
 career-summary witnesses, straight through to today's "personal brand" and "executive presence"
 literature without a break.
 
+### 7. — Update 2026-07-24 — Contemporary retrieval: DeYoung's *Glittering Vices*
+Modern moral-theology scholarship returns, deliberately, to the exact patristic vocabulary the drift
+in §6 abandoned — a countercurrent worth naming alongside the secularization story above.
+
+- **Rebecca Konyndyk DeYoung, *Glittering Vices*, ch. 3, "Vainglory: Image Is Everything"** (2020 rev.
+  ed.; `owned-library/glittering-vices/reading/glittering-vices.md`; owned copyright, quotations kept
+  short): DeYoung, a philosopher working explicitly in the Cassian-Aquinas line this brief documents,
+  opens with a plain modern restatement: *"Vainglory is the excessive and disordered desire for
+  recognition and approval from others"* (line 462). Her sharpest analytic move is distinguishing
+  vainglory from its sibling pride — the same distinction Cassian and Gregory dispute structurally
+  above (Conference 5:69 vs. Moralia XXXI:285): *"What makes vainglory distinct from pride, then, is
+  love of 'the show'... For the vainglorious, image is everything"* (line 478). She later names the
+  same two poles as a diagnostic pair — *"prideful vainglory (the need to display your goodness)"*
+  against *"fearful vainglory (the need to cover up your defects)"* (line 644) — a modern-clinical
+  restatement of Cassian's "changeable monster of many shapes," which attacks from every side
+  (Institutes XI, line 119, above). And DeYoung closes her own root-cause analysis by quoting the very
+  same Cassian passage already anchoring this brief's patristic section: *"we wrong . . . God by
+  preferring to do for the sake of human beings what we should have done for his sake . . . having
+  preferred human beings to God and the glory of the world to the glory of the Lord"* (line 624; the
+  identical passage cited as Institutes XI:119 above) — independent confirmation, from a 2020 academic
+  monograph, that this remains the tradition's diagnostic center of gravity.
+
 ---
 
 ## Why this matters for ChainBreaker
@@ -379,6 +401,20 @@ literature without a break.
    Maxwell's *Winning With People*) extends the modern-drift argument all the way to the present
    idiom: "personal brand" and "executive presence" are kenodoxia's current names, still fully
    evacuated of any reference to God.
+6. **— Update 2026-07-24 —** Four more primary/secondary sources are now on the record. The
+   Philokalia adds a translation-vocabulary discovery in its own right — its standard English version
+   renders *kenodoxia* as "self-esteem" sixteen times more often than as "vainglory" (143 vs. 9
+   occurrences), which the chapter can use to show a reader that today's "self-esteem" and the desert
+   fathers' "vainglory" were never two different things, only two different translators' choices for
+   one Greek word. Climacus (Ladder, Step 22) supplies the single most citable personification in the
+   whole corpus — vainglory and pride sitting down beside the monk and speaking in their own voices,
+   vainglory naming pride "my most impudent mother" — which is a gift for a chapter that wants to dramatize
+   the thought rather than just define it. Evagrius's *Talking Back* supplies the tradition's own
+   practical method (answering a thought with a specific verse) in a form a reader could imitate
+   directly. And DeYoung's *Glittering Vices* is independent, contemporary, academic confirmation that
+   Cassian's "preferred human beings to God and the glory of the world to the glory of the Lord" (the
+   same line this brief already anchors on) is still read as the tradition's diagnostic center of
+   gravity — the patristic reading is not an antiquarian curiosity ChainBreaker is reviving alone.
 
 ## Gaps flagged for this theme
 - **Chrysostom's *On Vainglory and the Right Way to Bring Up Children*** — the single most directly
@@ -395,6 +431,16 @@ literature without a break.
 - **No Puritan-era explicit link to Veblen/Marden-style "reputation as capital"** was found — the
   drift section above bridges two eras that don't cite each other; the corpus has no 19th-century
   sermon literature directly rebutting the emerging secular "build your reputation" genre.
+- **— Update 2026-07-24 —** This pass checked the Philokalia (English), Climacus's *Ladder* Step 22,
+  Evagrius's *Talking Back*, and DeYoung's *Glittering Vices* against this brief's open gaps above.
+  None of the four is the Chrysostom treatise itself, so **the Chrysostom gap above is NOT resolved**
+  — his dedicated *On Vainglory and the Right Way to Bring Up Children* still has no PD English
+  translation in the vault, Philokalia included (Nikodimos's Philokalia anthology does not excerpt it).
+  The Cyprian and Puritan-coverage gaps likewise stand unchanged; none of today's four sources bears
+  on Cyprian's envy treatise or fills out Owen/Watson/Flavel/Brooks/Baxter's thin vainglory coverage.
+  (Note: this brief's own Gaps list never in fact flagged a "Philokalia untranslated/Greek-only" gap —
+  the closest item is the Chrysostom line above, which remains open. The Philokalia itself was simply
+  an un-searched source until this pass, now resolved by the new bullet in §1 above.)
 
 ---
 
