@@ -93,3 +93,18 @@ Finney, *Lectures on Revivals* (the thing critics blame) ✓ · Spurgeon, Ryle, 
     *The Pursuit of God*** — the recovery voices, weight against the shallowness.
 20. **Os Guinness, *Dining with the Devil*** — the church-growth/​megachurch accommodation to modernity,
     short and pointed.
+
+## Tier 5 — the method & the modern mind (for the antirrhetic-method / "sin as sickness" briefs)
+
+*Already handled — do not buy:* **Thomas Brooks, *Precious Remedies Against Satan's Devices*** (1652) —
+the ideal Puritan "device → remedy" catalogue — was **acquired free (public domain)** into
+`tradition/thomas-brooks/`. **DSM-5** (APA, 2013) is in the vault (`reference/dsm-5/`, owned-copyright +
+OCR) — the medicalization endpoint (vice → diagnosis).
+
+*Worth buying — verify DRM-Free:*
+
+21. **★ David D. Burns, *Feeling Good: The New Mood Therapy*** — the most-used popular CBT primary; gives
+    the actual "thought record" / cognitive-restructuring drill to set beside the desert *antirrhesis*
+    (the antirrhetic-method brief currently leans on *EI 2.0* + Somov, both popularizations).
+22. **Aaron T. Beck, *Cognitive Therapy and the Emotional Disorders*** — the clinical source of the
+    method, if a scholarly citation is wanted over Burns's popular one.
